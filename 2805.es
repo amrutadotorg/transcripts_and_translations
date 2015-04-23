@@ -1,0 +1,30 @@
+Mahashivaratri Puja. Puna, India. 15 de febrero de 2004.
+
+
+[Charla en hindi]
+
+Hoy nos hemos reunido aquí para adorar al Guru. Al Guru se le considera la Deidad más elevada. Pero, ¿quién es el Guru en realidad? ¿Cuál es el Poder que fluye de Él con plenitud? El Principio del Guru es Shiva. Debemos considerar que el Poder que está en la forma de Shiva es el Poder del Guru; porque, cuando comienza a fluir en vuestro interior, vosotros mismos os convertís en gurus. Pero la función de este poder es vuestro bienestar (Kalyana). Aquél que recibe este poder debe entender que ha sido bendecido. Es difícil explicar con palabras lo que significa "Kalyana". "Kalyana" quiere decir éxito en todos los sentidos, ser plenamente nutridos y glorificados.
+
+Cuando alguien nos bendice y nos dice: "Que tengas Kalyana (que seas bendecido)", ¿qué significa? ¿Qué es este Kalyana? Es lo que se conoce como la Realización del Ser (Atma Sakshatkara). Sin la Realización del Ser no existiría el Kalyana. No podría ser entendido ni absorbido. Las bendiciones producen dicha y la persona se siente muy cómoda, fabulosamente bien (Tejaswi). Todo lo que se podía hacer para que alcanzarais ese estado ya ha sido hecho. Todo el trabajo ha sido realizado. Cuando se tiene la vía del Kalyana, ¿qué sucede? Que tenéis la solución completa (Samadhana) a todos vuestros problemas. Ya no hay nada que buscar, os convertís en gurus. Ya no tenéis que lograr nada en especial, sino que experimentáis las bendiciones de este Samadhana, del estado de Samadhana. Lo comprendéis y os establecéis en él.
+
+Lo primero y más importante es el aspecto físico, los problemas y debilidades a nivel físico. Todo esto desaparece con la vía del Kalyana. Os libráis de vuestros problemas físicos. Si esto todavía no os ha sucedido, debéis pensar que todavía no habéis alcanzado el estado de Kalyana. En segundo lugar, están las debilidades a nivel mental. Las obstrucciones y problemas mentales que persisten en vosotros, impidiéndoos alcanzar el estado de Kalyana, y por las cuales no podéis florecer completamente, también desaparecen. En esto se basa este poder.
+
+Cuando lográis este poder, obtenéis la verdadera solución Kalyana a todos los problemas, es decir, os convertís en seres realizados. Shri Mahadeva ayuda mucho en este proceso. Cuando vuestra Kundalini atraviesa el Sahasrara, Shri Mahadeva se establece allí. Por eso se le llama "Mahadeva": el Dios de los Dioses.
+
+Esta vía del Kalyana lleva a muchos otros logros. El más importante es la paz: paz mental, paz física, y sobre todo la paz mundial. En el mundo hay muchos problemas y dificultades. Todos pueden superarse por medio de la Realización Kalyana. Sencillamente, dejarían de existir. Hay mucha gente en el mundo que, después de obtener este poder, se establecen en su meditación y actúan allí donde viven. Esto es Kalyana, el camino por el cual la persona alcanza un completo equilibrio.
+
+Para lograr este equilibrio, debéis buscar refugio en el Guru. Al refugiaros en los Pies Sagrados del Guru, obtendréis un equilibrio tan perfecto que os sentiréis como si hubierais logrado todo y no os quedara nada por alcanzar.
+
+Este equilibrio os da un poder tremendo. Yo lo llamo el poder del amor. Cuando uno lo recibe, el cuerpo entero se estremece como si algún Poder divino le estuviera abrazando. En ese estado, la persona se eleva por encima de la confusión y los desequilibrios mundanos y vive en perfecta armonía. Por eso la gente se esfuerza tanto en alcanzar este poder. Pero este poder se puede obtener de otras personas que, a su vez, ya lo han alcanzado y se han convertido en personas divinas.
+
+[Charla en inglés]
+
+Este tema solo se puede explicar en hindi. El Gurupad se obtiene de otra persona, pero esa persona debe tener los poderes: en primer lugar de paz mental y, además, el poder de superar todo tipo de problemas mentales y físicos. Todos estos problemas se pueden superar por medio de vuestro equilibrio mental y de las bendiciones de vuestro Guru.
+
+Cuando os convertís en el guru, tenéis el poder de bendecir a otros. Con este poder de "bendición", podéis hacer que muchas otras personas también se conviertan en gurus. Cuando una persona se convierte en el guru porque hay otra que tiene ese poder, sentís una gran satisfacción; es algo que ennoblece mucho. La satisfacción es tan grande, que no deseáis nada más. Este es el Poder de Shiva. Habéis visto que Shiva no tiene mucha ropa. No se adorna. Simplemente está sentado en meditación constantemente, y no desea nada. Está tan satisfecho consigo mismo, que no desea nada más. Ese es el poder que obtenéis después de la Realización del Ser, si tenéis un maestro del nivel y calibre apropiados. Uno no debe intentar convertirse en un guru, no funciona así. Es algo que debe producirse de forma automática, sin pedirlo, sin ningún esfuerzo.
+
+Por tanto, la única forma de alcanzar ese estado es a través de dhyana. Dhyana es meditación. En meditación, sencillamente meditad y meditad. No pidáis nada. La meditación misma hará que surja este gran poder del guru en vosotros y, automáticamente, transmitiréis este poder a los demás. No tenéis que hacer que funcione. Sencillamente, en vuestra presencia, la gente obtendrá este poder de completa satisfacción. Esta es la salvación para vosotros y para ellos.
+
+Entonces todos los problemas que os encontráis en vuestro ascenso terminan, y la dicha de la paz y el gozo divinos os baña. Por eso se le llama "kaywalya", es decir, nada más que bendiciones. No hay una palabra para traducirlo, no hay otra forma de explicarlo. Es un estado, el "sthiti". Es el estado al que tenéis que llegar y entonces sabéis que estáis en él. Es admirable que cuando se alcanza ese estado, ya no hay que pedir nada; todo está ahí, os sentís muy satisfechos. Podría continuar hablando de este poder especial, pero os pido que meditéis en lo que he dicho. Todos vosotros sois capaces de alcanzar este estado de completa paz y gozo.
+
+Que Dios os bendiga.

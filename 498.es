@@ -1,0 +1,12 @@
+Diwali Puja. Los Ángeles, Estados Unidos. 9 de noviembre de 2003.
+
+
+Hoy es el gran día del Diwali. Eso significa que hoy es el gran día, las luces de vuestros corazones, todas juntas, hacen una luz mayor para que el mundo se mueva en la dirección adecuada. Hoy es un día de mucha alegría, y aquellos que se unen a este evento también desprenden mucho gozo. Pero como la gente dice, los problemas están ahí. Sin embargo, para vosotros no hay problemas porque no existe la oscuridad. No vemos ninguna oscuridad por ninguna parte, sino solo luces y más luces.
+
+Entonces, ¿qué es lo que nos falta? Nos falta sinceridad. Tenemos que ser muy honestos con nosotros mismos, porque el amor y el gozo no han de ser prestados, sino que han de proceder de la Fuente, que no para de manar. Eso es lo que se tiene que despertar. El amor debe fluir y debemos deshacernos de nuestras pequeñas e insignificantes cosas, como los celos y las rivalidades, al igual que de todo aquello que nos echa a perder. Todo ello puede eliminarse si vuestro corazón está lleno de amor. Hoy es el día para extender esa luz de amor, de tal manera que todo el mundo se sienta iluminado y feliz, y olvide esos problemas insignificantes.
+
+Me siento muy contenta porque hayáis podido conseguir esta sala. Es una suerte que la lograrais. La gente estaba muy preocupada por conseguir una sala, pero al final se consiguió. Así que deberíais saber también que vuestro destino está dirigido y cuidado. Vosotros ya sois personas bendecidas, sin duda, y no deberíais preocuparos por cosas y asuntos insignificantes. Todo funcionará muy bien, ya lo veréis. Simplemente si lo dejáis a vuestro destino, que es muy elevado y muy grande, llegaréis muy lejos.
+
+Esta es la promesa del Diwali para todos vosotros: que alcanzaréis el modo de vida más elevado y más noble. Cada palabra que pronuncio estará ahí para probar que lo que digo está ahí. Cualquier pequeño problema que tengáis desaparecerá. Todo esto son mensajes del Divino. No os tenéis que preocupar por tonterías: ni por el dinero ni el trabajo. Esa no es vuestra labor. Vuestro destino hará que todo funcione. Tenéis la promesa de que se os cuidará. Espero que creáis en esa promesa, y que seáis felices de la mejor manera. Os bendigo a todos vosotros desde mi corazón, y que tengáis un muy feliz y próspero Diwali.
+
+Muchas gracias.
