@@ -1,4 +1,4 @@
-Bhavasagara púdža, 6/4/1994, Brisbane, Austrálie
+Bhavasagara púdža, 6/4/1991, Brisbane, Austrálie
 
 Toto je poprvé, co máme púdžu v Brisbane a jsem ráda, že sem přišlo tolik lidí z různých míst. Víte, že púdžou ve Mně aktivujete čakry a získáváte mnoho vibrací a najednou dosáhnete ve svém vědomí výšky. Dosáhnete toho, ale po nějaké době říkají: "Matko, opět jsme klesli." Také říkali: "Když jedeme do Indie, jsme v pořádku, a když se vrátíme, znovu klesáme." Naštěstí máme nyní ášram, což je velmi dobré. Mít ášram je, musím říct, velmi, velmi dobré, protože tak se zde upevní Ganéša. Ášram je tedy pro kolektivní bydlení, ale kolektivní bydlení duchovnosti. Nejde jen o to tady bydlet, je to duchovní záležitost. A musíme vědět určité věci ohledně chování, které musíme dodržovat. Je to velmi důležité. Není to jen dům, kde jsou nějací lidé, kteří se sešli, aby společně žili, ale musí zde být řád. Jenom pak vám bude pomoženo, protože pokud nepřijdete do ášramu s myšlenkou, že tam jdete, abyste rostli, nebude žádný rozdíl mezi tím, jestli zůstanete doma nebo půjdete do ášramu.
 
