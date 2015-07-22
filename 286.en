@@ -10,7 +10,7 @@ I think the first era of Sahaja Yoga has ended now, and new has started. In the 
 
 &nbsp;
 
-The first one was, we can say, is just the awakening of the Kundalini, and piercing the fontanel bone area.
+The first one was, we can say, is just the awakening of the Kundalini, and piercing the fontanelle bone area.
 
 As you see on top of your head these bandhans, that's how you too have in your head, same way, and you have the chakras same way built in, in your Sahastrara.
 
@@ -18,11 +18,11 @@ So in the first era of Sahaja Yoga we have awakened the deities in your centres,
 
 &nbsp;
 
-But now the time has come for us to spread it on a horizontal level, and to move it on the horizontal level, we have to understand how to go about it. Like the seven colours of the rainbow, we have got seven colours of the light of these centres, of the chakras. And when we start it from the back, from the Mooladhara, bringing it up to the, this side, Agnya, then it is placed in a different order, if you see it clearly. I mean to say that in the Sahastrara, because it's a concave placement, is important to understand that the centre of the fontanel bone area corresponds to our heart. So heart is the pivotal point for the second era now. I hope you understand what I mean.
+But now the time has come for us to spread it on a horizontal level, and to move it on the horizontal level, we have to understand how to go about it. Like the seven colours of the rainbow, we have got seven colours of the light of these centres, of the chakras. And when we start it from the back, from the Mooladhara, bringing it up to the, this side, Agnya, then it is placed in a different order, if you see it clearly. I mean to say that in the Sahastrara, because it's a concave placement, is important to understand that the centre of the fontanelle bone area corresponds to our heart. So heart is the pivotal point for the second era now. I hope you understand what I mean.
 
 &nbsp;
 
-So if you have to place your attention to Sahastrara, first thing you have to do is to pay attention to your heart. In the Sahastrara, the Heart chakra and the heart itself, the Atma, coincide. Means the Jagadamba becomes one with the heart – that is the Atma. So we see that here the yoga takes place.
+So if you have to place your attention to Sahastrara, first thing you have to do is to pay attention to your heart. In the Sahastrara, the Heart chakra and the heart itself, the Atma, coincide. Means the Jagadamba becomes one with the heart – that is the Atma.  So we see that here the yoga takes place.
 
 &nbsp;
 
@@ -50,7 +50,7 @@ Now, one must learn how to improve Sahastrara itself. You know the presiding dei
 
 &nbsp;
 
-To develop this, you have to pay attention to your Heart chakra in the fontanel bone area.  If you pay attention to the fontanel bone area, then there you must establish the Deity. But this Deity has to be first established into the heart.
+To develop this, you have to pay attention to your Heart chakra in the fontanelle bone area.  If you pay attention to the fontanelle bone area, then there you must establish the Deity. But this Deity has to be first established into the heart.
 
 &nbsp;
 
