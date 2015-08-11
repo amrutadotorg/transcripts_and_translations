@@ -4,10 +4,9 @@ Bhavasagara Puja
 
 6 april 1991
 Brisbane, Australië
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 26/09/2012
-&nbsp;
 
 Dit is de eerste keer dat we een puja houden in Brisbane, en ik ben blij dat er zoveel van jullie hierheen zijn gekomen vanuit verschillende plaatsen.
 
@@ -69,48 +68,26 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] antarmana: vorm van meditatie waarbij we in onszelf kijken en aan introspectie of zelfonderzoek doen
-
-
 
 
 [2] bahirmana: vorm van meditatie waarbij we een sterke discipline ontwikkelen met betrekking tot de manier waarop we uiterlijk leven
 
 
-
-
 [3] tapascharya, tapassya: boetedoening; beproevingen die men moet doorstaan om spiritueel te groeien
-
-
 
 
 [4] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
 
 
-
-
 [5] antarmana tapaha: de ‘beproeving’ van zelfonderzoek of introspectie tijdens meditatie
-
-
 
 
 [6] tap/tapas: vrome soberheid, ascetisme
 
-&nbsp;
-
-
-
 
 [7]          bandhan: bescherming van (door) de Moeder (ook kavach genoemd)
 
-&nbsp;
-
-
-
 
 [8] Adi Shankaracharya: Indiase heilige, filosoof en dichter (788-820); schreef de ‘Saundarya Lahiri’, waarvan elk couplet een mantra is ter ere van de Moeder.
-
 

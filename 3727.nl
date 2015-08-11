@@ -1,19 +1,14 @@
 Shri Mataji Nirmala Devi
-&nbsp;
 
 Birthday Puja
 
 “Geniet van deze collectieve liefde”
 
-&nbsp;
 Dehli, India
 21 maart 2000
-&nbsp;
 
 Engelse transcriptie: IBP reviewed
 Nederlands:  15/03/2013
-
-&nbsp;
 
 Ik ben zo met vreugde vervuld en mijn hart is zo vol dankbaarheid voor deze prachtige plek die de Sahaja yogi’s gecreëerd hebben. Ik kan me niet voorstellen hoe hard ze moeten gewerkt hebben om op deze plek zo’n prachtige omgeving te creëren, zo’n gelukzalige plaats. Hoe mensen in Sahaja Yoga samenwerken met enorm veel respect en liefde voor elkaar en dan zoiets ongelooflijks tot stand brengen. Dit was een wildernis en jullie hebben er licht en leven in gebracht. Jullie wilden mijn verjaardag vieren. Ik weet niet wat daar zo betekenisvol aan is?
 

@@ -1,6 +1,5 @@
 Shri Guru Puja. Cabella Ligure, Italia. 4 de julio de 1993.
 
-
 Hoy vamos a celebrar el Guru Puja. Se supone que soy vuestro Guru; pero a veces siento que la idea que existe sobre cómo debería ser un Guru, es muy diferente de la mía. Normalmente un guru es una persona muy, muy estricta, sin ninguna paciencia, incluso en lo que se refiere a la música.
 
 Hay gurus que enseñan música en la India. Todas las disciplinas tienen que ser mantenidas estrictamente. Conozco a este gran músico Ravi Shankar. Habíamos estado en Maiar a donde vino él; mi padre era muy respetado por el guru de Ravi Shankar, Alla Uddin Khan Sahab. Entonces le preguntó: "¿Por qué no tocas algo?" No le respondió nada en aquel momento. Luego mi padre vio el gran chichón que tenía. Le dijo a mi padre: "¿Señor, has visto esto?", y él respondió: "¿Qué?" "El rompió en mi cabeza mi propio Tanpura porque yo estaba un poquito fuera de tono". De todas formas él era un buen hombre debo decirlo, yo conocía a Alla Uddin Khan Sahab. Pero cuando él comenzó a enseñar, pienso que es una tradición, el que tienes que poner todo tipo de disciplinas a los estudiantes. Sin embargo los estudiantes siguen fielmente al guru y le cuidan todo el tiempo. Se preocupan por él, si quiere algo, correrán a buscarlo, harán cualquier cosa que él desee.

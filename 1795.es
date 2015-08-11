@@ -1,6 +1,5 @@
 Navaratri Puja: "Destruir los demonios en nuestro interior". Margate, Reino Unido. 8 de octubre de 1989.
 
-
 De una forma muy espontánea se decidió que debíamos celebrar el Devi Puja en lnglaterra. Y este es el lugar donde realmente debe hacerse el Devi Puja, porque es el lugar de Sadashiva, donde debe ser adorada la Adi Shakti.
 
 Hoy debemos comprender por qué hacemos el Devi Puja. ¿Cuál es la razón para hacer este Devi Puja? ¿Qué es lo que obtenemos con él? ¿Qué se supone que debemos alcanzar en nuestro interior?

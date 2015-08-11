@@ -90,8 +90,6 @@ Ganesha is vriendelijk, hij is de koning, die heel fijn neerzit met alle krachte
 
 Moge God jullie zegenen.
 
-&nbsp;
-
 Laat ons met de puja beginnen. Wie heeft dit gemaakt? Heb jij het gemaakt - deze Ganesha? Zoiets liefs. Je bent heel goed, moet ik zeggen. Moge God je zegenen!
 
 Vraag ook enkele Duitse mensen om de Puja te doen.
@@ -166,29 +164,17 @@ Shri Mataji: Zo ongelooflijk lief.
 
 
 
-
-
-
 [1] dharma: geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag
-
-
 
 
 [2] bhoot: geest van een overledene
 
 
-
-
 [3] vira: één van de namen van Shri Mataji is ‘Shri Vira Mata’: Vira betekent ‘toegewijde die competent is’
-
-
 
 
 [4] shakti: primordiale (oorspronkelijke) kracht, moederlijke oerkracht
 
 
-
-
 [5] gana’s: strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
-
 

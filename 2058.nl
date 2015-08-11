@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Navratri Puja
 ‘De godheden kijken naar je’
 
-
 Arzier, Genève, Zwitserland
 23 september 1990
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 30/09/2011
-&nbsp;
 
 Volgens de kalender zijn er dit jaar tien dagen van Navaratri, geen negen. Negen is het aantal dagen, waarop de Godin tijdens de nacht de demonen moest bestrijden om haar kinderen te redden van de gevolgen van negativiteit. Enerzijds was ze een oceaan van liefde en mededogen en anderzijds beschermde ze hen als een tijgerin. Want in die tijden was het zo dat niemand kon mediteren, niemand kon de naam van God in de mond nemen, niemand kon zelfs maar denken aan zelfrealisatie. Maar zij die hier vandaag zitten, jullie waren er ook in die dagen, en jullie werden allemaal gered omwille van vandaag, omwille van deze dag, zodat jullie je zelfrealisatie kunnen verkrijgen.
 
@@ -163,84 +161,50 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] maya swarupi: gedaante, verschijningsvorm die ‘maya’ of illusie is.
-
-
 
 
 [2] yuga: tijdperk, tijdsperiode
 
 
-
-
 [3] Mahakali: de kracht of shakti van het linker energiekanaal, staat voor verlangen en bestaan (het Zijn).
-
-
 
 
 [4] Mahasaraswati: de kracht of shakti van het rechter energiekanaal, staat voor actie en creativiteit (schepping).
 
 
-
-
 [5] Mahalakshmi: de kracht of shakti van het centrale energiekanaal, staat voor evolutie en bewustzijn.
-
-
 
 
 [6] vahana: voertuig van de godheden (vb. muis van Shri Ganesha, tijger of leeuw van Shri Durga,…)
 
 
-
-
 [7] devata's: aspecten van het Goddelijke, godheden
-
-
 
 
 [8] moksha: bevrijding
 
 
-
-
 [9] Virata: het Kosmische Lichaam, het Grote Primordiale (Oorspronkelijke) Wezen, de manifestatie van God
-
-
 
 
 [10] bhoot of bhut: ziel van een overledene (die nog sterk gehecht is aan het aardse leven); ook wel (negativiteit uit) het verleden
 
 
-
-
 [11] Jagadamba: godin die zetelt in de midden Hart chakra; Shri Durga als de moeder van het universum
-
-
 
 
 [12] rakshasa: demon, negatieve of duivelse kracht
 
 
-
-
 [13] maryada's: begrenzing van het juiste (rechtschapen) gedrag
-
-
 
 
 [14] munindra: hij die innerlijk verlicht is, het licht van God in zich draagt
 
 
-
-
 [15] nirananda: zuivere vreugde, opperste vreugde
 
 
-
-
 [16] kumbha: pot, kan of kruik die de baarmoeder van het universum symboliseert; kruik die de Kundalini bevat, kruik die het primordiale (oorspronkelijke) verlangen bevat, het verlangen om tot God te komen. Wordt gebruikt tijdens puja’s als drager van de kokosnoot.
-
 

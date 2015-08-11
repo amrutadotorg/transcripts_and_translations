@@ -1,6 +1,5 @@
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2001.
 
-
 Hoy todos habéis decidido celebrar mi setenta y ocho cumpleaños. Habéis colocado preciosos globos, como los que se ponen en los cumpleaños de los niños, con manos muy amorosas. Como os comenté ayer, tenéis que ahondar en vuestro Ser. Intentad averiguar también, cuánto podéis amar a los demás, de la misma forma en la que yo os amo. A través de la introspección, será mucho más fácil averiguar cuánto amáis a los demás y cuánto os importan las otras personas. Si esto sucede, muchos problemas de Sahaja Yoga se solucionarán muy rápido.
 
 He oído que, incluso en Sahaja Yoga, la gente todavía anhela el dinero. Creen que aquí se puede ganar dinero. Me sorprende. Este no es un lugar donde se pueda lograr algo así. Quedaréis al descubierto de inmediato. Si por el contrario, lo que os preocupa es el poder en Sahaja Yoga, como líderes o como ayudantes del líder o no sé qué otras cosas, entonces también estáis tristemente equivocados. Este no es el lugar, para eso podéis dedicaros a la política, o para ganar dinero podéis ir a las carreras o algo así. Pero si venís a Sahaja Yoga, lo que tenéis que obtener es un océano de amor en vuestro corazón, y ver eso también en los demás. Es un amor que os ayuda a hacerlo todo de una forma muy suave, muy bella.

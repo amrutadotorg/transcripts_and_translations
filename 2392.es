@@ -1,6 +1,5 @@
 Puja de Año Nuevo. Academia de música de Vaitarna, India. 31 de diciembre de 2002.
 
-
 [Charla en inglés]
 
 Me siento muy, muy feliz de ver que tantos de vosotros habéis venido para el programa. En realidad compré esta tierra hace, por lo menos, veinticinco años y no pude hacer nada sobre la cantidad de objeciones y esto y aquello que hubo. Pero de alguna manera lo planifiqué todo y ha funcionado. Soy feliz de veros a todos aquí y a pesar de las dificultades ahora podéis encontrar a tantos sahaja yoguis que asisten a este programa de mi Puja.

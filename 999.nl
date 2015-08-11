@@ -207,59 +207,35 @@ Leg nu diezelfde hand dwars op je voorhoofd en zeg: “Moeder ik vergeef iederee
 
 
 
-
-
-
 [1]          shakti: primordiale (oorspronkelijke) kracht, moederlijke oerkracht
-
-
 
 
 [2] Viveka Chudamani: letterlijk ‘Het kroonjuweel van wijsheid’, één van Adi Shankaracharya’s belangrijkste geschriften. In 580 Sanskriet verzen wordt via dialogen tussen de meester en zijn leerling uitgelegd hoe men de aard van ‘Atman’ of de Spirit kan kennen en ontdekken. Stap voor stap wordt uitgelegd hoe men ‘Brahman’ of het allerhoogste kan bereiken.
 
 
-
-
 [3] Ruh: ‘Heilige Adem’ uit de Koran; stemt overeen met de ‘Heilige Geest’ of ‘Sanctus Spiritus’ uit de Bijbel.
-
-
 
 
 [4] nadi’s: energiekanalen in ons subtiel lichaam. De belangrijkste zijn het linker en rechter energiekanaal, corresponderend met het sympathische zenuwstelsel, en het middenkanaal corresponderend met het parasympathische zenuwstelsel.
 
 
-
-
 [5] ashtanga: betekent letterlijk ‘acht’. Patanjali beschreef in zijn Yoga Sutra’s acht principes waarop de Hatha Yoga discipline gebaseerd is.
-
-
 
 
 [6] Ishvara pranidhana: overgave aan God (Ishvara), vertrouwen op het grotere geheel.
 
 
-
-
 [7]          yama niyama: ethische disciplines, onthoudingen
-
-
 
 
 [8]  niyama: (morele) voorschriften of principes
 
 
-
-
 [9]  asana’s: Sanskriet voor ‘zitten’ of (ver)blijven; fysieke yoga oefeningen en lichaamshoudingen
-
-
 
 
 [10] bhanda’s: spiersamentrekkingen die de Kundalini energie op een bepaalde manier kanaliseren
 
 
-
-
 [11] kechari: techniek waarbij de tong in de mondholte naar achter wordt gekruld en het gehemelte raakt
-
 

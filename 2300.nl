@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
  Shri Krishna Puja
 ‘Shri Krishna &amp; dharma’
 
-
  Cabbella Ligure, Italië
  15 augustus 1993
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 16/12/2011
-&nbsp;
 
 Vandaag zijn we hier samengekomen om Shri Krishna Puja te doen. We moeten goed begrijpen dat Shri Krishna een ontzettend belangrijke godheid is in ons, omdat hij de Vishnu[1] is, die in de Void verblijft, in de Nabhi. Hij is degene die het dharma in ons voortbrengt.
 
@@ -105,94 +103,56 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] Vishnu: goddelijk aspect dat in de Nabhi of derde chakra verblijft; het voedt en ondersteunt onze evolutie.
-
-
 
 
 [2] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
 
 
-
-
 [3] tien guru’s: de ‘tien guru’s’ verwijst naar de tien Oorspronkelijke of Primordiale Meesters, die incarneerden op aarde om het dharma te vestigen en te beschermen. Ze verpersoonlijken de kwaliteiten van de ‘meester’ en die van ‘de leerling’, die in ons subtiele systeem verbonden zijn met de Void.
-
-
 
 
 [4] leela: het spel van het leven
 
 
-
-
 [5] Leeladhara: kwaliteit van Shri Krishna, ‘de meester van het levensspel’
-
-
 
 
 [6] Kaliya: Kaliya: de veelkoppige slang die door kleine Shri Krishna werd bevochten en verslagen
 
 
-
-
 [7]  Putana: vrouwelijke demon die verslagen werd door kleine Krishna
-
-
 
 
 [8]  rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
 
 
-
-
 [9] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [10]sharia: het Arabische woord voor de islamitische wet of de wet van God; betekent letterlijk 'weg naar de bron', ook: 'gebaande weg', 'wet' en 'rite'
 
 
-
-
 [11]gopi’s: koeienhoedsters; symboliseren in vele verhalen de krachten van Shri Krishna
-
-
 
 
 [12]gopa’s: de koeherders die dansten met Shri Krishna; ze symboliseren zijn krachten
 
 
-
-
 [13]Sushumna: nadi, middenkanaal van het subtiele systeem, kanaal van evolutie, kanaal waarlangs de  Kundalini opstijgt, correspondeert met het parasympathische zenuwstelsel
-
-
 
 
 [14]karma: de gevolgen van onze vroegere daden, die vaak generaties lang blijven doorwerken
 
 
-
-
 [15]madhurya: zoet, zacht, melodieus
-
-
 
 
 [16]namaste: eerbiedige begroeting, waarbij men beide handen ter hoogte van de borst of het hoofd tegen elkaar vouwt en het hoofd buigt; het betekent: ‘Ik groet de Spirit in jou’
 
 
-
-
 [17]sanyasi: asceet die door vasten, meditatie en ontberingen eenheid met God probeert te bereiken
 
 
-
-
 [18] Virata: het grote kosmische lichaam; manifestatie van God
-
 

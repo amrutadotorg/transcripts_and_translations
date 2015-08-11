@@ -1,7 +1,6 @@
 Pudża Sahasrara
 09.05.2004, Cabella, Włochy
 
-
 Dzisiaj jest bardzo ważny dzień w życiu Sahadża joginów. To jest dzień, w którym została otwarta Sahasrara. To było naprawdę bardzo charyzmatyczne wydarzenie. Nigdy się nie spodziewałam, że jeszcze za Mojego życia będę w stanie tego dokonać, ale tak się stało i tak wielu z was ma otwartą Sahasrarę. Bez tego moglibyście się nigdy nie dowiedzieć, co jest prawdą. Byliście wszyscy zagubieni, tak jak cała reszta. Przede wszystkim, tylko poprzez Sahasrarę możemy postrzegać, rozumieć i poznawać rzeczywistość. Doszliście do wiedzy o tym, czym jest rzeczywistość i teraz cieszycie się stanem, w którym wiecie, czym ta rzeczywistość jest. 
 
 To wielkie błogosławieństwo, że Sahasrara została otwarta i wszyscy dostaliście realizację. Bez tego wszystkie wykłady są tylko wykładami - nie mają znaczenia, są niezrozumiałe. I dlatego najpierw dążyłam do otwarcia Sahasrary. To się wypracowało, to się bardzo dobrze udało i wszyscy macie otwartą Sahasrarę. To nadzwyczajne osiągnięcie. Nikt by nie uwierzył, że tylu z was ma otwartą Sahasrarę, ale Ja wyraźnie widzę światło nad waszymi głowami. 

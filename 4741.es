@@ -1,6 +1,5 @@
 Seminario internacional: "Una nueva era, sacrificio, libertad, ascenso". Bordi, India. 6 de febrero de 1985.
 
-
 Me siento enormemente gozosa de veros a todos aquí. No sé qué decir. Las palabras se quedan cortas, pierden su significado. Tantos de vosotros aspirando a ascender a ese estado en el que tendréis completo gozo, dicha y paz. Esto es lo que yo podría daros, y una madre solo se siente feliz cuando da a sus hijos todo lo que ella tiene. Toda su infelicidad e intranquilidad son solo para conseguir esta meta: otorgar todo lo que ella tiene. No sé cómo agradeceros el que hayáis pasado por todo esto, para obtener este tesoro que está en vuestro interior.
 
 "Sahaja" fue la única palabra en la que pude pensar, cuando comencé a manifestar la apertura del Sahasrara. Esto lo entendéis todos muy fácilmente. Pero también os habéis dado cuenta de que hoy día este es un estilo de yoga diferente donde, primero se os concede la iluminación y después se os permite cuidar de vosotros mismos. Nunca anteriormente fue de este modo, es solamente una iniciativa de vuestra Madre y ha funcionado.

@@ -1,6 +1,5 @@
 Shri Paramchaitanya Puja. Taufkirchen, Munich, Alemania. 19 de julio de 1989.
 
-
 Me preguntaron, ¿qué puja vamos a tener hoy? Yo lo mantuve en secreto. Hoy debemos adorar al Paramchaitanya, al Poder Omnipresente del Amor de Dios. Nosotros somos conscientes de que el Paramchaitanya lo hace todo. Al menos sabemos mentalmente que todo funciona por la gracia del Paramchaitanya, que es el Poder de la Adi Shakti, pero aún no está completamente en nuestro corazón ni en nuestra atención.
 
 Podemos considerar al Paramchaitanya como un océano, un océano que contiene Todo en su interior. Todo, todo el trabajo, todo está dentro de sus propios límites. Por tanto no puede ser comparado con algo limitado. No podéis compararlo. Si os fijáis en el Sol, veis que del Sol tienen que salir los rayos para trabajar. Si veis a alguien, por ejemplo, una persona que tiene alguna autoridad, esta tiene que afirmar su poder exteriormente. Así pues, desde su interior no funciona. Por ejemplo, en el interior de una semilla, el árbol crece y aparecen las frutas y después son vendidas y la gente las come, y todo está en el interior de dicha semilla; algo así es el Paramchaitanya.

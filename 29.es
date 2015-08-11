@@ -1,6 +1,5 @@
 Diwali Puja. Lago Piru, Los Ángeles, Estados Unidos. 18 de noviembre de 2001.
 
-
 Hoy es un día extremadamente importante, en el que el mal ha sido derrotado. (Aplausos)
 
 El mal extiende su poder por todas partes debido solo a dos razones. Una es que no tenéis el conocimiento, que todavía estáis ciegos y seguís cosas que no son correctas pero que consideráis poderosas. Esta ilusión no solo origina problemas sino también la destrucción total.

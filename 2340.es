@@ -1,6 +1,5 @@
 Shri Krishna Puja. Canajoharie, Estados Unidos. 29 de julio de 2001.
 
-
 Hoy nos hemos reunido aquí para adorar a Shri Krishna, que fue el Virata, y que luchó contra todas las formas del mal sin entrar en el campo de batalla.
 
 La vida de Shri Krishna, en sí misma, constituye algo muy hermoso, creativo y amoroso. Pero no es fácil comprenderle. Por ejemplo, en Kurukshetra, donde sucedía la guerra, Arjuna se deprimió y dijo: "¿Por qué tenemos que luchar contra nuestros semejantes, contra nuestros parientes cercanos, contra nuestros amigos y nuestros gurús? ¿Acaso es esto religión? ¿Es esto dharma?"

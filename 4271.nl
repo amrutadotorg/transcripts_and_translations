@@ -135,84 +135,50 @@ Om te beginnen zullen we eerst de Devi vereren, en daarna de Shiva.
 
 
 
-
-
-
 [1] Shiva Tattwa: de essentie, het principe van Shri Shiva
-
-
 
 
 [2] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [3] Vishnu Tattwa: de essentie, het principe van Shri Vishnu
-
-
 
 
 [4] Brahmadeva: Goddelijk aspect dat in de Swadisthan chakra verblijft; godheid die deel uitmaakt van de drie-eenheid die het universum geschapen heeft. Incarneerde slechts eenmaal in menselijke vorm, als Hasrat Ali, schoonzoon van de profeet Mohammed.
 
 
-
-
 [5] rakshasa:  demon, incarnatie of belichaming van negatieve of duivelse krachten
-
-
 
 
 [6] satchitananda: bewustzijn, gelukzaligheid
 
 
-
-
 [7] tapas, tapassya: boetedoening; beproevingen die men moet doorstaan om spiritueel te groeien, ascetisme
-
-
 
 
 [8] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [9] Sai Nath van Shirdi: (ᶧ1918) Soefi heilige die leefde in Shirdi, Maharashtra. Een van de 10 oorspronkelijke meesters, ook gekend als Sai Baba van Shirdi.
-
-
 
 
 [10] Virata: het grote kosmische lichaam; manifestatie van God (in ons brein)
 
 
-
-
 [11] anna, ana: 1/16de van een roepie; oude munteenheid in India
-
-
 
 
 [12] dharmisch: volgens de gedragscode van het dharma; rechtschapen
 
 
-
-
 [13] punya's: de vruchten van goede daden in ons leven, die bijdragen aan ons karma ( = universele principe van actie en reactie; “wat men zaait, zal men oogsten”)
-
-
 
 
 [14] papa's: de gevolgen van slechte daden of zonden, die bijdragen aan ons karma
 
 
-
-
 [15] akarma: zonder (het gevoel) iets te doen
 
 
-
-
 [16] Mahamaya: grote (opperste) illusie
-
 

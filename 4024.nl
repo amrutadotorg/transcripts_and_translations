@@ -6,18 +6,12 @@ Shri Vishnumaya Puja
 
 “Voel je niet schuldig”
 
-&nbsp;
-
 Everbeek, België
 
 4 juli 1992
 
-&nbsp;
-
 Engelse transcriptie: IBP reviewed
 Nederlands: eindversie 21/09/2012
-
-&nbsp;
 
 Vandaag doet zich de unieke gelegenheid voor om een Vishnumaya Puja te houden, want zij heeft dit huis bezocht. We moeten haar vereren. Maar eerst moeten we weten wie Vishnumaya is. Het is heel belangrijk dit te weten, want in de Devi Mahatmyam wordt zij enkel beschreven als de incarnatie van de Godin.Men noemt haar Vishnumaya. Maar laten we eens kijken wie ze eigenlijk is, deze Vishnumaya.
 
@@ -173,44 +167,26 @@ Moge God jullie zegenen!
 
 
 
-
-
-
 [1] Rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
-
-
 
 
 [2] Pandava’s: de vijf broers die in het Indiase epos van de Mahabharata het juiste gedrag (dharma) en het goede vertegenwoordigen; ze symboliseren ook de vijf elementen waaruit het materiële universum is opgebouwd
 
 
-
-
 [3] Mahabharata: zeer groot, oud episch gedicht, waarvan de ‘gita’ of ‘Bhagavad gita’ een belangrijk onderdeel is. De gita is een dialoog tussen Shri Krishna en prins Arjuna (vòòr de grote veldslag van Kurukshetra in India) over het vinden van God en de Spirit (Atma, eeuwige ziel) én daarbij het juiste handelen.
-
-
 
 
 [4] Kaurava's: de vijf broers die in het Indiase epos van de Mahabharata het juiste het adharma en het kwade vertegenwoordigen.
 
 
-
-
 [5] Adi Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, scheppende kracht van het universum, die belichaamd wordt door Shri Mataji; primordiale (oorspronkelijke) kracht
-
-
 
 
 [6] namaste: eerbiedige begroeting, waarbij men beide handen ter hoogte van de borst of het hoofd tegen elkaar vouwt en het hoofd buigt; het betekent: ‘Ik groet de Spirit in jou’.
 
 
-
-
 [7] bandhan: bescherming
 
 
-
-
 [8] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
 

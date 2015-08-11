@@ -1,6 +1,5 @@
 Mahashivaratri Puja. Puna, India. 15 de febrero de 2004.
 
-
 [Charla en hindi]
 
 Hoy nos hemos reunido aquí para adorar al Guru. Al Guru se le considera la Deidad más elevada. Pero, ¿quién es el Guru en realidad? ¿Cuál es el Poder que fluye de Él con plenitud? El Principio del Guru es Shiva. Debemos considerar que el Poder que está en la forma de Shiva es el Poder del Guru; porque, cuando comienza a fluir en vuestro interior, vosotros mismos os convertís en gurus. Pero la función de este poder es vuestro bienestar (Kalyana). Aquél que recibe este poder debe entender que ha sido bendecido. Es difícil explicar con palabras lo que significa "Kalyana". "Kalyana" quiere decir éxito en todos los sentidos, ser plenamente nutridos y glorificados.

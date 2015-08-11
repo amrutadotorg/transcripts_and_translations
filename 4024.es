@@ -1,6 +1,5 @@
 Shri Vishnumaya Puja. Everbeek Ashram, Bélgica. 4 de julio de 1992.
 
-
 Hoy es un día muy apropiado para hacer el Puja a Vishnumaya porque Ella ha entrado en esta casa [Hubo una tormenta y entró un relámpago en la casa] y tenemos que adorarla.
 
 En primer lugar tenemos que saber quién es Vishnumaya. Es muy importante saberlo; en el Devi Mahatmyam se la describe únicamente como la encarnación de la Diosa "Vishnumayati Samstita". Se le llama Vishnumaya, pero veamos quién es realmente Vishnumaya.

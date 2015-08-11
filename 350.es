@@ -1,6 +1,5 @@
 Sahasrara Puja. Cabella Ligure, Italia. 5 de mayo de 2002.
 
-
 Hoy es un gran día, en el que celebramos el Puja del Sahasrara. El hecho de la apertura de vuestro Sahasrara es algo muy especial. Ha habido muy poca gente en el mundo que tuviera el Sahasrara abierto: algunos sufis, algunos santos y algunas personas en China. Pero fueron muy pocos. Por eso la gente nunca entendió lo que decían o escribían. De hecho los torturaron, los crucificaron, les hicieron cosas horribles, porque no se soportaba a alguien que tuviera la Realización.
 
 Por eso hoy es un gran día, porque se celebra que el Sahasrara fue abierto a nivel colectivo. Todos vosotros lo tenéis y en todo el mundo también hay muchas personas con el Sahasrara abierto. Por supuesto, todavía tiene que haber más, para que puedan entender la importancia de este gran acontecimiento colectivo que es la apertura del Sahasrara. Algunos han crecido mucho después de obtener la Realización. Han entendido Sahaja Yoga muy bien, han desarrollado mucha profundidad y perciben realmente esa gran consciencia de ser Uno con el Divino.

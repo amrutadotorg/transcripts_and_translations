@@ -1,6 +1,5 @@
 Puja de Pascua. Roma Ashram, Italia. 19 de abril de 1987.
 
-
 ¡Feliz Pascua a todos vosotros! Hoy es un gran día para venir a Roma a celebrar la Resurrección de Cristo. Ahora nosotros tenemos que lograr la resurrección de la cristiandad, que se está moviendo justo en la dirección opuesta a la resurrección de Cristo. Como sabéis, Cristo era solo chaitanya y encarnó en un cuerpo de chaitanya. Todo su cuerpo era chaitanya. Y resucitó para mostrar al mundo que vosotros también podéis resucitar, si podéis llenar vuestro cuerpo de chaitanya.
 
 Hay una lucha entre la materia y el Espíritu. Según vemos, en la vida humana, la materia siempre intenta dominar y sustituir al Espíritu. Por esta razón fracasamos en nuestra resurrección. Fracasamos en nuestra resurrección porque le cedemos el paso a la materia. Nosotros venimos de la materia y es muy fácil volver a ella. Todos los países cristianos han seguido un desarrollo material identificándose con la materia en vez de sublimarla.

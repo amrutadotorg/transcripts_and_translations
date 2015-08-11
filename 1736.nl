@@ -1,7 +1,5 @@
 Shri Mataji Nirmala Devi
 
-&nbsp;
-
 70ste Verjaardagspuja
 
 ‘Het begin van Satya Yuga’
@@ -12,12 +10,8 @@ New Delhi, India
 
 21 maart 1993
 
-&nbsp;
-
 Engelse transcriptie: IBP verified
 Nederlands: verified/gecontroleerd 08/07/2013
-
-&nbsp;
 
 Het is zelfs voor mij moeilijk om te spreken, om zoveel Sahaja yogi's te zien die hier met stralende gezichten zitten van over de hele wereld, alsof mijn visie vandaag vorm heeft genomen. Ik zie in jullie de redders van morgen die deze wereld gaan redden van alle onheil van de Kali Yuga[1] die ons omgeeft. Het komt van alle kanten, terwijl jullie werkelijk jullie tweede geboorte genomen hebben uit deze vijver van de Kali Yuga en werkelijk mooie lotussen zijn geworden met verschillende kleuren, schakeringen, geuren en schoonheid. Eerder dan dat jullie mijn verjaardag vieren, zou ik beter jullie verjaardag vieren.
 
@@ -54,8 +48,6 @@ Ze voelden allemaal de koele bries en de hele atmosfeer veranderde. Ze begonnen 
 Ik zei: "Neen." "We hebben het nooit bijgehouden." Ze kunnen het dus niet begrijpen. Ik zei: "We hebben geen kantoor, geen lijst. Ik heb geen secretaris. Ik kan niet typen. Ik weet zelfs niet hoe een cheque uit te schrijven."
 
 Ze kunnen het niet begrijpen hoe iemand zoals ik in deze moderne tijden kan bestaan. Maar alles gebeurt op één of andere manier. Ondanks mijn moderne onwetendheid, wordt alles absoluut gedaan op de meest perfecte manier zoals met een afstandsbediening. Zo gaat het helemaal, ik heb er nooit iets over gezegd, echt niets. Ik speelde geen enkel idee door over hoe het zou moeten. Ik zei hen zelfs niet hoeveel mensen we verwachtten. Maar kijk hoe alles spontaan uitgewerkt is omdat jullie allen engagement hebben en dat engagement geeft jullie al deze vaardigheden van organisatie.
-
-&nbsp;
 
 Jullie hebben gezien dat zoveel zaken georganiseerd werden omdat ook deze paramchaitanya[12] in de Krita Yuga[13] is binnengetreden waar ze het uitwerkt. Ze ageert. En deze activiteit is ook absoluut ondersteunend voor jullie. De politie vertelde ons bijvoorbeeld dat er hier moslims wonen en dat ze voor jullie een gevaar zouden kunnen zijn. Ze zouden jullie kwaad kunnen doen. Ik zei: "Welke moslims zijn het?"
 
@@ -125,109 +117,65 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
-
-
 
 
 [2] Wali: moslimheilige; heilig persoon
 
 
-
-
 [3] devata: godheid; aspect van het Goddelijke
-
-
 
 
 [4] deva: goddelijk of hemels wezen; godheid
 
 
-
-
 [5] Kabir(a): gerealiseerde heilige en dichter die leefde in Bihar, India, in de 16de eeuw. Hij gebruikte veelvuldig sahaj termen in zijn liederen en gedichten.
-
-
 
 
 [6] Brahmaan: betekent letterlijk ‘diegene die tweemaal geboren is en de brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het vroegere kastensysteem in India.
 
 
-
-
 [7] Saundarya Lahari: lofzang geschreven door Adi Shankaracharya, een Indiase heilige, filosoof en dichter (788-820); elk couplet is een mantra ter ere van de Moeder.
-
-
 
 
 [8] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [9] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
-
 
 
 [10]yuga: cyclisch weerkerend tijdperk van duizend jaar; de vier tijdperken waarin de evolutie van het leven verdeeld is volgens de hindoe filosofie.
 
 
-
-
 [11]sahaj dharma: dharma dat zich spontaan begint te manifesteren na de zelfrealisatie; cultuur van Sahaja Yoga
-
-
 
 
 [12]Paramchaitanya: de allesdoordringende kracht van God
 
 
-
-
 [13]Krita Yuga: overgangstijdperk tussen Kali Yuga en Satya Yuga; Aquariustijdperk of ‘Blossom time’
-
-
 
 
 [14] soefi: aanhanger van het soefisme, een mystieke traditie die zijn oorsprong heeft in de vroege islam
 
 
-
-
 [15] chador: Perzisch gewaad dat het gehele lichaam behalve het gezicht bedekt; wordt gedragen door islamitische vrouwen
-
-
 
 
 [16] Ruh: ‘Heilige Adem’ uit de Koran; stemt overeen met de ‘Heilige Geest’ of ‘Sanctus Spiritus’ uit de Bijbel
 
 
-
-
 [17] Qawwali: devotionele muziek van de soefi’s; muzikale traditie die meer dan 700 jaar oud is
-
-
 
 
 [18] lakh japas: het herhaaldelijk reciteren van mantra’s of de namen van God; 1 lakh is gelijk aan 100000 (honderdduizend)
 
 
-
-
 [19] Satya Yuga: ‘Golden Age’ of ‘Gouden Tijdperk’. De laatste van een cyclus van yuga’s of tijdperken van elk duizend jaar waarin de mensheid zijn volledige glorie bereikt; tevens het begin van een nieuwe cyclus.
-
-
 
 
 [20] satya: waarheid
 
 
-
-
 [21] vijaya: overwinning, zegevieren
-
 

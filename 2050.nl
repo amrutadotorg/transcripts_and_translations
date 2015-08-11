@@ -4,10 +4,9 @@ Publiek programma
 
 Genève, Zwitserland
 11 juni 1985
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 07/10/2010
-&nbsp;
 
 Ik buig voor alle zoekers naar de waarheid. Maar de waarheid heeft twee kanten: de illusie die we zien, kan lijken op de waarheid, en de essentie van de illusie kan er ook uitzien als waarheid. Maar de andere kant is absoluut en moet gevoeld worden, moet ervaren worden op je centraal zenuwstelsel. Het is geen mentale projectie die we ons kunnen voorstellen, en ook geen emotionele voorstelling, maar de waarheid is wat het is, het kan niet veranderd worden. Het kan geen compromis sluiten. We moeten onszelf nederig maken om de waarheid te leren kennen. Nu hebben we in de wetenschap zoveel dingen ontdekt door nederigheid, die we tot dan toe nog niet wisten. Alles wat aan de buitenkant gekend is, zoals de boom, moet wortels hebben, en deze wortels kunnen niet gekend worden door alleen naar de boom te kijken. En als iemand spreekt over de wortels dan worden we door elkaar geschud, omdat we er eerder nog geen kennis over bezaten. We zijn dus geconditioneerd om alleen de boom te zien, en we kunnen ons verstand niet doen inzien dat hij dan ook wortels moet hebben.
 
@@ -193,29 +192,17 @@ Kom nu. Vestig jezelf. Zeg gewoon: "Moeder, kom in mijn hoofd. Meer niet."
 
 
 
-
-
-
 [1] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [2] Veda's: geschriften, ontstaan tussen 1500 en 500 v.Chr., bestaande uit religieuze hymnen over God(en), spirituele filosofie, het universum, de natuur en de juiste levenswijze. 'Veda' betekent kennis.
 
 
-
-
 [3] Purana's: 18 zeer oude, heilige geschriften die verhalen over de geschiedenis van de planeten en de relatie van de mensheid met de verschillende gedaanten van God.
-
-
 
 
 [4] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 
-
-
 [5] Logos: het ‘Woord’ uit het Johannes evangelie; Om, Aum, Amen, de Logos of het Woord hebben dezelfde betekenis.
-
 

@@ -1,6 +1,5 @@
 1er programa público en Praga. República Checa. 17 de agosto de 1991.
 
-
 Me inclino ante todos los buscadores de la verdad.
 
 Desde el mismo comienzo tengo que deciros que la verdad es lo que es, no podemos conceptualizarla ni podemos cambiarla; desafortunadamente, tampoco podemos conocerla con esta consciencia humana. Tenemos que volvernos un ser más sutil para conocer la verdad, es decir, tenemos que convertirnos en el Espíritu. Para eso uno tiene que comprender que es un proceso evolutivo vivo, es un acontecimiento vivo dentro de nosotros el que nos convierte en el Espíritu. Por lo cual no podéis pagar, ni poner ningún esfuerzo, simplemente funciona porque sois buscadores de la verdad. Cualquier cosa que os diga, escuchadla con la mente abierta de un científico. Si se prueba que es verdad lo que digo, debéis aceptarlo como gente honesta, porque es por vuestro bien y el bien del mundo entero.

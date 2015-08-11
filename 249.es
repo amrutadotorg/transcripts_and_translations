@@ -1,6 +1,5 @@
 Puja de Pascua. Eastbourne, Reino Unido. 22 de abril de 1990.
 
-
 Hoy estamos aquí para celebrar la Resurrección de Cristo y también para agradecerle que nos diera un modelo ideal de vida de un santo, que debe trabajar por el bien del mundo entero.
 
 Hablamos de Cristo, cantamos a Shri Ganesha, decimos que creemos en Él. Especialmente los sahaja yoguis sienten que Él es su hermano mayor. Y encuentro una tremenda entrega hacia Cristo especialmente entre los sahaja yoguis occidentales, quizá porque nacieron en la religión cristiana, puede ser, o tal vez porque vieron que la vida de Cristo fue muy especial. Pero Él tiene que ser mucho más que eso para Sahaja Yoga y para vosotros los sahaja yoguis, también.

@@ -1,6 +1,5 @@
 Charla antes del Mahashivaratri Puja. Pandharpur, India. 29 de febrero de 1984.
 
-
 Como debéis saber, estos son tiempos modernos y los tiempos modernos tienen muchas complicaciones. En estos tiempos modernos un lugar que se supone que es sagrado se vuelve el lugar más profano. En estos momentos todo está al revés. Y ahora que intentamos establecer algo muy fundamental es como una semilla que ha de brotar de las piedras. Tiene que luchar con muchas cosas por lo que tenemos que mantener nuestros cerebros intactos, ser sensatos con todo, tratar de ver lo que podemos lograr a través de nuestra paciencia y de nuestra comprensión. Esto es muy importante.
 
 Creo que hoy es un gran día para todos nosotros porque este es el lugar del Virata, de Shri Vitthala. Es el lugar donde Shri Vitthala se apareció a un devoto y cuando este le pidió: "¡Ponte de pie sobre un ladrillo!", Él se puso así. Se dice que Él se quedó allí esperando. Alguna gente dice que la estatua que vemos surgió de la Madre Tierra, de esta tierra. Y es la que llevó Pundalikaksh diciendo: "Estos son los que han venido a verme a mí y a mis padres. Yo estaba ocupado con ellos, de modo que ellos también están sobre el mismo ladrillo que yo tiré".

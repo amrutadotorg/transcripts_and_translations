@@ -1,6 +1,5 @@
 Diwali Puja. Montecatini Terme, Italia. 29 de octubre de 1989.
 
-
 Ayer lo pasamos muy buen juntos y realmente disfrutamos el Diwali. Creo que nunca había visto un océano de gozo que se alzaba en tal tempestad. Ayer alcanzamos el objetivo del Diwali Puja: sentir el gozo del Amor de Dios. La palabra Diwali viene de "Dipawali", que significa "filas de luces". Esta fecha se celebraba, en primer lugar, porque hace miles de años Shri Rama fue coronado en este día. Eso quiere decir que la benevolencia de los seres humanos fue coronada y aceptada. Y en la vida de Shri Rama veis el ideal de la personalidad de un rey, como el rey benévolo descrito por Sócrates.
 
 El que un rey bueno, benevolente, fuese coronado, fue motivo de mucho gozo. Eso quiere decir que debemos tener un rey que sea benévolo, y solo es posible si las personas que eligen al rey no tienen ninguna otra consideración que la de la benevolencia, de todo el mundo. Así que, uno tiene que llegar a la conclusión de que tienen que ser sahaja yoguis, porque otros pensarían: "¿Cuánto dinero sacaremos de este poder que tendremos?" "¿O cuánto poder podríamos tener?" "¿O cuántos países podría conquistar?, o cualquier otra dominación".

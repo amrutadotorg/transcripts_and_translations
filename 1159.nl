@@ -4,10 +4,9 @@ Shri Mahavira Jayanti Puja
 
 Gidgegannup, Perth, Australië
 28 maart 1991
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 14/09/2012
-&nbsp;
 
 Vandaag zullen we de verjaardag van Mahavira vieren. Mahavira is de incarnatie van Bhairavanath, die jullie ook wel Sint Michaël noemen. Nu zijn er twee heiligen, zoals jullie weten: de ene is Gabriël of Hanumana en de andere is Sint Michaël. De één bevindt zich op de Pingala nadi[1] en de andere, Sint Michaël, op de Ida nadi[2].
 
@@ -16,8 +15,6 @@ Dus, Mahavira moest een hele zoektocht ondergaan. Natuurlijk was hij een engel, 
 De zeven nadi's die zich aan de linkerkant bevinden verwijzen naar ons verleden, zoals je weet. Zo wordt bijvoorbeeld elk moment verleden tijd. Elk heden wordt een verleden. En verder hebben we het verleden van dit leven, maar we hebben ook nog het verleden van onze vorige levens. Ons volledige verleden ligt in ons opgeslagen, vanaf het begin van onze schepping. Dus alle psychosomatische aandoeningen worden, zoals je weet, enkel en alleen veroorzaakt door entiteiten die je vanuit de linkerkant bereiken. Als iemand bijvoorbeeld last heeft van leverproblemen dan kan hij plotseling aangevallen worden vanuit de linkerkant, vooral vanuit de Muladhara, of van gelijk welke plaats aan de linkerkant, zoals de linker Nabhi. De Muladhara is namelijk de enige chakra die in verbinding staat met de linkerkant, de Ida nadi, terwijl de rechterkant, de Pingala nadi, met de Swadisthana in verbinding staat. Dus de problemen afkomstig van de Muladhara vallen werkelijk buiten het menselijke bereik, en als er een aanval komt op gelijk welke van deze chakra's aan de linkerkant, dan ontstaan er psychosomatische aandoeningen in mensen.
 
 Zoals ik jullie al vaak verteld heb, is dit een centrum, en dit is een ander centrum, links en rechts, het ene bevindt zich boven het andere. En als je de rechterkant teveel gebruikt dan gaat het tot een bepaald punt waarop er plotseling iets in de linkerkant reageert. Alle soorten aandoeningen, zelfs diabetes, hebben dus in feite een psychosomatische achtergrond.
-
-&nbsp;
 
 Neem nu iemand die heel hard werkt, teveel denkt, heel erg rechts is, en plotseling gebeurt er iets, het zou kunnen dat hij diabetes erft omwille van (zaken uit) het verleden, het brengt iets op gang en je krijgt deze psychosomatische aandoening. En zo'n psychosomatisch probleem kan alleen genezen worden als je weet wat het precieze probleem is aan de linkerkant.
 
@@ -159,11 +156,7 @@ Kijk hoe kalm het nu is. Vlak voor de Aarti begon het te regenen, en kijk nu een
 
 Neem jij een foto van mijn voeten? Laat dit maar. . .
 
-&nbsp;
-
 Deel 2
-
-&nbsp;
 
 We kunnen er ook een nemen zonder. . . een van mijn lichaam en mijn gezicht, zonder de. . . Kijk, jullie hebben er niet veel, jullie hebben maar weinig foto's zonder dit.
 
@@ -182,8 +175,6 @@ Einsteins theorie. . . Een boemerang. Het is volgens de theorie van Einstein, zi
 Een yogi vraagt hoe je kunt genezen van bezetenheid. Het is een bepaalde vorm van bezetenheid. Je kunt het best licht gebruiken. Licht zal veel helpen. Ben je ooit naar een guru geweest of zo? Wie zei dat? Nee, nee, het kan met behulp van Sahaja Yoga worden genezen; alles. Het is niet van blijvende aard in Sahaja Yoga. Alle vervloekingen kunnen ongedaan gemaakt worden, zoals van familie.
 
 Het is voor een tienermeisje, zie je dat? Het is zo mooi! Geef het maar aan de kinderen daar. Neem maar alle chana. Zij zijn nu de gerealiseerde zielen. Jullie wilden dat ik over kinderen zou spreken, is het niet? Zal ik er een paar woorden over zeggen? Over verschillende onderwerpen spreken - dat is goed!
-
-&nbsp;
 
 We hebben het dus nu over Bhairava gehad en we hebben gezien hoe de negativiteit in ons werkten hoe we geblokkeerd raken. Dus ik zou zeggen dat we altijd in ons achterhoofd moeten houden dat we een ziel hebben en dat deze ziel aangevallen kan worden. Hij is al verschillende keren aangevallen geweest, door alle dingen die we in ons moderne leven meemaken; hij wordt voortdurend aangevallen. Maar nu moeten we hem reinigen en zorgen dat hij zuiver wordt. En als je echt van Sahaja Yoga wilt genieten en jezelf wilt uitzuiveren, dan moet je begrijpen dat er daarvoor grondige introspectie vereist is - een heel grondige introspectie.
 
@@ -313,89 +304,53 @@ Zijn dat cementblokken? Wij hebben ook zoiets, maar in India zijn ze niet sterk.
 
 
 
-
-
-
 [1] Pingala nadi: rechter energiekanaal; correspondeert met het (rechter) sympathische zenuwstelsel. Kanaal van actie en toekomstgericht denken.
-
-
 
 
 [2] Ida nadi: linker energiekanaal; correspondeert met het (linker) sympathische zenuwstelsel. Kanaal van de emoties en het verleden.
 
 
-
-
 [3] nadi: energiekanalen in ons subtiel lichaam. De belangrijkste zijn het linker en rechter energiekanaal, corresponderend met het sympathische zenuwstelsel, en het middenkanaal corresponderend met het parasympathische zenuwstelsel.
-
-
 
 
 [4] bandhan: bescherming
 
 
-
-
 [5] tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
-
-
 
 
 [6] bhoots: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 
-
-
 [7] rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
-
-
 
 
 [8] sushupti: staat van diepe slaap
 
 
-
-
 [9]  brahmaan: betekent letterlijk ‘diegene die tweemaal geboren is en de brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het vroegere kastensysteem in India.
-
-
 
 
 [10] modus operandi: manier van werken
 
 
-
-
 [11] Angina pectoris: een drukkend, zwaar gevoel en/of pijn midden op de borst (angineuze pijn) dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen.
-
-
 
 
 [12] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
 
 
-
-
 [13] shirshasana: yogahouding of asana waarbij het lichaam ondersteboven staat, steunend op de kruin en de voorarmen
-
-
 
 
 [14] pranayama: yogaoefening waarmee de ademhaling wordt beheerst; controle over de levensenergie
 
 
-
-
 [15] dhyana: spirituele evolutie
-
-
 
 
 [16] prana: vitale levensenergie, adem – kracht die verbonden is met het rechterkanaal, de ‘Prana Shakti’
 
 
-
-
 [17] moksha: bevrijding, gelukzaligheid
-
 

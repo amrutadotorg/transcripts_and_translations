@@ -4,10 +4,9 @@ Shri Mahalakshmi Puja
 
 Sangli, India
 6 januari 1986
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 25/10/2011
-&nbsp;
 
 Ik hoop dat je allemaal genoten hebt van je verblijf in Ganapatipule. Het probleem was dat we de kookplaats niet dichter bij jullie verblijfplaats konden voorzien, zodat jullie veel heen en weer moesten lopen. Maar dat wandelen was volgens mij wel goed voor jullie en het zal jullie wel geholpen hebben. Het is goed tegen diarree en andere problemen die jullie hebben.
 
@@ -125,71 +124,41 @@ Moge God jullie allen zegenen. Moge God jullie allen zegenen. Moge God jullie al
 
 
 
-
-
-
 [1]  Devi bhakta: toegewijde volgeling van de Devi (Godin)
-
-
 
 
 [2]  avaduta's: krachtige, hooggeëvolueerde gerealiseerde ziel die een meester is
 
 
-
-
 [3]  oti: offerande van fruit, noten, rijst, een sari of doek, aangeboden tijdens een puja met de bedoeling zegeningen te vragen voor familiaal en sociaal welzijn en voorspoed
-
-
 
 
 [4]  Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [5]  Sushumna: middenkanaal van het subtiele systeem, kanaal van evolutie, kanaal waarlangs de Kundalini opstijgt, ook Sushumna nadi
 
 
-
-
 [6] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
-
-&nbsp;
-
-
 
 
 [7]  kamal: ‘als een lotusbloem’, een van de namen van Shri Brahma(deva)
 
 
-
-
 [8]  vishwa: wereld; ‘vishu’ in het Marathi.
-
-
 
 
 [9]  Viratangana: de kracht van de Virata (het Kosmische Lichaam) in de hersenen
 
 
-
-
 [10] Mahalakshmi Tattwa : Mahalakshmi principe
-
-
 
 
 [11] Mahamaya: opperste illusie
 
 
-
-
 [12] Virata: het grote Kosmische Lichaam
 
 
-
-
 [13] maya: illusie
-
 

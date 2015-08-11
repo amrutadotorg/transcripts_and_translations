@@ -4,10 +4,9 @@ Shri Devi Birthday Puja
  
 Melbourne, Australië
 17 maart 1985
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 26/04/2012
-&nbsp;
 
 Ik ben heel blij om jullie allemaal mijn verjaardag te zien vieren vandaag, terwijl we op dezelfde dag ook het nationale programma hebben. Dit is een goede combinatie, in de maand maart. Deze periode wordt in India als de lente beschouwd - Madhumas, dat zingen jullie, Madhumas. En zoals je weet valt op de eenentwintigste maart de equinox[1], dus dit betekent in zekere zin een evenwicht, en daarnaast vormt het ook het middelpunt van alle tekens die in de horoscoop voorkomen. Ik moest zoveel centra openen, en ik werd ook geboren op de Kreeftskeerkring, terwijl jullie je op de Steenbokskeerkring bevinden, en Ayers Rock ligt op de Steenbokskeerkring, precies in het midden. Er moesten zoveel verschillende combinaties worden gemaakt.
 
@@ -149,66 +148,38 @@ Moge God jullie zegenen!
 
 
 
-
-
-
 [1] equinox: het tijdstip waarop de zon loodrecht boven de evenaar staat; de lengte van dag en nacht zijn overal op aarde ruwweg gelijk en de zon komt precies in het oosten op.
 
 
-
-
 [2] maryada's: begrenzing van het juiste (rechtschapen) gedrag
-
-&nbsp;
-
-
 
 
 [3] tamasika: conditie, type mens dat neigt naar de negatieve aspecten van de linkerkant
 
 
-
-
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
-
 
 
 [5] shakti: primordiale (oorspronkelijke) kracht, ondersteunende, vrouwelijke, moederlijke oerkracht
 
 
-
-
 [6] dharmisch: volgens de gedragscode van het dharma; rechtschapen
-
-
 
 
 [7] adharmisch: niet dharmisch; dat wat tegen het dharma of de wetten van rechtschapenheid ingaat
 
 
-
-
 [8] mahayogi: grote yogi, die het hoogste bereikt heeft
-
-
 
 
 [9] mahayoga: opperste vorm van yoga
 
 
-
-
 [10] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [11] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 
-
-
 [12] Guru Tattwa: het guru principe, de essentie van het meesterschap
-
 

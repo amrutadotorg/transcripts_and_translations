@@ -1,6 +1,5 @@
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 1993.
 
-
 Hoy vamos a celebrar el nacimiento de Cristo. Esto lo hacemos justamente en un tiempo muy importante, porque hay algunas personas "anticristo" que precisamente se hacen cargo de la religión cristiana, y hablan en contra del nacimiento de Cristo. No tienen autoridad. No son almas realizadas, no saben nada del Divino, nada, y dicen que todo es falso; que María no era una Virgen, y que Cristo no nació así (Inmaculada Concepción). ¿Quién se lo ha dicho a ellos? ¿Acaso vino Gabriel a decirles algo? ¿Qué derecho tienen a decir estas cosas?
 
 Debido a que son personas "anticristo" se han hecho cargo de la religión cristiana. Incluso el papa es así. Pero en Satya Yuga, todos ellos serán expuestos. Alguno de vosotros podría escribir a este hombre y decirle: "¿Qué derecho tienes a decir eso? ¿Has sentido alguna vez el Poder Omnipresente del Amor de Dios? ¿Tienes alguna Divinidad dentro de ti para desafiar a Cristo de esa manera? Debe haber ahora por ahí alguna encarnación de Pablo. No pueden entender lo que el Divino puede hacer. No tienen ni idea de lo milagroso que es.

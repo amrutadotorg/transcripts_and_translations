@@ -70,7 +70,7 @@ Dus in het stadium van de groene kleur zijn we nog niet tot mensen geëvolueerd,
 Groen staat dus eigenlijk symbool voor een gedeelte van Shri Ganesha, op een manier is het een deel van Shri Ganesha, omdat je tot dat punt niet denkt. Je bevindt je nog op het punt waar je dicht bij Moeder Aarde bent, zie je. Moeder Aarde geeft je die kleur, begrijp je. Je zonnekant is nog niet ontstaan als de groene kleur er nog is, want Moeder Aarde geeft deze groene kleur. Natuurlijk maakt de zon het groen, dat is een ander punt, maar jij doet het zelf niet. Wanneer je iets op eigen kracht begint te doen in het menselijke stadium, wordt dit allemaal geel. De Swadisthan heeft dus twee kanten: een lichamelijke en een mentale kant. De lichamelijke kant is de groene kant, en de mentale kant is de gele kant.
 Vandaag zijn we dus hier om Shri Ganesha te vereren. Nu zou ik graag hebben dat jullie wat groen gras uit de velden meebrengen, wat zacht gras, want dat is een belangrijk detail.
 En je zou nu je ogen op het groen moeten richten om je Ganesha te verbeteren. En als het heel warm is, kan je ook met blote voeten op het groen lopen, ‘s ochtends, als er dauw op ligt. Mensen die heel overactief zijn zouden zich aan een vegetarisch dieet moeten houden, dit zal hen helpen meer in evenwicht te komen. Niet op een fanatieke manier, maar eet wat meer groenten, en je kunt ook heel kleine dieren eten, dat is in orde.
-&nbsp;
+
 [Deel 2]
 Maar vandaag heb ik nog niet gesproken over zijn vahana[8] en dergelijke, omdat ik daar in andere lezingen al over gesproken heb. Over zijn vahana - zijn vervoermiddel - heb ik nog niet gesproken, omdat ik daar al in enkele andere lezingen van mij over hem, over gesproken heb.
 Het is het beste als je dit kunt vinden, dit soort, heel dun, dit soort, dit is een goede. Deze is goed. Je kunt er nu meer van krijgen, gewoon... Hiermee wordt het water op de voeten gesprenkeld.
@@ -141,60 +141,35 @@ Wat is dit? Wat is dat? Maak dit maar open. Nu, dit is... Je moet het aanbrengen
 
 
 
-
-
-
-
 [1] panchamruta of panchamrit: ‘panch’ betekent ‘vijf’, ‘amrut’ betekent ‘nectar’ - ‘nectar van de goden’, bestaande uit 5 elementen (ghee, melk, yoghurt, honing en suiker); wordt gebruikt bij het uitvoeren van puja’s
-
-
 
 
 [2] shripala: kokosnoot
 
 
-
-
 [3] shankar: schelphoorn
-
-
 
 
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 
-
-
 [5] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [6] bhootish: afkomstig van of onder invloed van bhoots
 
 
-
-
 [7] durva: grassoort (Cynodon dactylon) die gebruikt wordt om Shri Ganesha te vereren en te behagen
-
-
 
 
 [8] vahana: voertuig, in het bijzonder het dier waarmee bepaalde godheden zich verplaatsen
 
 
-
-
  [9] Chaturthi: geboortedag van Shri Ganesha; belangrijk Ganesha festival in India.
-
-
 
 
 [10] Chaturdashi: volgens de hindu kalender de 14de dag van de wassende of afnemende fase van de maan. Het is de dag voor nieuwe of volle maan.
 
 
-
-
 [11] pushpam: bloem
-
 

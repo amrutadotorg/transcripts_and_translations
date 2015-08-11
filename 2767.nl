@@ -1,12 +1,8 @@
 Shri Mataji Nirmala Devi
 
-&nbsp;
-
 Shivaratri Puja
 
 ‘Rudra’s en verlangeloosheid’
-
-&nbsp;
 
 Delhi, India
 
@@ -14,8 +10,6 @@ Delhi, India
 
 Engelse transcriptie: IBP verified
 Nederlands: eindversie 27/02/2014
-
-&nbsp;
 
 [eerste deel van de lezing, vertaald uit het Hindi] 
 
@@ -49,8 +43,6 @@ En het meest verrassende is dat wanneer de chaitanya weet dat je niets verlangt,
 
 In het verleden waren er de Nath mensen, nomaden die over de hele wereld reisden en die zoveel mensen onderwezen. Het verbaasde me te zien hoe ver deze mensen waren gekomen. Toen ik naar Columbia ging hoorde ik dat deze mensen tot in Bolivië waren geraakt. Als je naar Bolivië gaat dan zal het je verbazen, want het is zo hoog gelegen! En in die tijd deden ze alles te voet, dus ik kon maar niet begrijpen hoe ze daar ooit waren geraakt. En ze waren ook naar Rusland gegaan, en naar vele andere landen. Hoe ze dit deden, waar ze verbleven en wat ze droegen weet niemand. Ze bevonden zich in de dasha staat, en als je deze staat hebt bereikt dan word je als een soort Superman. Net zoals Sai Nath van Shirdi, die overal verscheen en iedereen hielp. Mensen zeiden dan: “We hebben u daar gezien!” “Ja,” zei hij dan, “dat is mogelijk, waarom niet?” Deze mensen werden zo subtiel omdat dit 'willen' in hen verdwenen was, en zo werden ze de subtiliteit zelve. Maar deze subtiliteit moet bereikt worden door  Shivaji's puja.
 
-&nbsp;
-
 [2de deel van toespraak, in Engels]
 
 Ik vertel hen over Shiva’s verering, over wat er met jullie zou moeten gebeuren. Vandaag zal ik jullie vertellen over wat er binnen in onszelf gebeurt wanneer je je zelfrealisatie krijgt. Er zijn hier elf rudra's[1] – elf rudra’s. We kunnen zeggen dat het deeltjes, ansha’s genoemd, van Shiva’s krachten zijn. Ze proberen allemaal de valse ideeën die we hebben over het leven, weg te nemen of te verwijderen. Wanneer de Kundalini opstijgt, worden ze allemaal verlicht, alle elf. Laten we zeggen dat bijvoorbeeld Boeddha daar een deel van had, Mahavira daar een deel van had. Wat al deze rudra's nu doen, is ervoor zorgen dat we niet ten prooi vallen aan allerlei dingen, zoals het ego dat we hebben. Dus Boeddha zal zorgen voor het ego. Hij zal ervoor zorgen dat je geschokt bent over je ego. Je zult je erover verbazen hoe egoïstisch, beledigend en vernederend je hebt kunnen zijn. Maar wanneer deze rudra niet ontwaakt is, wanneer deze rudra niet verlicht is, wat gebeurt er dan? Je begint jezelf te rechtvaardigen. Je gelooft dat wat je ook doet, juist is, wat je ook gedaan hebt, wat je ook gezegd hebt, wat je ook bereikt hebt, je denkt dat het je recht is, dat je niets verkeerd gedaan hebt. Voor al deze dingen moet de rudra van Boeddha opgewekt worden.
@@ -79,12 +71,7 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] rudra: kracht, deel van de Ekadesha rudra’s, de elf vernietigende krachten van Shri Kalki
-
-
 
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is

@@ -3,7 +3,6 @@
 Shri Surya Puja
 ‘Makar Sankranti’
 
-
 Bombay, India
 10 januari 1988
 
@@ -41,20 +40,11 @@ Moge God jullie allen zegenen.
 
 
 
-
-
-
-
 [1] Sushumna nadi: middenkanaal van het subtiele systeem, kanaal van evolutie, kanaal waarlangs de Kundalini opstijgt.
-
-
 
 
 [2] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (vb. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
 
 
-
-
 [3] adharma: datgene dat tegen het dharma (het rechtschapen gedrag) ingaat
-
 

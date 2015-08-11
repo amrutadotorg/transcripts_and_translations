@@ -9,8 +9,6 @@ Mödling, Oostenrijk
 Engelse transcriptie: IBP verified
 Nederlands: verified/gecontroleerd 26/01/2013
 
-&nbsp;
-
 We zijn vandaag samengekomen om de Kundalini puja te doen. Een lange, heel lange tijd geleden hebben wij hem in India gedaan en het is de eerste maal dat we deze puja hier in Oostenrijk doen. Dit is de puja van de Adi Kundalini die de primordiale (oorspronkelijke) Kundalini is.
 
 In de hand van Athena, die de Primordiale Moeder is, zal je al wel gezien hebben dat er een kracht is: de slang in de linkerhand. De Oorspronkelijke Moeder heeft één van haar krachten, waarvan we kunnen zeggen dat het de Primordiale Kundalini is, die deel uitmaakt van haar. Natuurlijk staat zij daar boven, maar zij wordt in menselijke wezens als de Kundalini weerspiegeld.
@@ -57,28 +55,16 @@ Maar om verder te gaan moet je een volledige vastberadenheid en begrip opbrengen
 
 Moge God jullie zegenen.
 
-&nbsp;
-
-
-
-
 
 
 [1] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
 
 
-
-
 [2] Mahamaya: grote (opperste) illusie
-
-
 
 
 [3] Adi Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, scheppende kracht van het universum, die belichaamd wordt door Shri Mataji; primordiale (oorspronkelijke) kracht
 
 
-
-
 [4] mahayogi: grote yogi, die het hoogste bereikt heeft
-
 

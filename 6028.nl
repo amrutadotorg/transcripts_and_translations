@@ -9,10 +9,8 @@ en van bewustzijn.’
 Urania, Wenen, Oostenrijk
 30 september 1982
 
-
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 11/01/2013
-&nbsp;
 
 Ik buig voor alle zoekers naar de waarheid.
 
@@ -126,63 +124,37 @@ Ah, nu is het beter, goed. Er zijn er veel die het voelen.
 
 Richt nu je beide handen naar mij, en ga na of je de koele bries voelt in je handen. Open je ogen niet. Hou je nek recht. Als je de koele bries voelt, is dat heel goed. Indien dat niet zo is, is er ook geen enkel probleem. Open nu alsjeblieft weer je ogen. Ik zal je tonen hoe je zelf je Kundalini kunt omhoog brengen. En kijk nu gewoon naar mij, zonder te denken. Hou je handen gewoon zo.
 
-&nbsp;
-
-
-
-
 
 
 [1] plexus: zenuwknoop of nodus; vlecht- of netwerk van zenuwen in het centrale zenuwstelsel
 
 
-
-
 [2] amoebe: eenvoudig, ééncellig diertje, een van de eerste levende organismen op aarde
-
-
 
 
 [3] spondylitis: de ziekte van Bechterew, ook wel ‘spondylitis ankylopoëtica’ ('haken vormende ontsteking van de wervelkolom') of ‘ankyloserende spondylitis’ genoemd.
 
 
-
-
 [4] Angina pectoris: drukkend, zwaar of pijnlijk gevoel midden op de borst (angineuze pijn); hartprobleem dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen (vernauwde kransslagader in combinatie met grote lichamelijke inspanning of emoties).
-
-
 
 
 [5] Rahmat: mededogen (in de Koran)
 
 
-
-
 [6] Rahim: God, de belichaming van mededogen (in de Koran)
-
-
 
 
 [7] Ruh: ‘Heilige Adem’ uit de Koran; stemt overeen met de ‘Heilige Geest’ of ‘Sanctus Spiritus’ uit de Bijbel.
 
 
-
-
 [8] tantrisme: yoga-stroming die de Kundalini als een seksuele energie beschouwt; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga.
-
-
 
 
 [9] bhoota vidya, preta vidya: kennis over bhoots en over de doden
 
 
-
-
 [10] vidya: Sanskriet voor ‘kennis’
 
 
-
-
 [11]tantrika: beoefenaar van het tantrisme - beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga.
-
 

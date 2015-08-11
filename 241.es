@@ -1,6 +1,5 @@
 Charla antes del Sahasrara Puja: "Tenéis que estar en Nirvikalpa". Viena, Austria. 4 de mayo de 1985.
 
-
 Es muy gratificante ver que tantos sahaja yoguis han venido para celebrar el día del Sahasrara. Sin abrir el Sahasrara no podríamos haber alcanzado el ascenso en masa. Pero en Occidente el Sahasrara, que es el cerebro, ha entrado en muchas complicaciones y los nervios están muy retorcidos unos sobre otros.
 
 Mantener el Sahasrara abierto debería ser muy fácil si los cerebros occidentales pudierais entender y ser conscientes de vuestra Madre. Al ser vuestra Madre la Deidad del Sahasrara, el único modo de mantener el Sahasrara abierto es la completa entrega. Para ello muchos me preguntan: "¿Cómo podemos hacerlo?" ¡Es una pregunta muy graciosa! Es irrelevante. Si vuestro Sahasrara ha sido abierto por alguien, y afortunadamente estáis frente a esa Deidad, debería ser muy fácil entregarse a Ella. Pero no es así. Es difícil porque la atención -que ha aparecido a través de las células del cerebro, que se expresa a sí misma a través de las células del cerebro- está contaminada, es impura; es destructiva y echa a perder los nervios. Y cuando los nervios se echan a perder la luz del Espíritu no brilla en ellos y os sentís incapaces de entregaros. Normalmente debería ser lo más fácil de hacer.

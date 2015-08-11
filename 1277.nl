@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Durga Puja
 ‘Vereer de wapens van de Godin’
 
-
 Wenen, Oostenrijk
 26 september 1982
 
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 20/10/2008
-&nbsp;
 
 Vandaag is het de eerste keer dat we deze puja in Oostenrijk houden. Dit is een historisch land dat verschillende omwentelingen doorgemaakt heeft, om zoveel levenslessen te leren. Maar mensen leggen geen verband tussen de rampen en hun eigen fouten. Daarom blijven ze steeds opnieuw dezelfde fouten herhalen.
 
@@ -133,34 +131,20 @@ Het zou beter "Jij bent God in de mens" zijn. God in de mens... Hij is geen mens
 
 
 
-
-
-
 [1] dharma: geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag
-
-
 
 
 [2] bhoot: geest van een overledene
 
 
-
-
 [3] nirvikalpa: twijfelloos bewustzijn
-
-
 
 
 [4] vaidya: Ayurvedische dokter
 
 
-
-
 [5] rakshasa’s: demonen, incarnaties van negatieve krachten
 
 
-
-
 [6] Virata: het Kosmische Lichaam
-
 

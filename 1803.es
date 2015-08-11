@@ -1,6 +1,5 @@
 Shri Ganesha Puja. Lanersbach, Austria. 26 de agosto de 1990.
 
-
 Hoy estamos celebrando el cumpleaños de Shri Ganesha. Todos conocéis la historia de su nacimiento, no necesito repetirlo. Fue creado por la Adi Shakti solo a partir de la Madre Tierra y del mismo modo habéis sido creados vosotros después de Él.
 
 Así que, ya estáis en el camino de Shri Ganesha. Vuestros ojos brillan del mismo modo que los suyos. Todos tenéis ese resplandor tan bello en vuestra cara, igual que el suyo. Ya seáis pequeños, grandes o viejos no hay ninguna diferencia. Toda belleza viene a nosotros a través de la Luz de Shri Ganesha. Si Él está satisfecho, entonces no tenemos que preocuparnos por ninguna otra Deidad, porque el Poder de todas las Deidades es Shri Ganesha. Él es como un director sentado en cada chakra. A menos que lo autorice, la Kundalini no puede pasar porque Kundalini es Gauri, que es la Virgen, Madre de Shri Ganesha.

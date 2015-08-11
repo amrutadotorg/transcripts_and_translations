@@ -1,6 +1,5 @@
 Sahasrara Puja. Alpe Motta, Italia. 4 de mayo de 1986.
 
-
 Hoy es un gran día para todos nosotros, porque es el decimosexto día del Sahasrara. En dieciséis percusiones o dieciséis movimientos alcanzáis una posición más elevada en el poema. Se dice que Shri Krishna es completo, que es una encarnación completa, porque tiene dieciséis pétalos. A esta plenitud se la denomina "Purna".
 
 Ahora nos estamos moviendo hacia otra dimensión. En la primera etapa recibisteis vuestra Realización. En el proceso evolutivo, los animales no son conscientes de muchas cosas de las que el ser humano si lo es. Por ejemplo, la materia no puede ser utilizada por los animales para su propio provecho. Además, ellos no son conscientes de sí mismos en absoluto. Si mostráis un espejo a un animal, no reaccionará como si estuviera ante un espejo. Excepto si se trata de chimpancés. Esto significa que estamos muy próximos a ellos. Al convertiros en seres humanos, os habéis vuelto conscientes de muchas cosas que eran inconscientes para los animales. Por ejemplo, ellos no entienden que pueden poner la materia a su servicio.

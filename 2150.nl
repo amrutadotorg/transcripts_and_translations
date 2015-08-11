@@ -4,10 +4,9 @@ Puja in Brahmapuri
 
 Brahmapuri, India
 27 december 1985
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 16/07/2010
-&nbsp;
 
 Tekst vertaald uit het Marathi staat tussen [* *]
 
@@ -111,57 +110,29 @@ Je kunt een beetje opschuiven naar deze kant. Hallo - je kunt een beetje naar de
 
 
 
-
-
-
 [1] bindi: afgeleid van het Sanskriet bindu, wat ‘stip’ of ‘druppel’ betekent. Rode stip (ook tikka genoemd) van plantaardig poeder (kumkum) die aangebracht wordt ter bescherming van de Agnya chakra.
-
-&nbsp;
-
-&nbsp;
-
-
 
 
 [2] shraddha: volledig vertrouwen
 
 
-
-
 [3] tantra: instrument; mechanisme van het subtiele systeem.(noot:  Het woord tantra wordt vaak verkeerd geïdentificeerd met tantrika’s die de Kundalini als een seksuele energie beschouwen; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga.)
-
-
 
 
 [4] Vishwa Dharma: universele religie
 
 
-
-
 [5] yantra: techniek, methode
-
-
 
 
 [6] Mahesha, Maheshwara: naam van Shri Shiva
 
 
-
-
 [7] sahib: vroegere aanspreektitel van Europeanen in Azië, ‘heer’
-
-&nbsp;
-
-
 
 
 [8] brahmin: betekent letterlijk ‘diegene die tweemaal geboren is en de brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het kastensysteem in India.
 
-&nbsp;
-
-
-
 
 [9] maryada's: begrenzing van het juiste (rechtschapen) gedrag
-
 

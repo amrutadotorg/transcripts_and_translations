@@ -1,6 +1,5 @@
 Puja de Pascua. Magliano Sabina, Roma, Italia. 11 de abril de 1993.
 
-
 Hoy nos hemos reunido aquí, en la cima de esta montaña, para celebrar la Resurrección de Cristo. Es muy significativo para los sahaja yoguis el comprender este acontecimiento de su resurrección. Con ella Él mostró que el Espíritu no muere. Él era el OMKARA, el LOGOS y el ESPÍRITU. Por eso podía caminar sobre el agua.
 
 Hemos hecho un vídeo que muestra cómo la molécula de carbono representa el Muladhara. Si lo observáis de derecha a izquierda veis perfectamente una esvástica; y de izquierda a derecha veis el OM. Si lo observáis desde abajo hacia arriba veis el alfa y el omega, lo cual demuestra, más allá de cualquier duda, lo que Cristo dijo: "Yo soy el alfa y el omega", Cristo es la encarnación de Shri Ganesha. Tenemos, pues, una demostración científica y así es cómo podemos decirle a la gente que esto es un hecho.

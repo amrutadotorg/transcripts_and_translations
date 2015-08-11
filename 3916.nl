@@ -4,20 +4,12 @@ Shri Mataji Nirmala Devi
 
 Shri Bhairavanath Puja
 
-&nbsp;
-
 Garlate, Italië
 
 6 augustus 1989
 
-&nbsp;
-
-&nbsp;
-
 Engelse transcriptie: IBP reviewed
 Nederlands: eindversie 21/11/2013
-
-&nbsp;
 
 Vandaag zijn we hier samengekomen om puja te doen voor Bhairavanath. Ik denk dat we de betekenis van Bhairavanath, die op en neer loopt langs de Ida nadi[1], nog niet hebben begrepen. Ida nadi is de nadi van chandrama, van de maan. Het is dus een kanaal waarmee we kunnen afkoelen. Het werk van Bhairavanathji is dus om ons af te koelen. Mensen hebben bijvoorbeeld een verhit temperament, door hun ego, hun lever, wat het ook zij, en als iemand een driftige bui heeft, dan zal Bhairavanath trucjes met hem uithalen om hem af te koelen. Hij organiseert alles onder zijn eigen leiding, met hulp van de gana's[2] en met hulp van Ganapati[3], om je temperament af te koelen en je in evenwicht te brengen. Als iemand dus heetgebakerd is en alle grenzen van zijn woede overschrijdt, dan zal Bhairavanath op de een of andere manier iets organiseren, ook met behulp van Hanumana, om te laten zien dat de dwaasheid van woede nergens goed voor is.
 
@@ -59,29 +51,17 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] Ida nadi: linker energiekanaal; correspondeert met het (linker) sympathische zenuwstelsel. Kanaal van de emoties en het verleden.
-
-
 
 
 [2]  gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
 
 
-
-
 [3]  Ganapati: leider van de gana’s; Shri Ganesha
-
-
 
 
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
-
 

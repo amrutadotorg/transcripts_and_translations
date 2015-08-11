@@ -102,108 +102,62 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1]  Swastika: eeuwenoud, voorspoedbrengend symbool van zuiverheid en wijsheid; symbool van de Muladhara chakra
-
-
 
 
 [2]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die  ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya
 
 
-
-
 [3]  alfa: eerste letter van het Griekse alfabet (α)
-
-
 
 
 [4]  omega: laatste letter van het Griekse alfabet (ω)
 
 
-
-
 [5] bhakta: toegewijde volgeling
-
-
 
 
 [6] rakshasa: demon, incarnatie van negatieve of duivelse krachten
 
 
-
-
 [7] Jagadamba: de Moeder van het universum
-
-
 
 
 [8] Amba: de zuivere vorm van kracht
 
 
-
-
 [9] Kundalini: primordiale, moederlijke levensenergie, die opgerold in het heiligbeen verblijft
-
-
 
 
 [10] Adi Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji; primordiale (oorspronkelijke) kracht
 
 
-
-
 [11] shakti: ondersteunende, vrouwelijke, moederlijke kracht
-
-
 
 
 [12] Sadashiva: God Almachtig
 
 
-
-
 [13] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
-
-
 
 
 [14] kumbha: zie ghata
 
 
-
-
 [15] ghata: pot die de Kundalini in zich heeft, de pot die het primordiale verlangen in ons bevat om God te bereiken – symboliseert de baarmoeder van het universum en wordt gebruikt tijdens puja’s
 
 
-
-
 [16] Maitreya: 'Ma' is de Moeder, die uit drie vormen bestaat: Mahakali, Mahalakshmi en Mahasaraswati
-
-&nbsp;
-
-
 
 
 [17] Paramchaitanya: de allesdoordringende kracht van God
 
 
-
-
 [18] Mahesha, Maheshwara: naam van Shri Shiva
-
-&nbsp;
-
-
 
 
 [19] Adi Shankaracharya: Indische heilige, filosoof en dichter (788-820); schreef de ‘Saundarya Lahiri’, waarvan elk couplet een mantra is ter ere van de Moeder.
 
 
-
-
 [20] karma: de gevolgen van onze vroegere daden
-
 

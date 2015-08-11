@@ -4,10 +4,9 @@ Shri Bhoomi Dhara Puja
 
 Shudy Camps, Engeland
 3 augustus 1986
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 10/02/2011
-&nbsp;
 
 Vandaag zijn we hier samengekomen om een puja te houden ter ere van Moeder Aarde. We noemen het ook wel de Bhoomi Puja, de Shri Dhara Puja. Zij wordt ook wel Dhara genoemd. Zoals je weet betekent 'dha' 'ondersteunen'. 'Ra-dha' - degene die de energie ondersteunt is Radha. En Dhara, zij die zelf de ondersteuning is, zij ondersteunt ons. Wij leven op haar.
 
@@ -51,22 +50,10 @@ Moge God jullie zegenen.
 
 De puja van vandaag zal maar heel kort zijn, we zullen niet zo'n lange puja houden. Het zal alleen de Shri Ganesha Puja zijn en een Gauri Puja, maar het zal niet zo'n lange puja worden. Het enige is dat jullie vandaag met volle aandacht moeten gaan zitten met je linkerhand naar mij gericht en de rechterhand naar Moeder Aarde; op Moeder Aarde, de rechterhand op Moeder Aarde. Als je op een stoel zit kun je ook je linkerhand naar mij richten en je rechterhand naar Moeder Aarde.
 
-&nbsp;
-
-
-
-
 
 
 [1] maya: illusie, verwarring
 
-&nbsp;
-
-
-
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-&nbsp;
-
 

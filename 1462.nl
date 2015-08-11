@@ -4,10 +4,9 @@ Shri Vishnumaya Puja
 
 Wimbledon, London, Engeland
 1 september 1985
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 20/05/2010
-&nbsp;
 
 De puja van vandaag voor Vishnumaya, die de zus was van Shri Krishna, was niet gepland in de internationale puja's die we houden. Maar men zegt dat wanneer voor de liefde van God alle volgelingen samenkomen, zelfs God vele regels moet overtreden, en zo werd aanvaard deze puja te houden. Het moet minstens één keer gebeuren, vind ik, het was een goed idee. Door jullie liefde en jullie toewijding werd dit verlangd, en daarom zal deze puja gehouden worden.
 
@@ -467,51 +466,29 @@ Moge God jullie zegenen!
 
 
 
-
-
-
 [1] shakti: primordiale (oorspronkelijke) kracht, ondersteunende, vrouwelijke, moederlijke oerkracht
-
-
 
 
 [2] Mahesha, Maheshwara: naam van Shri Shiva
 
 
-
-
 [3] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
-
 
 
 [4] maryada's: begrenzing van het juiste (rechtschapen) gedrag
 
 
-
-
 [5] bhandan: bescherming
-
-&nbsp;
-
-
 
 
 [6] bhakta: toegewijde volgeling
 
 
-
-
 [7] Brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort; zetel van de Hart chakra op het hoofd.
-
-
 
 
 [8] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [9] chitta: (verlichte) aandacht
-
 

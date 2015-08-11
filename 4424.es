@@ -1,6 +1,5 @@
 Seminario: "Charla a yoguis por la tarde antes del Krishna Puja". Schwarzsee, Suiza. 23 de agosto de 1986.
 
-
 Shri Krishna reside en nuestro Vishuddhi chakra. En el centro reside como Shri Krishna. En el lado izquierdo se encuentra su poder, Vishnumaya, su hermana. Allí reside como Gopala, “aquel” que vivió en Gokul cuando era niño. En el lado derecho se asienta como el rey que reinó en Dwarika, el rey Shri Krishna. Estos son los tres aspectos de nuestro Vishuddhi chakra.
 
 La gente que usa su lado derecho para dominar a los demás, que usa su voz para rebajar a los demás, para mostrar su autoridad y grita a los demás, son aquellos que tienen dañado el lado derecho. Cuando el lado derecho está bloqueado, tenéis muchos problemas en vuestro cuerpo físico porque el Corazón derecho no puede desarrollar su función. Sufrís de asma y de todas estas enfermedades. Pero especialmente cuando el Corazón derecho está afectado por un problema con el padre.

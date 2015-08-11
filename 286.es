@@ -1,6 +1,5 @@
 Sahasrara Puja. Château Mesnières, Rouen, Francia. 5 de mayo de 1984.
 
-
 Para vuestra Madre es algo maravilloso ver a tantos hermosos sahaja yoguis reunidos en este día del Sahasrara. Creo que la primera era de Sahaja Yoga ya ha terminado y ha comenzado una nueva era. En la primera era de Sahaja Yoga el punto principal era abrir el Sahasrara en primer lugar y, después, poco a poco ir avanzando hacia su plenitud. Ahora puedo ver que hay muchos grandes sahaja yoguis. Habéis pasado por un proceso muy natural de crecimiento.
 
 Podemos decir que lo primero fue, simplemente, despertar la Kundalini y que atravesara el hueso de la fontanela. Como esos bandhans que veis en lo alto de vuestras cabezas, así es cómo también los tenéis vosotros en la cabeza, de la misma forma. Del mismo modo tenéis los chakras integrados en vuestro Sahasrara. Así pues, en la primera era de Sahaja Yoga despertamos las deidades de vuestros centros en la médula oblonga y también en el cerebro. Pero ahora ha llegado el momento de que lo extendamos horizontalmente y -para que lo movamos a nivel horizontal- debemos entender cómo hacerlo.

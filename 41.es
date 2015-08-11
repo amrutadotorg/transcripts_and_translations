@@ -1,6 +1,5 @@
 Diwali Puja. Temisoara, Rumanía. 25 de octubre de 1992.
 
-
 Hoy vamos a celebrar el Diwali Puja. Creo que todos deberíais aprender inglés, es una lengua muy simple, y sería mucho mejor. Podéis aprender inglés escuchando mis cintas de casete. Aunque, desde luego, el lenguaje del Amor es universal, pero el problema es que no tiene palabras. Me siento llena de emoción, es un encuentro tan hermoso, con gente de todas partes del mundo, unidos por un amor tan puro. Los rusos, afortunadamente, ya han llegado; han tenido que pasar por un poco de "tapasya".
 
 El significado de Diwali se extiende a cinco días, y todos ellos se unen, los cinco. Cada uno tiene un aspecto diferente, pero en cada aspecto hay siempre un punto en común: es que, en todos ellos, la diosa juega siempre el papel principal.

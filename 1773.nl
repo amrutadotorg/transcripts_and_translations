@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Ganesha Puja
 Lezing over kuisheid
 
-
 Brighton, Engeland
 4 augustus 1985
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 02/12/2010
-&nbsp;
 
 Vandaag zijn we hier samengekomen bij de geschikte gelegenheid en op een zeer voorspoedige dag om Shri Ganesha te vereren. Shri Ganesha is de eerste godheid die geschapen werd, zodat het gehele universum gevuld werd met voorspoed, met vrede, gelukzaligheid en spiritualiteit. Hij is de bron. Hij is de bron van spiritualiteit. Daaruit volgt al het overige. Net zoals wanneer het regent en winderig is, je een koelte in de atmosfeer voelt. Op dezelfde manier, wanneer Shri Ganesha zijn kracht uitstraalt, voelen we deze drie dingen vanbinnen en vanbuiten. Maar het is zo betreurenswaardig, vooral in het Westen, dat de belangrijkste fundamentele godheid niet alleen volledig verwaarloosd is geworden, maar ook beledigd en gekruisigd.
 
@@ -149,45 +147,25 @@ Goed? Hoe wassen we, zij schenkt water op mijn voeten en jij hoeft alleen maar t
 
 Kom maar hier, met z’n vieren tegelijk. Nu, wie zijn deze vier? Zij zal het water schenken, jullie wrijven, wrijf nu maar, jullie wassen mijn voeten.
 
-&nbsp;
-
-
-
-
 
 
 [1] tapasya: boetedoening, beproeving
-
-&nbsp;
-
-
 
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [3] shastra's: spirituele geschriften, leer, in het bijzonder kennis die gebaseerd is op tijdloze, universele principes
-
-
 
 
 [4] Brahmachari: heilige, geleerde die leeft volgens de voorschriften van de ‘Brahmacharya’, een levensstijl gebaseerd op de oude Veda’s en Upanishaden, waarbij het strikte celibaat kenmerkend is.
 
 
-
-
 [5] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
-
 
 
 [6] avaduta: krachtige, hooggeëvolueerde, gerealiseerde ziel die een meester is
 
 
-
-
 [7] punya's: de vruchten van goede daden in ons leven, die bijdragen aan het Karma ( = universele principe van actie en reactie; “wat men zaait, zal men oogsten”)
-
 

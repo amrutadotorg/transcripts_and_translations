@@ -1,6 +1,5 @@
 Shri Mahamaya Puja. Aukland, Nueva Zelanda. 10 de abril de 1994.
 
-
 Hoy es el primer día del año según el calendario Shalivahana, que es el calendario de mis antepasados. En toda Maharashtra se le considera como el día de Año Nuevo y como el mejor día para comenzar cualquier tarea.
 
 Por esta razón he decidido hacer hoy el Puja a Mahamaya. Nunca antes había hablado de Mahamaya, ya que se supone que no se debe hablar ni decir nada de Ella. Se dice que es secreto. Pero es la base de Sahaja Yoga, ya que se describe cuando la Diosa, la Shakti, viene al Sahasrara. Ella es Mahamaya. Se la ha descrito como "Sahasrare Mahamaya". Ella tiene que ser Mahamaya, lo que significa que debe camuflarse completamente a Sí misma. Para empezar nadie debe ser capaz de reconocerla como la Diosa; e incluso si obtienen la Realización no deben reconocerla completamente. Hay muchas razones para que esto sea así.

@@ -4,10 +4,9 @@ Kerst Puja
 
 Hounslow, Engeland
 23 November 1984
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 04/09/2009
-&nbsp;
 
 Gisteren was het een fijne dag voor iedereen, en ik zei iets van een ander niveau. We hebben de hele tijd gepraat over wereldse dingen en die dingen zijn soms heel… zijn zo belangrijk, denken we. Maar toen ik gisteren tegen jullie sprak, hoop ik dat jullie je allemaal realiseerden dat we nu een sprong moeten maken naar een andere dimensie, van een subtieler begrip van Sahaja Yoga.
 
@@ -381,23 +380,13 @@ Dit moet worden gedaan door jongens die geen gevoelens rond het huwelijk hebben,
 
 (De Devi Suktam wordt geciteerd.)
 
-&nbsp;
-
-
-
-
 
 
 [1] bhoot: ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [3] Aumkara of Omkara: letterteken in het Sanskriet dat de Aum of Om klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
 

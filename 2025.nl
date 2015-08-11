@@ -4,12 +4,9 @@ Shri Shakti Mahakali Puja
 
 Bangalore, India
 9 december 1991
-&nbsp;
 
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 24/05/2013
-
-&nbsp;
 
 Jullie zijn nu allemaal naar Bangalore gekomen, en gisteren zijn jullie naar Mysore gegaan, dat geregeerd werd door Mahishasura[1]. Dat is ook de reden dat jullie geen eten kregen - het werkte jullie tegen. Het is dan ook beter om niet te eten op zulke plaatsen, nietwaar? Goed. Bangalore is echt een prachtige plek. Het klimaat is er heerlijk, en je zult zien dat de rakshasa's[2] altijd in zulke plaatsen leefden. In Pune leefde bijvoorbeeld deze Rajneesh - en hier heeft deze Mahishasura geleefd. Ze proberen altijd plaatsen op te zoeken waar het koeler is, omdat ze zoveel hitte in hun lichaam hebben. Zoals je weet is er hier nog één rakshasa die nog ontmaskerd moet worden. En vandaag zouden we dit met behulp van onze puja moeten bereiken.
 
@@ -55,56 +52,32 @@ We zullen dus vandaag eerst de voetwassing houden, en ondertussen zullen we de [
 
 
 
-
-
-
 [1] Mahishasura: demon, negatieve kracht die verslagen werd door de Godin Shri Durga
-
-
 
 
 [2] rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
 
 
-
-
 [3] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
-
-
 
 
 [4] shastra's: spirituele geschriften, leer, in het bijzonder kennis die gebaseerd is op tijdloze, universele principes
 
 
-
-
 [5] soefi: aanhanger van het soefisme, een mystieke traditie die zijn oorsprong heeft in de vroege Islam.
-
-
 
 
 [6] Adi Shankaracharya: Indiase heilige, filosoof en dichter (788-820); schreef de ‘Saundarya Lahiri’, waarvan elk couplet een mantra is ter ere van de Moeder.
 
 
-
-
 [7]          bhakti: liefdevolle toewijding, devotie
-
-&nbsp;
-
-
 
 
 [8] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht
 
 
-
-
 [9] Paramchaitanya: de allesdoordringende kracht van God
 
 
-
-
 [10] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
 

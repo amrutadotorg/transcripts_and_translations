@@ -84,7 +84,6 @@ Zostanie to udowodnione, poprzez wzrost waszej świadomości. Dzięki waszej Kun
 
 Wszystkie te fałszywe idee muszą zniknąć. Musimy stać się uniwersalnymi istotami. Stać się. Stajecie się tym. Czy ktoś jest Muzułmaninem, czy Hindusem, czy Chrześcijaninem, czy kimkolwiek, kiedy stajecie się uniwersalną istotą, możecie czuć na palcach stan danej osoby. Chrystus powiedział: „Wasze ręce przemówią, wasze ręce przemówią”. Nie musimy kwestionować żadnych świętych ksiąg, musimy ujrzeć wewnętrzne światło we wszystkim, co opisane. To, co nas dzieli tak naprawdę nas jednoczy. Różnorodność jest tak piękną jednościan nas, ale można to ujrzeć jedynie przez uniesienie Kundalini. Nie ma innego sposobu, ponieważ kiedy Kundalini podnosi się, następuje integracja a wy zaczynacie postrzegać to jako rzeczywiste doświadczenie. 
 
-
 Mam nadzieję, że zrozumieliście, co powiedziałam. Dyskusja nie da wam realizacji- to musi się naprawdę stać. Nieważne czy jesteście księciem, królem czy kimkolwiek. To żadna różnica. Musicie tego indywidualnie doświadczyć. To jest wasza indywidualna Matka w was. Mówię o Ruh. Rytualizmem nie osiągniecie Boga, musicie być z nim połączeni. Było to obiecane we wszystkich religiach i pismach tym wszystkim tym ludziom, którzy rozumieją i myślą, że ważne jest, aby wiedzieć, że musi istnieć prawda, którą możemy urzeczywistnić. I to musi się wydarzyć. 
 
 Niech was Bóg błogosławi.

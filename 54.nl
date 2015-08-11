@@ -4,7 +4,6 @@ Diwali Puja
 
 Cabella Ligure, Italië
 10 november 1991
-&nbsp;
 
 English transcript Amruta.org Ver 30/10/2014
 Nederlands: eindversie 03/11/2014
@@ -61,17 +60,9 @@ Soms worden jullie leiders boos op me omdat ik zo vergevend ben. Wat kan ik eraa
 
 Moge God jullie zegenen.
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
 [1] bhoots: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt
 
 [2] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-&nbsp;
 
 [3] bhootish: afkomstig van of onder invloed van bhoots
 

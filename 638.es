@@ -1,6 +1,5 @@
 Shivaratri Puja. Chinciano Terme, Italia. 16 de febrero de 1991.
 
-
 Hoy nos hemos reunido aquí para adorar a Sadashiva, que se refleja en nuestro interior como Shiva. El Espíritu se refleja en nuestro corazón y, como sabemos, el sentido de nuestra vida es conseguir el estado del espíritu.
 
 El otro día estaba leyendo unos libros acerca de cómo se lograba la realización, conocer el espíritu y cómo la gente fue torturada. Antes de nada había que negar, condenar el cuerpo. Si el cuerpo quería tener comodidades, se le decía que primero había que intentar dormir sobre una alfombra, no en la cama. Si aún no era suficiente la alfombra, sobre una esterilla, si aún no era suficiente, sobre la Madre Tierra, y si el cuerpo aún no estaba bien, entonces sobre las piedras. Pero los Himalayas están lejos, porque Shiva reside en Kailasa. Entonces, había que ir a los Himalayas y dormir sobre el hielo. Esto era lo mínimo que se requería.

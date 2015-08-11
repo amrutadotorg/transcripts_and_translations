@@ -1,6 +1,5 @@
 Shri Guru Puja. Cabella Ligure, Italia. 13 de julio de 2003.
 
-
 El Puja de hoy es un Puja muy importante para mí porque, de repente, me he enterado de que mi nieta no está y esto me ha trastornado mucho. Miradme a mí, que se supone que soy la Adi Shakti, ¿y por qué debería estar tan inquieta por la ausencia de mi nieta?
 
 Es algo de la naturaleza humana, que he visto que todos tenemos. Si tenemos responsabilidades y no estamos ahí nos sentimos inquietos.

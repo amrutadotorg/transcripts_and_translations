@@ -4,10 +4,9 @@ Shri Adi Kundalini Puja
 
 Cabella, Italië
 21 juni 1992
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 24/07/2009
-&nbsp;
 
 Vandaag zijn we hier samengekomen om de Adi Kundalini te vereren en je eigen Kundalini, beide, want je Kundalini is de weerspiegeling van de Adi Kundalini. We hebben veel begrepen over de Kundalini en we weten ook dat we alleen door haar ontwaking, alleen door haar opstijgen, opgeklommen zijn naar een hoger niveau van bewustzijn. Niet alleen zijn we gestegen naar een veel hoger niveau van bewustzijn, maar het heeft ons zoveel krachten geschonken; nooit eerder in de geschiedenis van de spiritualiteit had de mens deze kracht van Kundalini-ontwaking.
 
@@ -121,54 +120,32 @@ Moge God jullie allen zegenen.
 
 
 
-
-
-
 [1] tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
-
-
 
 
 [2] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 
-
-
 [3] rishi: wijze, visionair denker, ziener
-
-
 
 
 [4] muni: godvruchtig mens, heilige
 
 
-
-
 [5] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
-
-
 
 
 [6] bhoot: ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 
-
-
 [7] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
-
-
 
 
 [8] maryada's: begrenzing van het juiste (rechtschapen) gedrag
 
 
-
-
 [9]  Adi Shakti: de oorspronkelijke of primordiale vrouwelijke kracht; oermoederkracht
 
 
-
-
 [10] Brahmarandra: top van de hersenen; plaats waar de Kundalini het fontanelgebied doorboort
-
 

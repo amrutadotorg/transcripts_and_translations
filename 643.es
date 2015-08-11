@@ -1,6 +1,5 @@
 Shivaratri Puja. Glenrock Lagoon, Newcastle, Australia. 29 de febrero de 1992.
 
-
 Es muy hermoso veros a todos aquí -y a tantos de vosotros de Australia- para adorar a Shiva, a Sadashiva. Creo que esta es una ocasión muy importante porque Sadashiva, el Dios Todopoderoso que es Uno, se expresa en vuestro Corazón como el Espíritu, Shiva.
 
 Tenemos que entender que muchas personas vinieron a esta tierra en diferentes épocas y países; y que hablaron a gente distinta sobre la rectitud, que es el Dharma, sobre cómo crecer. Todos ellos dijeron que tenéis que volver a nacer, es decir, que os tenéis que convertir en el Espíritu. Todos ellos dijeron lo mismo porque sabían que, si la atención no estaba iluminada con la luz del Espíritu, no seríais capaces de entender la espiritualidad.

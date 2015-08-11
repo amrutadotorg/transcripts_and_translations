@@ -1,6 +1,5 @@
 Shri Ekadesha Rudra Puja. Nueva York, Estados Unidos. 17 de septiembre de 1983.
 
-
 Hoy es el día, según el calendario indio, conocido como Parivartani Ekadeshi. Hoy es el undécimo día de la luna, el undécimo día es Ekadeshi. En Sahaja Yoga también sabéis sobre Ekadesha Rudra, que está aquí [en la frente] y que finalmente destruirá todo aquello que no se necesita nunca más. Aquí está Ekadesha, este es el undécimo.
 
 Pero hoy es un día especial donde vamos a usar el poder de Ekadesha para hacer Parivartan, que significa transformación, no es para la destrucción sino para la transformación. Este es un gran día para estar aquí en Nueva York, donde vamos a usar los poderes destructivos para la transformación de los seres humanos. Así que hoy es un gran día en el que vamos a transformar a la gente, por la manifestación de los poderes de Ekadesha.

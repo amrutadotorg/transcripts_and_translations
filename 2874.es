@@ -1,6 +1,5 @@
 Bhavasagara Puja. Brisbane, Australia. 6 de abril de 1991.
 
-
 Esta es la primera vez que tenemos un puja en Brisbane y estoy muy feliz de que tantos hayáis podido venir hasta aquí, desde varios lugares.
 
 Ya sabéis que, a través del puja, estimuláis los chakras en mi interior y de este modo obtenéis muchas vibraciones. Entonces, repentinamente, conseguís un aumento de consciencia. Obtenéis esto, pero después de un tiempo decís: "¡Madre, de nuevo descendemos!" También decís: "Cuando vamos a India estamos bien y cuando volvemos otra vez descendemos". Afortunadamente ahora tenemos un ashram, lo cual es algo muy bueno. Tener un ashram es algo muy positivo porque, de este modo, Ganesha se establece en ese lugar. El ashram está para vivir colectivamente, pero para vivir colectivamente la espiritualidad. No es solamente para tener un sitio donde vivir sino para vivir la espiritualidad. Y debemos saber ciertas cosas acerca de la disciplina que debemos mantener, esto es muy importante. Esta no es simplemente una casa donde algunas personas se han unido para vivir juntas sino que debe de haber una disciplina. Solo entonces seréis ayudados. Si no venís al ashram con la idea de que aquí vais a ascender no habrá ninguna diferencia entre vivir en el ashram o en otra casa.

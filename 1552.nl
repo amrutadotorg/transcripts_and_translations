@@ -4,10 +4,9 @@ Shri Adi Shakti Puja
 
 Cabella Ligure, Italië
 24 juni 2007
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 28/05/2011
-&nbsp;
 
 Het is fijn jullie hier allemaal terug te zien. Ik denk dat dit de eerste puja is die we op deze plaats houden* en ik hoop dat het voor iedereen aangenaam is en dat het gemakkelijk was voor jullie om naar hier te komen.
 
@@ -63,9 +62,5 @@ Dus dank jullie zeer.
 
 
 
-
-
-
 * eerste maal puja nadat het podium volledig verbouwd en verplaatst werd naar de andere kant van de zaal
-
 

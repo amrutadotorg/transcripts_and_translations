@@ -1,6 +1,5 @@
 Shri Hanumana Puja. Frankfurt, Alemania. 31 de agosto de 1990.
 
-
 Algunos de vosotros podéis sentaros aquí también, está bien ... Creo que podéis venir aquí, hay espacio. Algunos podéis poneros aquí para que algunos puedan ponerse allí, así no habrá problema. Vosotros sentaros ahí en frente. Ahí está mejor. Bien. Bre esta puerta, eso estaría bien. De acuerdo, podéis abrir la puerta si queréis. Bien. Mejor abierta, ¿se pueden abrir esas puertas? ¿no se abren? Oh Dios mío, necesitáis una persona alta. Necesitáis a Hanumana. Decid Su nombre y él la abrirá. Poned una silla en frente de ahí.
 
 Hoy nos hemos reunido aquí para hacer el Puja a Shri Hanumana. Shri Hanumana es un gran carácter en nuestro Ser. Él gobierna todo el canal desde el Swadistan hasta el cerebro y nos aporta toda la guía necesaria en nuestros planes del futuro o en nuestras actividades mentales. Él es quién nos da guía y protección.

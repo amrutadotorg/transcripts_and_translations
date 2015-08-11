@@ -1,6 +1,5 @@
 Sahasrara Puja. Cabella Ligure, Italia. 6 de mayo de 2001.
 
-
 Hoy me inclino ante todos los sahaja yoguis que han encontrado la Verdad. La búsqueda de la verdad ha existido durante siglos. Cuando la gente descubrió que el único modo de encontrarla era rindiéndose al Divino, vieron que no era fácil y no sabían cómo llevarlo a cabo. Han existido buscadores en todas partes del mundo. Cuando fui a Turquía me sorprendió ver que allí había habido muchos sufís, aunque sus discípulos nunca fueron almas realizadas. Los mismos sufís no sabían cómo habían recibido su Realización. Tal era la oscuridad que había entre los buscadores.
 
 Cuando era niña vi que la gente, en el mundo entero, desconocía por completo la manera de encontrar la verdad. Muchos estaban perdidos en las, así llamadas, "religiones" y "rituales". La gente solía hacer todo tipo de rituales. De la mañana a la noche realizaban algún ritual. Ya fueran hindúes, cristianos o musulmanes, creían que haciendo estos rituales lograrían algo, conocerían la verdad, obtendrían la Realización del Ser. Los buscadores acudían a gente falsa y se movían en la dirección equivocada. Realmente estaban buscando de corazón pero eran personas muy desorientadas, y fueron mal encaminadas hacia zonas negras tan horribles que ya no sabían lo que buscaban, ni lo que debían buscar ni qué debían obtener.

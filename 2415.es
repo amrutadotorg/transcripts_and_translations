@@ -1,6 +1,5 @@
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2003.
 
-
 [Charla en hindi]
 
 Eternas bendiciones de mi parte para todos los sahaja yoguis. Todos vosotros os habéis reunido hoy aquí, en un número tan grande, para celebrar mi cumpleaños. ¿Cómo podría agradecéroslo? Simplemente no lo entiendo. También ha venido mucha gente de otros países, e incluso de nuestro país se ha reunido hoy aquí mucha gente. Al ver todo esto, mi corazón se llena de gozo.

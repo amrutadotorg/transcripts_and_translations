@@ -72,7 +72,6 @@ Dit land van jullie, Engeland – dat tot nu toe, ik weet niet of mensen begrijp
 Al deze dingen die met de natuur te maken hebben, lossen zich op. Met hen komt het wel goed, maar hoe zit het met de mensen? Waar zijn ze, wat doen ze, waar zijn ze verdwaald geraakt? Dit is een heel bedroevende zaak. Ik kwam naar Londen door zuiver toeval, moet ik zeggen, of misschien was het voorbestemd. Mijn man werd verkozen om dit werk te doen en hij moest hierheen komen. En deze instelling van de VN is enkel hier gevestigd. Het is in Engeland. Het is nergens anders. Jullie hebben maar één instelling van de VN in Engeland, en mijn man werd hiervoor verkozen, daarom ben ik hier. Anders denk ik niet dat ik hier had kunnen komen, als een guru, omdat ik geen andere belangen heb dan dit. En ik had hier niet om een andere reden kunnen komen, want ik zou niet onuitgenodigd naar een land gaan, maar ik kwam hier als iemand die uitgenodigd was. Het werkt allemaal vanzelf. Alleen jullie, mensen, moeten dit zelf oplossen, en weet dat niet enkel het dynamisme of de vitaliteit van belang is, maar het grootste belang is dat je op dit punt aan de rand van de vernietiging of de opbouw staat. En de Engelsen mensen bevinden zich in een speciale positie. Zij moeten naar dit punt opklimmen, want zij zijn de cellen van het hart.
 Ik zal deze lezing morgen opnieuw geven. Ik hoop dat jullie zullen komen en dat je het jezelf gemakkelijk maakt. Mijn excuses voor mijn keel. Ik heb dag in dag uit gesproken, elke dag. Dank jullie zeer.
 
-
 VRAGEN &amp; ANTWOORDEN
 Als jullie vragen hebben, zou ik ze graag beantwoorden.
 Kan ik vragen van jullie krijgen, dan zal ik ze beantwoorden.
@@ -142,40 +141,23 @@ Leg nu je hand op de top van je hoofd, waar je vroeger een zacht been had, de ta
 
 
 
-
-
-
-
 [1] asana: Sanskriet voor ‘zitten’ of (ver)blijven; fysieke yoga oefeningen en lichaamshoudingen
-
-
 
 
 [2] sahaja, sahaj: spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 
-
-
 [3] Guru Nanak(a): 1469 - 1539 AC, Punjab, India. Eén van de 10 Primordiale (oospronklijke) Meesters; grondlegger van de Sikh religie.
-
-
 
 
 [4] Kabir(a): gerealiseerde heilige en dichter die leefde in Bihar, India, in de 16de eeuw. Hij gebruikte veelvuldig Sahaj termen in zijn liederen en gedichten.
 
 
-
-
 [5]  ashtanga: betekent letterlijk ‘acht’. Patanjali beschreef in zijn Yoga Sutra’s acht principes waarop de Hatha Yoga discipline gebaseerd is.
-
-
 
 
 [6] Ishwar pranidhana: overgave aan God (Ishwara), vertrouwen op het grotere geheel.
 
 
-
-
 [7] smriti: klassieke religieuze geschriften uit India; geschriften waarmee men zich 'de oorspronkelijke wijsheid' herinnert.
-
 

@@ -1,6 +1,5 @@
 Shri Gauri Puja. Auckland, Nueva Zelanda. 8 de abril de 1991.
 
-
 Gauri es la Madre de Shri Ganesha. Ella creó a Shri Ganesha para proteger su castidad mientras se daba un baño. Del mismo modo, Kundalini es Gauri y tenemos a Shri Ganesha que se asienta en el Muladhara chakra. Así pues, el Muladhara es la residencia de Gauri, de Kundalini, y Shri Ganesha es quién la protege.
 
 Como sabéis, Shri Ganesha es la Deidad que cuida de nuestra inocencia. Solamente Shri Ganesha puede estar en esta posición porque, como sabéis, el plexo pélvico se encarga de las funciones excretoras. Y solo Shri Ganesha puede permanecer en este lugar sin ensuciarse con el entorno. Él es muy puro, es muy inocente; mientras que Kundalini es la Virgen, la Madre virgen de Shri Ganesha. Ahora la gente ha empezado a hablar en contra de María, diciendo que hubo algo erróneo sobre Ella y cuestionando cómo podía una virgen tener un niño. Esto sucede porque no entendemos lo que es Dios y que, para Dios, cualquier cosa es posible. Ellos están por encima de todo esto y pueden crear cualquier cosa. Además, en cualquier caso, Ganesha debía nacer de una virgen porque Él es muy puro.

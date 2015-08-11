@@ -1,6 +1,5 @@
 Puja de Pascua. Estambul, Turquía. 22 de abril de 2001.
 
-
 Hoy nos hemos reunido aquí para celebrar el Puja de Semana Santa. El día que Cristo resucitó de la muerte es uno de los más importantes en la historia de la espiritualidad. Es muy significativo y simbólico el hecho de que también en Sahaja Yoga, lo que hemos hecho es ascender, renacer desde la muerte hasta la vida. Hay que entender que la resurrección es el mensaje para todos nosotros, para el mundo entero. Tenemos que resucitar. Jesús no tenía ninguna necesidad de hacerlo, pero fue nuestro modelo ideal, modelo de santidad, modelo de alma realizada, una persona modelo que vino desde el cielo para salvarnos.
 
 Esta resurrección forma parte de nuestras vidas. Es algo verdaderamente simbólico el hecho de que, a nivel de la conciencia, fuéramos personas tan perdidas. No teníamos control sobre nosotros mismos, íbamos por donde nos dictaba nuestra mente. No teníamos equilibrio entre la mente y el cuerpo físico, no nos quedaba ningún tipo de equilibrio. Nos movíamos al azar, como nos parecía bien, sin ninguna sabiduría.

@@ -1,6 +1,5 @@
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 2001.
 
-
 Es muy agradable ver que han venido tantos sahaja yoguis para celebrar el Puja de Navidad.
 
 La cristiandad se ha extendido por todo el mundo, y hay mucha gente que se hace llamar "cristiana" y que dice que sigue a Cristo. ¡No sé desde qué punto de vista!

@@ -1,17 +1,13 @@
 Shri Mataji Nirmala Devi
 
-
-
 Toespraak tot de Sahaja yogi's
  
 
-
 Madesimo, Alpe Motta, Italië
 4 mei 1986
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 16/11/2012
-&nbsp;
 
 Dit zijn liederen die gezongen worden in de Himalaya; dat men ze hier zingt is heel bijzonder, nietwaar? Ze hebben ze helemaal tot hier gebracht om ze hier te kunnen zingen.
 
@@ -199,50 +195,28 @@ Morgenochtend zal ik jullie misschien niet kunnen ontmoeten. Moge God jullie dus
 
 In India stelden ze ooit de vraag: "Als zij de Godin is, waarom zegt ze dan namaskar[8] tegen iedereen?" Ze kunnen niet begrijpen dat een Godin namaskar zegt.
 
-&nbsp;
-
-&nbsp;
-
-
-
-
 
 
 [1] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 
-
-
 [2] bhootish: afkomstig van of onder invloed van bhoots
-
-
 
 
 [3] Lakshmi: Shri Lakshmi is het goddelijke aspect dat staat voor welzijn en voorspoed en staat in relatie tot de Nabhi chakra.
 
 
-
-
 [4] Tukarama, Tukaram: (1598-c.1649) – Indiase dichter, bekend voor het componeren van abhanga’s of gezongen versen waarin het goddelijke wordt geprezen.
-
-
 
 
 [5] Scheduled kaste: lagere of laagste kaste in het voormalige kastensysteem in India; ze werden ook wel ‘Depressed people’, ‘untouchables’ of later door Gandhi ‘Harijan’ (kinderen van God) genoemd. Ze werden beschouwd als ‘onrein’ en stonden volledig onderaan de sociale ladder.
 
 
-
-
 [6]  Brahmin kaste: hoogste kaste in het voormalige kastensysteem in India. Priesters, dokters, ingenieurs en advocaten in India zijn vaak afkomstig uit deze kaste.
-
-
 
 
 [7] bandhan: bescherming van (door) de Moeder, kavach
 
 
-
-
 [8] namaskar: ook wel namaste genoemd - eerbiedige begroeting, waarbij men beide handen ter hoogte van de borst of het hoofd tegen elkaar vouwt en het hoofd buigt; het betekent: ‘Ik buig voor jou’ of ‘Ik groet de Spirit in jou’. De twee tegen elkaar gevouwen handen symboliseren de eenheid van het ‘Zelf’, waarbij de rechterhand het spirituele of onze hogere natuur vertegenwoordigt en de linkerhand het wereldse of lagere in onszelf.
-
 

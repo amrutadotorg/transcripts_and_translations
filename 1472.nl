@@ -4,10 +4,9 @@ Mahaganesha Puja
 
 Ganapatipule, India
 1 januari 1986
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 03/09/2010
-&nbsp;
 
 Vandaag zijn we hier allen samengekomen om ons respect te betuigen aan Shri Ganesha.
 
@@ -47,8 +46,6 @@ Iedereen zou zijn best moeten doen, zodat je ogen niet overspelig zijn. "Als er 
 
 Ik zegen jullie allen, zodat hier in Ganapatipule, de plaats van Mahaganesha, met zijn speciale gratie, jullie allen je guru principe zo snel mogelijk kunnen verkrijgen.
 
-&nbsp;
-
 Eerst zullen ze de vierentwintig namen van Shri Vishnu nemen zodat de Sushumna nadi[13] zal openen. Dan zullen ze de Shri Sukta zeggen, dat is om de energie binnenin je te doen ontwaken. Dan zullen ze de 108 namen van Moeder Gauri zeggen. Daarna puja, als de puja voorbij is, zullen we een havan doen.
 
 [Even iets in Hindi]
@@ -57,74 +54,44 @@ We hebben elf kunda's, en we zullen de havan doen voor de elf kunda's. Want de M
 
 
 
-
-
-
 [1] Virata: het kosmische lichaam, het grote Universele Wezen, de manifestatie van God
-
-
 
 
 [2] satguru: werkelijke guru; ook: Adi Guru of oorspronkelijke meester
 
 
-
-
 [3] Gyaneshwara: grote heilige en dichter die leefde in de 13de eeuw (1275-97) in Maharashtra, India. Hij vertaalde o.a. oude spirituele Sanskriet teksten in het Marathi zodat deze kennis toegankelijker werd.
-
-
 
 
 [4] Gyaneshwari: boek, ook gekend als de Bhavarthadpika, waarin Gyaneshwara de Bhagavad Gita vertaalde in het Marathi en van commentaar voorzag. In het zesde hoofdstuk beschrijft hij de aard van de Kundalini.
 
 
-
-
 [5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
-
-
 
 
 [6] pitha of peetha: plaats, ‘zetel’ van een chakra
 
 
-
-
 [7] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
-
 
 
 [8] Ganapati: Shri Ganesha als leider van de gana’s (engelen in de hemelse legers)
 
 
-
-
 [9] Ganesha Stuthi: lied waarin de kwaliteiten van Shri Ganesha vereerd en geprezen worden.
-
-
 
 
 [10] Mahalakshmi Tattwa: Mahalakshmi principe; essentie van de kracht van evolutie
 
 
-
-
 [11]  nirvichara: gedachteloos bewustzijn
-
-
 
 
 [12] Tukaram: Indische dichter (1598-c.1649), bekend voor het componeren van ‘abhanga’s’ of gezongen versen waarin het Goddelijke wordt geprezen.
 
 
-
-
 [13] Sushumna nadi: kanaal van evolutie; middenkanaal van het subtiele systeem, waarlangs de Kundalini opstijgt.
 
 
-
-
 [14] Ekadesha Rudra: de elf vernietigende krachten van Shri Kalki.
-
 

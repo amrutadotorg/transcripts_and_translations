@@ -4,13 +4,11 @@ Shri Virata Puja
 ‘Het is zeer belangrijk om
 de collectiviteit te vestigen’
 
-
 10 april 1991
 Melbourne, Australië
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 06/10/2012
-&nbsp;
 
 Door de grote afstanden en ook door het feit dat we nog geen ashram hadden in Melbourne, tot nu toe, heb ik gemerkt dat de collectiviteit hier nog niet zo stevig gevestigd is. Daarom denk ik dat het voor vandaag het beste zou zijn om de Virata te vereren.
 
@@ -88,9 +86,5 @@ Goed, nu kunnen de kinderen mijn voeten wassen. Goed?
 
 
 
-
-
-
 [1] Divine Cool Breeze: Engelstalig tijdschrift van Sahaja Yoga met foto’s, lezingen van Shri Mataji
-
 

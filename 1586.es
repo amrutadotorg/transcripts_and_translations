@@ -1,6 +1,5 @@
 Shri Hanumana Puja. Margate, Reino Unido. 23 de abril de 1989.
 
-
 Hoy es un día lleno de gozo; parece que toda la atmósfera emite este gozo, como si todos los ángeles estuvieran cantando. Lo más especial de Hanumana es que Él era un ángel. Los ángeles nacen como ángeles, son ángeles, no son seres humanos. Nacen con las cualidades de los ángeles. Pero ahora, vosotros que nacisteis como seres humanos, os habéis convertido en ángeles; este es el gran logro de Sahaja Yoga.
 
 Las cualidades con las que los ángeles nacen, pueden verse desde su infancia. En primer lugar ellos no temen aquello que no es verdadero, aquello que es falso; no están preocupados por lo que la gente les dirá ni por lo que perderán en la vida. Para ellos, la verdad es su vida entera, respiran la verdad, y no hay ninguna otra cosa que les preocupe. Esta es la primera gran cualidad de un ángel. Harán el máximo posible para establecer y proteger la Verdad e incluso para proteger a aquellos que están en la Verdad.

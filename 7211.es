@@ -1,6 +1,5 @@
 Shri Buda Puja. Shudy Camps, Reino Unido. 31 de mayo de 1992.
 
-
 Hoy nos hemos reunido aquí para hacer un Puja a Shri Buda. No sé cuántos de vosotros habéis leído la vida de Buda y cómo alcanzó su lluminación. No sé cuántos de vosotros habéis visto o conocido realmente a los budistas, a aquellos que se llaman a sí mismos budistas.
 
 Como en toda religión, todos ellos se perdieron en algún tipo de fundamentalismo, ya que ninguno de ellos obtuvo su Realización. Y por esto cada uno estableció su propio estilo de religión, incluso esto puede decirse del Tao de Lao Tse también, o del Zen de Vidditama, todos ellos son fruto de lo mismo.

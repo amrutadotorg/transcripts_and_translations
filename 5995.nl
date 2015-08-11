@@ -2,10 +2,9 @@ Shri Mataji Nirmala Devi
 
 Puja lezing – deel I en II
 ‘Je moet je eigen belangrijkheid begrijpen’
-&nbsp;
+
 Brighton, Engeland
 15 mei 1982
-&nbsp;
 
 Engelse transcriptie verified
 Nederlands: eindversie 18/09/2014
@@ -235,8 +234,6 @@ Dat is haar kracht. Kijk, de bewering dat zelfs de controle over Shiva, over Sad
 [Yogi: Maar u bent de manifestatie van zijn kracht.]
 
 Dat is waar; maar, zie je, mijn liefde en mijn mededogen zijn heel groot, ze zijn nog veel groter. Ik ben niet toornig. Maar als jullie je te erg misdragen, dan is hij toornig. Dan zal ik hem waarschijnlijk niet kunnen tegenhouden. Dan moet ik getuige zijn van de toorn van God. Hij is mededogen, hij is liefde, hij is onschuld - dat is hij allemaal, maar hij is ook toornig. Wees dus op je hoede bij alles wat je wilt doen.
-
-&nbsp;
 
 DEEL II
 

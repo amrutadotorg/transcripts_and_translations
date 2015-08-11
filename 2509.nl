@@ -43,106 +43,62 @@ Moge God jullie allen zegenen.
 
 
 
-
-
-
 [1] Purushottama: één van de 108 namen van Shri Vishnu: ‘de hoogste onder de Purusha’s (Spirits)’
-
-
 
 
 [2] Yogeshwara: ‘Heer van de yoga’ - één van de 108 namen van Shri Krishna
 
 
-
-
 [3] Virata: het grote kosmische lichaam; manifestatie van God
-
-
 
 
 [4] chakra, sudharshana chakra: goddelijke wapen in de vorm van een scherp gekartelde discus
 
 
-
-
 [5] gada: goddelijk wapen in de vorm van een knots
-
-
 
 
 [6] samhara: (Eng: ‘dissolution’) ontbinding
 
 
-
-
 [7] sakshi: getuige
-
-
 
 
 [8] akasha: de lucht (hemel, ether)
 
 
-
-
 [9] petalen: bloemblaadjes; het aantal petalen waarmee een chakra voorgesteld wordt, is gelijk aan het aantal bijknopen van de overeenstemmende plexus of zenuwknoop en de subtiele, spirituele kwaliteiten van deze chakra
-
-
 
 
 [10]Purnima: de dag van volle maan in de maancyclus
 
 
-
-
 [11]dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
-
 
 
 [12]Gita of Bhagavad gita: letterlijk ‘Lied van de Heer’, is onderdeel van een groot episch gedicht genaamd Mahabharata. De gita is een dialoog tussen Shri Krishna en prins Arjuna (vòòr de grote veldslag van Kurukshetra in India) over het vinden van God en de Spirit (Atma, eeuwige ziel) én daarbij het juiste handelen.
 
 
-
-
 [13] sutradara: de ‘regisseur’, diegene die de touwtjes van het (poppen)spel stevig in handen heeft
-
-
 
 
 [14] Virata Shakti: de (ondersteunende) kracht van de Virata of het Kosmische Lichaam
 
 
-
-
 [15] Shri Krishna Shakti: de (ondersteunende) kracht van Shri Krishna
 
 
-
-
 [16] Viratangana: de manifestatie van de Virata (het Kosmische Lichaam) in de hersenen, in ons brein
-
-&nbsp;
-
-
 
 
 [17]Guru tattwa: het guru principe, de essentie van het meesterschap
 
 
-
-
 [18]madhura shakti: de kracht van zachtheid en zoetheid
-
-
 
 
 [19]madhura, madhurya: zachtheid, zoetheid, melodieuze lieflijkheid (o.a. in onze relaties en onze omgang met elkaar)
 
 
-
-
 [20]gopa's en gopi's: de koehoedsters en koeherders die dansten met Shri Krishna en zijn vele krachten symboliseren
-
 

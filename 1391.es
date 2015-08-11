@@ -1,6 +1,5 @@
 Shri Ganesha Puja. Cabella Ligure, Italia. 13 de septiembre de 2003.
 
-
 [Shri Mataji invita a los niños a sentarse en el escenario]
 
 Ahora estamos ante estos niños pequeños. Ellos son encarnaciones y los que van a llevar a la humanidad a dar un gran paso adelante. Hay que cuidar a la humanidad. Ellos son la humanidad del mañana y nosotros somos la de hoy día. ¿Y qué ideales les estamos dando para que les sirvan de guía? ¿Cuál es su meta en la vida? Es muy difícil de decir, pero a través de Sahaja Yoga irán por el camino adecuado, se comportarán de forma correcta y todo derivará en que surgirá una multitud distinta de sahaja yoguis.

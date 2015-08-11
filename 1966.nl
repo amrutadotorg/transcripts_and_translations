@@ -1,19 +1,13 @@
 Shri Mataji Nirmala Devi
 
-
-
 Diwali Puja
 Mahalakshmi Puja
-
-
 
 Noida, India
 10 november 2007
 
-&nbsp;
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 18/09/2010
-&nbsp;
 
 Een gelukkige Diwali! Ik wens jullie allemaal een gelukkige Diwali!
 
@@ -75,21 +69,11 @@ De lezing van vandaag is een beetje anders, ze is uniek en het is heel vriendeli
 
 
 
-
-
-
 [1] Paramatma: ‘de hoogste ziel’. Het universele onbewuste, God.
-
-
 
 
 [2] avatar: incarnatie van het goddelijke of van een godheid op de aarde
 
-&nbsp;
-
-
-
 
 [3] tantra: instrument; mechanisme van het subtiele systeem. (Het woord tantra wordt vaak verkeerd geïdentificeerd met tantrika’s die de Kundalini als een seksuele energie beschouwen; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga.)
-
 

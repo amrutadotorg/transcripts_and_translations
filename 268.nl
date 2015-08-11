@@ -70,19 +70,11 @@ De Paaspuja is in zekere zin een eenvoudige puja, omdat we gewoon... natuurlijk 
 
 2 Upanishaden: de oudste Upanishaden behoren tot de Vedische geschriften en vormen als het ware een filosofisch aanhangsel bij de hymnen en voorschriften van de Veda’s. Het woord Upanishad betekent letterlijk: ‘neerzitten bij’ en duidt op het zitten van de leerling aan de voeten van de meester. Vandaar dat Upanishad ook onderrichting betekent.
 
-
-
 3 brahmaan: betekent letterlijk ‘diegene die tweemaal geboren is en de brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het vroegere kastensysteem in India
-
-
 
 4 Krita Yuga: overgangstijdperk tussen Kali Yuga en Satya Yuga; Aquariustijdperk of ‘Blossom time’
 
-
-
 5 Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
-
-
 
 6 Satya Yuga: ‘Golden Age’ of ‘Gouden Tijdperk’. De laatste van een cyclus van (vier) yuga’s of tijdperken van elk duizend jaar waarin de mensheid zijn volledige glorie bereikt; tevens het begin van een nieuwe cyclus.
 19910331nl - Paas Puja - FULL TALK - DVD 168S ISDP - 300315

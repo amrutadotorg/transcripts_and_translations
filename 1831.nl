@@ -6,18 +6,12 @@ Shri Mataji Nirmala Devi
 
 Shri Krishna Puja
 
-&nbsp;
-
-&nbsp;
-
 Cabella Ligure, Italië
 
 28 augustus 1994
 
-&nbsp;
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 07/09/2012
-&nbsp;
 
 Vandaag zijn we hier om Shri Krishna te vereren. Zoals jullie weten is Shri Krishna de incarnatie van Vishnu. En Vishnu is de beschermer van dit universum. Toen deze hele wereld geschapen werd was het noodzakelijk om ook een beschermer te creëren omdat deze wereld volledig vernietigd zou zijn als hij zonder beschermer achtergelaten werd. Zoals ze zich gedragen, konden mensen dan om het even wat gedaan hebben met deze wereld. Maar Vishnu is dus de beschermer. Hij is de beschermer en hij is de enige die echt incarneert. Natuurlijk incarneerde Brahmadeva ook soms. Maar hij (Shri Vishnu) is de enige die vormen aanneemt. In ons evolutieproces heeft hij verschillende vormen aangenomen. Hij kwam op deze aarde op verschillende manieren. Zoals jullie zeggen, aan de twaalf (bloembladen) was het Shri Rama en doorheen de tien was hij er. Dus hij creëerde ook een atmosfeer van vele grote profeten rond zichzelf zodat zij het dharma[1] konden beschermen van dit universum. Dus de basis van bescherming was dharma, dat, zoals jullie weten, het belangrijkste basisfundament vormt voor spiritueel leven. Wat er ook in dit dharma zou worden gevestigd moest in evenwicht gevestigd worden. Het was een gewoonte van mensen om in alles in extremen te gaan. Dus hij creëerde een evenwicht in ons. Het eerste principe van dharma was het creëren van evenwicht. Wanneer iemand geen evenwicht heeft dan kan hij zijn spirituele groei niet vervolledigen. Zo eenvoudig is dat. Als je vliegtuig geen evenwicht heeft, kan het niet opstijgen. Als een schip geen evenwicht heeft, zal het niet vooruitgaan. Op dezelfde manier moesten de mensen eerst het evenwicht verkrijgen. Maar ze zijn geboren met verschillende eigenschappen, met verschillende talenten. Er wordt gezegd: “Ya Devi sarva bhuteshu Jhati rupena samstita”, dit betekent dat de talenten verschillend zijn. Ze worden geboren met verschillende talenten, met verschillende gezichten, met verschillende kleuren, omdat er verscheidenheid moest worden gecreëerd. Als iedereen er hetzelfde zou uitzien, zouden ze eruit zien als robots of iets dergelijks. Dus iedereen werd op een verschillende manier gecreëerd, naargelang het land, naargelang de ouders. Dit alles werd georganiseerd door het principe van Shri Vishnu, hij creëerde deze wereld in al zijn verscheidenheid. Hij bracht verscheidenheid, en Shri Krishna is er de meester van.
 
@@ -121,64 +115,38 @@ We zullen nu de puja houden.
 
 
 
-
-
-
 [1] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
-
 
 
 [2] maryada’s: begrenzing van het juiste (rechtschapen) gedrag, gedragscode
 
 
-
-
 [3] sampurna: volledig
-
-
 
 
 [4] kala’s: maanfasen
 
 
-
-
 [5] Gita of Bhagavad Gita (letterlijk ‘Lied van de Heer’) is onderdeel van een groot episch gedicht genaamd Mahabharata. De Gita is een dialoog tussen Shri Krishna en prins Arjuna (vòòr de grote veldslag van Kurukshetra in India), over het vinden van God en de Spirit (Atma, eeuwige ziel) én daarbij het juiste handelen.
-
-
 
 
 [6] jihad: strijd, Heilige Oorlog
 
 
-
-
 [7] Kurukshetra: naam van de plaats waar de veldslag plaatsvond die verhaald wordt in het epos van de  Mahabharata.
-
-
 
 
 [8] Virata: het kosmische lichaam
 
 
-
-
 [9] adharma: datgene dat tegen het dharma (het rechtschapen gedrag) ingaat
-
-
 
 
 [10] avidya: datgene dat tegen de ‘vidya’, de (zuivere) kennis en waarheid ingaat
 
 
-
-
 [11] Holi: Indiaas kleurenfestival; symboliseert de overwinning van het goede op het kwade, van licht op duisternis, van kennis op onwetendheid, van recht en waarheid op onrecht en onwaarheid. Het Holi-feest is een lente-, nieuwjaars-, en overwinnigsfeest. Het wordt uitbundig gevierd o.a. door elkaar in te smeren met kleurig poeder en/of te besprenkelen met gekleurd water.
 
 
-
-
 [12] nirananda: zuivere vreugde, opperste vreugde
-
 

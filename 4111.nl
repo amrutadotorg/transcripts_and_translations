@@ -4,14 +4,9 @@ Navaratri Puja
 
 Cabella, Italië
 27 september 1998
-&nbsp;
-
-&nbsp;
 
 Engelse transcriptie: IBP reviewed
 Nederlands: reviewed/nagekeken 18/10/2013
-
-&nbsp;
 
 Je kunt je niet voorstellen hoe een moeder met zoveel mooie kinderen zich voelt wanneer zij hen in zo'n vreugdevolle stemming ziet, samenzittend met hun gezinnen en hun kinderen. Het geeft enorm veel voldoening te zien hoe jullie allemaal zo vol vreugde zijn, en zo volledig één met het Goddelijke. Maar één ding moet je beseffen: jullie zijn weliswaar talrijk, maar vergeleken met de wereldbevolking zijn we met zeer weinigen die echt de ware kennis hebben, de werkelijke kennis. Jullie zijn de mensen die kennis hebben, ongetwijfeld; maar kennis die niet getooid is met waarheid – die geen ware kennis is - heeft geen betekenis. Het lost allemaal op in het niets, omdat het kunstmatig is.
 
@@ -147,36 +142,16 @@ Dat is zo belangrijk, want op dit moment in de tijd denken mensen dat er iets he
 
 Moge God jullie zegenen.
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-
-
-
 
 
 [1] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [2] Paramchaitanya: de allesdoordringende kracht van (de liefde van) God
-
-&nbsp;
-
-
 
 
 [3] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht
 
 
-
-
 [4] shloka's:  verzen in het Sanskriet
-
 

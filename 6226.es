@@ -1,6 +1,5 @@
 Felicitaciones de Cumpleaños. Nirmal Dham, Delhi, India. 20 de marzo de 2003.
 
-
 Hoy todo el mundo está intentando hablaros en inglés, porque creo que se dan cuenta de que la mayoría de vosotros lo habláis. Ojalá pudiera deciros algo nuevo sobre la vida. La vida sigue su curso. Es igual si tenéis ochenta o noventa años. Lo único importante es cuánto habéis usado la luz que habéis obtenido en Sahaja Yoga.
 
 Todos vosotros estáis ahora iluminados en Sahaja Yoga. Todas vuestras kundalinis están arriba y creo que lo sabéis casi todo. Pero a pesar de ello, es importante cuánto tiempo dedicáis a la emancipación de los seres humanos, a ayudarles a avanzar. En vez de criticarlos, en vez de condenarlos, vuestro deber es ponerlos en un pedestal más alto, de modo que se respeten a sí mismos y respeten su propia Realización.

@@ -1,6 +1,5 @@
 Shri Guru Puja. Cabella Ligure, Italia. 21 de julio de 2002.
 
-
 [Un gran trueno seguido de aplausos]
 
 En India todos están esperando el monzón y están muy preocupados porque no llueve. Así que, he hecho un bandhan para que llueva, pero ha llovido aquí. [Aplausos. Durante toda la charla llovió mucho y hubo truenos y relámpagos]. Ahora han dicho por la televisión que también va a llover en India, pero primero lo ha hecho en Italia. Me habían dicho que hacía mucha falta que lloviera en Italia, por eso llovió hace algunos días, y ahora tenéis lluvia por segunda vez. Esto sucede porque la lluvia comprende los problemas de nuestros agricultores, y es tan amable que actúa en el momento preciso. Estoy asombrada ante la obediencia y la rápida respuesta de la lluvia.

@@ -1,6 +1,5 @@
 Puja de Pascua. Prathistan, Pune, India. 8 de abril de 2007.
 
-
 Hoy es un día muy importante. Supone un nuevo comienzo para todos vosotros. Tratad de entender que habéis trabajado muy duro hasta ahora y que queríais hacer mucho más de lo que habríais sido capaces de hacer. Ese era vuestro deseo y se cumplirá, definitivamente se hará realidad. Si vuestro deseo es fuerte las cosas funcionarán y tendréis la gran oportunidad de ayudar a la gente, al igual que vosotros tuvisteis ayuda y os sentisteis felices por ello.
 
 Es mejor que decidáis ayudar a otros. Es importante que todos ellos sean bendecidos. Podéis hacerlo. Ahí reside vuestro liderazgo, el ir por delante, en que tenéis que dar la Realización a los demás. La mayoría la habéis conseguido por vosotros mismos, pero debéis darla a otros. Permitid que el resto de la gente también alcance su espiritualidad. Sé que muchos de vosotros habéis logrado la Realización y estáis muy en ello; todos sois muy felices, así que, estad contentos y alegres. Esa es la primera señal de que sois realizados, de que tenéis la Realización. Gracias a ella podéis darla a otros.

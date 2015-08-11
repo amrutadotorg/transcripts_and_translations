@@ -9,8 +9,6 @@ Shudy Camps
 Engelse transcriptie: IBP verified
 Nederlands: reviewed/nagekeken 29/06/2012
 
-&nbsp;
-
 Dit jaar zullen er volgens mij geen publieke programma’s doorgaan in het Verenigd Koninkrijk, door bepaalde omstandigheden. Altijd wanneer er zich een situatie voordoet die op de één of andere manier een invloed heeft op onze programma’s, moeten we onmiddellijk beseffen dat er een (onderliggende) reden is voor al deze veranderingen. En dat moet je onmiddellijk accepteren, met een open hart. Het Goddelijke wil dat we veranderen. Als ik bijvoorbeeld een weg neem, en mensen zeggen: “U bent op de verkeerde weg, Moeder”, dan is dat niet erg. Ik ben nooit verdwaald, want ik ben bij mezelf. Maar ik moest die specifieke weg nemen, dat is het punt. Ik moest het doen. Ik was dus voorbestemd om niet die andere weg te nemen, en daarom nam ik de verkeerde weg. Als je dat inzicht hebt, en als je die zekerheid in je hart hebt, dan zul je ontdekken dat het leven veel meer waard is dan je ooit had kunnen denken.
 
 Daarom vroeg ik me ook af wat de reden was dat we besloten hadden om dit jaar absoluut publieke programma’s te geven, maar dat de publieke programma’s niet konden doorgaan. En de reden is dat we sterker moeten worden. In het groeiproces van een boom – een levende boom – gebeurt het zo dat hij tot zekere hoogte in een bepaalde richting groeit, totdat hij van koers moet veranderen; doordat er geen zon is aan die kant, of misschien omdat het waterniveau er niet hoog genoeg is – daarom verandert hij van richting. Op die manier moeten wij ook beseffen dat we ons in de handen van het Goddelijke bevinden. En als onze plannen gewijzigd worden dan heeft dit een weerslag op ons, en moeten we uitzoeken hoe dit komt. En de reden is dat we sterker moeten worden.
@@ -125,34 +123,18 @@ Moge God jullie zegenen. Dank jullie zeer.
 
 Dan kunnen jullie nu die foto doorgeven om mensen te laten zien dat ze heiligen zijn. Waar is de foto, wie heeft de foto? Ja, geef het maar door, laat mensen zien dat ze allemaal heilig verklaard zijn.
 
-&nbsp;
-
 Ik denk dat jullie nu kunnen dineren, en na het avondeten zal er een muziekprogramma zijn. Goed; is dat een goed idee?
-
-&nbsp;
-
-
-
 
 
 
 [1] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 
-
-
 [2] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
-
-
 
 
 [3] maya: illusie, onwerkelijkheid
 
-&nbsp;
-
-
-
 
 [4] bandhan: bescherming
-
 

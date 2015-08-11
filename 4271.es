@@ -1,6 +1,5 @@
 Mahashivaratri Puja. Sahaja Yoga Temple, Delhi, India. 11 de febrero de 1983.
 
-
 Me alegro de que os hayáis podido acomodar todos en este lugar tan pequeño. Cuando hay amor y comprensión, un pequeño lugar puede acoger a muchos corazones. Pero cuando no tenemos un gran corazón, consigamos lo que consigamos nunca es suficiente. Hoy vamos a adorar al Shiva Tattwa en nuestro interior, al Principio de Shiva. Es muy importante para todos los sahaja yoguis, porque Shiva es la "Meta suprema" que tenemos que alcanzar. Shiva está representado en nuestro Espíritu, de modo que, convertirse en Shiva es el objetivo final que tenemos que alcanzar.
 
 Todo lo demás como el Vishnu Tattwa y Brahmadeva, fueron formados simplemente para crear a los seres humanos, para hacerles evolucionar y para, finalmente, conducirlos a Shiva. Esta es nuestra meta suprema. Pero los seres humanos se involucran tanto en el Brahmadeva Tattwa que incluso llegar al Vishnu Tattwa les resulta difícil. Se implican en los cinco elementos que nos han creado, que son lo más superficial en nosotros. Todos los chakras son solo lo superficial, simplemente el recipiente, pero el deseo de ser el Espíritu es de una importancia primordial en Sahaja Yoga. Así que, tenemos que mirar en nuestro interior y ver si, como sahaja yoguis, tenemos únicamente este deseo o estamos aún enganchados a otros muchos deseos.

@@ -1,6 +1,5 @@
 Shri Guru Puja. Shuddy Camps, Reino Unido. 13 de julio de 1987.
 
-
 Hoy es un gran día porque estáis aquí, en el reino del corazón del Universo, para adorar al Guru; si podéis hacer esto en vuestro corazón no tendréis que hacer nada más. Hoy también siento que tengo que hablaros de Sahaja Yoga y su valor en relación con otros yogas que fueron aceptados en tiempos antiguos en todo el mundo.
 
 Lo que en un principio se llamó Yoga, (no Sahaja Yoga) comenzó con las distintas prácticas de "Ashtanga Yoga" (el yoga de las ocho dobleces o posturas de Patajali). Dirigidos por un Guru, tenían que pasar por muchas dificultades; a nadie que estuviera casado se le permitía practicar Ashtanga Yoga, tenían que dejar sus familias y todas sus relaciones. Así que, tenían que convertirse en personas absolutamente desapegadas para ir al Guru, y abandonar todas sus propiedades y posesiones. No para dárselas al Guru como ocurre actualmente con los falsos gurus, sino que simplemente se deshacían de ellas. Y a esto se le denominaba Yoga.

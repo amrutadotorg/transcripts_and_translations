@@ -1,6 +1,5 @@
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2002.
 
-
 (Primero habla en hindi, a continuación habla en inglés)
 
 Les estoy hablando del amor, del Amor Omnipresente de Dios Todopoderoso. Él lo ha creado todo, y este sentimiento de amor llena el ambiente por completo. Pero existe solo para aquellos que son inocentes como niños. Si vuestro odio ya se ha desarrollado mucho, entonces no tenéis salvación. Encontraréis diez argumentos que justifiquen ese odio, y llegaréis a cualquier extremo para justificarlo.

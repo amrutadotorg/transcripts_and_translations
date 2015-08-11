@@ -1,6 +1,5 @@
 Sahasrara Puja. Cabella Ligure, Italia. 7 de mayo de 2000.
 
-
 Hace treinta años, cuando el Sahasrara fue abierto, encontré oscuridad por todas partes. La gente era muy ignorante y no eran conscientes de lo que tenían que encontrar. Por supuesto, vi que ellos querían encontrar algo -que era desconocido- pero no sabían qué era eso desconocido, qué era lo que debían encontrar. Eran personas muy ignorantes en lo que respecta a ellos mismos, a lo que les rodeaba y al propósito de sus vidas.
 
 Yo no sabía cómo comenzar a hablar del tema con ellos. Cuando el Sahasrara fue abierto pensé en intentar dar la Realización a una mujer únicamente.

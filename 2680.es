@@ -1,6 +1,5 @@
 Navaratri Puja. Los Ángeles, Estados Unidos. 27 de octubre de 2002.
 
-
 Hoy vamos a adorar a la Diosa. Ella actúa en primer lugar en el lado izquierdo y posteriormente se convierte en la Adi Shakti, en el Sahasrara. Todo lo que hace en el lado izquierdo ha sido descrito, como ya habréis visto; Ella es la memoria y la sabiduría. Y su capacidad protectora se manifiesta cuando utiliza su Poder sobre los ganas.
 
 Como sabemos, existen ganas que son responsables de todo tipo de "correcciones" en vosotros. Estos son los ganas que actúan a través del lado izquierdo. Como sabemos muy bien, el cáncer está causado por los problemas del lado izquierdo. Y en el lado izquierdo se encuentran estos ganas que están en completa armonía con los poderes de la Devi. Ella no les tiene que decir nada ni les tiene que guiar, pues ya han sido creados así. Yo diría que estos ganas son los que localizan el objetivo. Localizan las enfermedades y las curan. Hemos curado a muchos enfermos de cáncer y a muchas personas del lado izquierdo a través de los ganas.

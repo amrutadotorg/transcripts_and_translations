@@ -1,6 +1,5 @@
 Charla a los sahaja yoguis. Brisbane, Australia. 4 de abril de 1991.
 
-
 Yogui: "Siento mucho que solamente un medio de comunicación de Brisbane estuviese interesado".
 
 Shri Mataji: "¿Esperabais muchos?

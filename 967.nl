@@ -2,13 +2,11 @@ Shri Mataji Nirmala Devi
 
 Publiek programma 1
 
-
 Madras, India
 6 december 1991
 
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 25/03/2011
-&nbsp;
 
 Ik buig voor alle zoekers naar de waarheid. Als we echte zoekers naar de waarheid zijn, dan moeten we hier eerlijk over zijn en oprecht, zodat we oprecht zijn ten opzichte van onszelf, en zodat we ons eigen bestaan in deze wereld gerechtvaardigd hebben. Er zijn zoveel sadhaka's[1], van 's ochtends tot 's avonds werken ze aan het één of ander ritueel, de één of andere soort van meditatie, een bepaalde soort bhakti[2], een bepaalde soort studie. Maar wat je moet inzien is: wat hebben we bereikt? Waar staan we?
 
@@ -59,8 +57,6 @@ En zolang we niet verbonden zijn met deze kracht kunnen we niet de ultieme reali
 Je kan anderen voelen. Je kan het op je vingertoppen voelen, op - er zijn vijf, zes en zeven centra links, en zeven centra rechts. Deze zeven centra vertegenwoordigen je emotionele kant, en deze de lichamelijke en mentale kant. Je kan de centra van alle mensen voelen. Als we op een medische manier mensen behandelen, als we een boom aan de buitenkant behandelen, dan behandelen we de bladeren, kunnen we zeggen. Maar als je werkelijk de boom gaat behandelen dan moet je naar de wortels gaan, en ik heb het over de wortels binnenin ons, de Levensboom die zich binnenin ons bevindt.
 
 Je zal versteld staan dat zelfs Mohammed Sahib ‘kiyama’ heeft beschreven -  kiyama wil zeggen de 'tijd van wederopstanding'. "Wanneer de tijd van wederopstanding zal komen, zullen je handen spreken en tegen je getuigen."
-
-&nbsp;
 
 Ze hebben allemaal over deze tijd gesproken, het Laatste Oordeel, en deze Kali Yuga[13] zal Satya Yuga[14] voortbrengen.
 
@@ -150,96 +146,56 @@ Breng morgen alsjeblieft jullie vragen mee. Breng alsjeblieft jullie vragen mee,
 
 
 
-
-
-
 [1] sadhaka: ‘beoefenaar’; toegewijd aan spirituele voltooiing en vervulling
-
-
 
 
 [2] bhakti: liefdevolle toewijding, devotie
 
 
-
-
 [3] chaitanya: vibraties, kracht van Gods liefde
-
-
 
 
 [4] tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
 
 
-
-
 [5] Veda’s: zeer oude geschriften, ontstaan tussen 1500 en 500 v.C, bestaande uit religieuze hymnen over God(en), spirituele filosofie, het universum, de natuur en de juiste levenswijze. 'Veda' betekent kennis, weten.
-
-
 
 
 [6] sloka: vers in het Sanskriet
 
 
-
-
  [7] maya: illusie
-
-
 
 
  [8] pandit: geleerde
 
 
-
-
  [9] Upanishaden: onderdeel van de hymnen en voorschriften van de Veda’s. Het woord Upanishad betekent letterlijk: ‘neerzitten bij’ en duidt op het zitten van de leerling aan de voeten van de meester.
-
-
 
 
 [10] Patanjal shastra: yogaleer volgens Patanjali
 
 
-
-
 [11] vyayama: oefening, toewijding
-
-
 
 
 [12] Brahmachaitanya: de allesdoordringende kracht en de vibraties van het bewustzijn
 
 
-
-
 [13] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
 
 
-
-
 [14] Satya Yuga: ‘Golden Age’ of ‘Gouden Tijdperk’. De laatste van een cyclus van yuga’s of tijdperken van elk duizend jaar waarin de mensheid zijn volledige glorie bereikt; tevens het begin van een nieuwe cyclus.
-
-&nbsp;
-
-
 
 
 [15] Gyaneshwari: boek, ook gekend als de Bhavarthadpika, waarin Gyaneshwara de Bhagavad Gita vertaalde in Marathi en van commentaar voorzag. In het zesde hoofdstuk beschrijft hij de aard van de Kundalini.
 
 
-
-
 [16] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
-
-
 
 
 [17] Kundalini: primordiale, moederlijke levensenergie, die opgerold in het heiligbeen verblijft
 
 
-
-
 [18] darshan: fysieke aanwezigheid van een goddelijke incarnatie
-
 

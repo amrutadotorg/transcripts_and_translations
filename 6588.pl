@@ -1,6 +1,5 @@
 Publiczny Program. Praga (Czechy), 17 sierpnia 1991.
 
-
 Pierwszy Program Publiczny w Pradze, w Czechach 17 sierpnia 1991 Kłaniam się wszystkim poszukiwaczom prawdy. Na samym początku, muszę wam powiedzieć, że prawda jest tym, czym jest. Nie możemy na jej temat teoretyzować lub jej zmieniać. Niestety, nie możemy jej także poznać poprzez ludzką świadomość. Aby poznać prawdę, musimy stać się subtelniejszą istotą, czyli musimy być Duchem. W tym celu każdy musi zrozumieć, że jest to żywy, ewolucyjny proces. To jest żywe wydarzenie wewnątrz nas, które sprawia, że stajecie się Duchem, za które nie możecie płacić. Nie możecie w to włożyć żadnego wysiłku, to po prostu działa, ponieważ jesteście poszukiwaczami prawdy. Cokolwiek wam mówię, musicie tego słuchać z otwartym umysłem naukowca. Jeśli ta prawda została udowodniona, to jako uczciwi ludzie będziecie musieli ją zaakceptować, ponieważ to jest dla waszego dobra i dla dobra całego świata. Widzimy tutaj piękne kwiaty i bierzemy je za coś oczywistego. Nawet nie myślimy, że one po prostu pochodzą od małych nasionek. Spójrzcie na swoje oczy, cóż to jest za mikro-kamera a bierzemy to za coś oczywistego.
 
 Więc trzeba zrozumieć, że istnieje jakaś siła, która wykonuje tę żywą pracę.

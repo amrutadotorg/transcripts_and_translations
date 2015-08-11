@@ -1,6 +1,5 @@
 Puja de Pascua. Sídney, Australia. 31 de marzo de 1991.
 
-
 Hoy vamos a adorar aquí a Cristo, que resucitó de la muerte. Existen muchas teorías acerca de su muerte pero, en realidad, después de resucitar fue a India donde se estableció con su Madre. El periodo posterior a su resurrección no está descrito en ningún libro. Pero en uno de los Puranas -que habla de los Shalivahanas, uno de los reyes, a cuya dinastía pertenezco yo- se describe cómo este rey se encontró con Cristo en Kashmir y le preguntó: "¿Cuál es tu nombre?" Él dijo: "Mi nombre es Issa". Entonces le preguntó: "¿De qué país vienes, de qué lugar?" Él dijo: "Vengo de un país que es extranjero para ti y para mí y ahora estoy aquí que es mi verdadero país".
 
 Pienso que, de este modo, Él apreció India. Él solía curar allí a la gente. Su tumba y la tumba de su Madre también están allí.

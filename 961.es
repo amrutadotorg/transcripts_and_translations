@@ -1,6 +1,5 @@
 2º programa público en Madrás. India. 7 de diciembre de 1991.
 
-
 Me inclino ante todos los buscadores de la Verdad. Antes que nada, ayer os dije que la Verdad es lo que es. Si no hemos encontrado la verdad deberíamos ser humildes y sinceros sobre ello, porque la verdad es para nuestro bien, para el bien de nuestra ciudad, de nuestra sociedad, de nuestro país y de todo el universo.
 
 Es un momento muy especial este, en el que habéis nacido todos vosotros, en el que la gente ha de conseguir su autorrealización. Esta es la Era de la Resurrección de la que habla la Biblia; es la era de Kyama de la que hablaba Mahoma. Este es un momento muy especial en el que Nala, (como sabéis: "Nala damayanthi akhyan") Nala se enfrentó a Kali. Se enfadó mucho con Kali y le dijo: "Has destruido a mi familia, has destruido mi paz y has llevado a la gente a bhram, a las ilusiones, así que, es mejor que te mate". Desafió a Kali diciendo: "¡Deberías desaparecer para siempre!"

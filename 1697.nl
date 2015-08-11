@@ -4,10 +4,9 @@ Birthday Puja
  
 Sydney, Australië
 21 maart 1990
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 15/03/2013
-&nbsp;
 
 Wat een enthousiasme overal! Ik denk dat heel Sydney onder hun bloemen bedolven werd. En zulke mooie woorden, de kaartjes en de brieven en de prachtige gedichten, de kinderen zingen zo mooi. Er zijn geen woorden om de gevoelens uit te drukken van zo’n uitbundigheid en zo’n oprecht gevoel van geluk.
 
@@ -91,35 +90,19 @@ Volgend jaar hoop ik dat jullie er allemaal zullen zijn voor mijn verjaardag in 
 
 Het zou beter zijn om voor de puja jezelf een bandhan geven, zeven keer, en dan je Kundalini omhoog te brengen.
 
-&nbsp;
-
-
-
-
 
 
 [1] maharishi: grote ziener, wijze, heilige
 
 
-
-
 [2] a-sahaj: niet sahaj, dat wat tegen de cultuur van Sahaja Yoga ingaat; niet spontaan, niet aangeboren
-
-&nbsp;
-
-
 
 
 [3] brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort
 
 
-
-
 [4] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
 
 
-
-
 [5] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
 

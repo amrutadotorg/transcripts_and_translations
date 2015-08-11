@@ -4,10 +4,9 @@ Shri Hanuman Puja
 
 Frankfurt, Duitsland
 31 augustus 1990
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 29/03/2011
-&nbsp;
 
 Jullie kunnen ook hier zitten, sommigen van jullie, dat is goed… Ik denk dat jullie hier kunnen komen, er is plaats. Sommigen van jullie kunnen hier komen zodat zij ook hier kunnen komen, zo zal er geen probleem zijn. Ga jij maar hier vooraan zitten. Dat is beter, zie je. Goed. Open deze deur, dat zou goed zijn. Het is in orde, je kunt de deur openen als je wilt. Het is in orde. Maak hem maar beter open – kunnen deze deuren niet open? Gaan ze niet open? Oh mijn God! Je hebt er een lange persoon voor nodig. Je hebt Hanumana nodig! Zeg zijn naam en hij zal ze openmaken! Zet daar maar een stoel voor.
 
@@ -113,60 +112,32 @@ Dus dit is een mooi stuk. Je zou het daar moeten bewaren… Maar het is gemaakt 
 
 
 
-
-
-
 [1] Virata: het kosmische lichaam
-
-
 
 
 [2] Shri Surya: de zon
 
 
-
-
 [3] siddhi’s: speciale krachten
-
-
 
 
 [4] gadha: de typische ‘knots’, het wapen van Shri Hanuman
 
 
-
-
 [5] endocriene klieren: klieren met inwendige uitscheiding
-
-
 
 
 [6] hypofyse: het hersenaanhangsel
 
 
-
-
 [7] nirvikalpa samadhi: twijfelloos bewustzijn
-
-&nbsp;
-
-
 
 
 [8] shishya: leerling, discipel
-
-&nbsp;
-
-
 
 
 [9]  gheru: tot poeder vermalen rood gesteente
 
 
-
-
 [10] baddha: negativiteit, hindernis, blokkage in een chakra of orgaan
-
-&nbsp;
-
 

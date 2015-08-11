@@ -1,6 +1,5 @@
 Shri Devi Puja. Sídney, Australia. 10 de marzo de 1985.
 
-
 Es muy gozoso ver a tantos sahaja yoguis tan evolucionados. Estoy segura de que todos los dioses y diosas, y Dios Todopoderoso mismo, deben estar rebosantes de gozo al ver este logro, no hay duda de ello. Pero me han dicho que deseáis conocer métodos más elevados o cosas más elevadas, a través de las cuales os gustaría ascender más y más.
 
 Como sabéis, en el estado de Samadhi primero está la conciencia sin pensamientos, que llamamos Nirvichara Samadhi. Después se pasa a otro estado -que se llama Nirvikalpa Samadhi- en el cual estamos en conciencia sin dudas. Este estado se divide en dos estados: Savikalpa y Nirvikalpa. La mayoría de los sahaja yoguis están ahora en Savikalpa, aún no han alcanzado Nirvikalpa. Para elevarse hasta Nirvikalpa debemos entender que debemos hacer algo más.

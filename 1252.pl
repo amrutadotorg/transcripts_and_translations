@@ -1,7 +1,5 @@
 Program Publiczny, Powinniśmy wiedzieć coś więcej, (od Mooladhary do Voidu) 10.07.1982, Derby, Wielka Brytania
 
-
-
 Dziękuję wszystkim Sahaja yoginom z Derbyshire i Birmingham za to, że dali Mi możliwość porozmawiać z miejscowymi poszukiwaczami. Mamy poszukiwaczy we współczesnych czasach to jest coś bardzo wyjątkowego. Nigdy nie mieliśmy ich wcześniej, przynajmniej nie tylu. Było wielu ludzi, którzy szukali pieniędzy, tak samo jak w obecnych czasach jest wielu takich, którzy przeszukują kraj za krajem w poszukiwaniu władzy. Ale było też wielu takich, co poszukiwali tych kilku pereł Boskiej błogości, tylko kilku. Powodem była świadomość, zbiorowa świadomość istot ludzkich, które prawdopodobnie nie zdawały sobie sprawy z możliwości, czy potrzeby poszukiwania. 
 
 Ale dzisiaj jest to tak piękna kombinacja, że urodzili się na tej ziemi poszukiwacze o bardzo wysokiej jakości. Są rzesze poszukiwaczy. To nie jest już tylko jeden lub dwoje ludzi, co siedzą na szczycie góry, w jaskini, czy gdzieś jeszcze i próbują medytować, ale jest tak wielu, którzy szukają, którzy nie są usatysfakcjonowani sobą, ani tym, co mają. Oni myślą, że musi być coś jeszcze ponad tym. Ci, którzy czują, że nie znaleźli jeszcze swojego sensu, ci, którzy czują, że muszą odnaleźć cel swojego istnienia, ci, którzy czują, że jest jakiś wyższy poziom od tego, na jakim są obecnie. Wszyscy tacy ludzie są poszukiwaczami, nie od dziś, lecz od tysiącleci. 

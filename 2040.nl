@@ -105,32 +105,16 @@ Marathi Rahurila
 
 Ik geef dit water aan jullie allemaal, aan alle leiders, en jullie kunnen er ook wat van nemen. Dit water is heel goed voor alle ziektes van de Muladhara chakra.
 
-&nbsp;
-
-
-
-
 
 
 [1] namaskar: (ook wel namaste genoemd) eerbiedige begroeting, waarbij men beide handen ter hoogte van de borst of het hoofd tegen elkaar vouwt en het hoofd buigt; het betekent: ‘Ik buig voor jou’ of ‘Ik groet de Spirit in jou’. De twee tegen elkaar gevouwen handen symboliseren de eenheid van het ‘Zelf’, waarbij de rechterhand het spirituele of onze hogere natuur vertegenwoordigt en de linkerhand het wereldse of ‘lagere’ in onszelf.
 
 
-
-
 [2] Banyanboom: banyan: (ook: banian) vijgenboomsoort; met ‘banyan’ wordt meestal specifiek verwezen naar de Indiase banyan of Ficus benghalensis, de nationale boom van India.
-
-&nbsp;
-
-
 
 
 [3] vibhouti: betekent letterlijk ‘de as waarmee Shiva gedecoreerd is’
 
 
-
-
 [4]          Gyaneshwara: grote heilige en dichter die leefde in de 13de eeuw (1275-97) in Maharashtra, India. Hij  vertaalde o.a. oude spirituele Sanskriet teksten in Marathi zodat deze kennis toegankelijker werd.
-
-&nbsp;
-
 

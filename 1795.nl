@@ -6,8 +6,6 @@ Navaratri Puja
 
 ‘Vernietig de innerlijke demonen’
 
-&nbsp;
-
 Margate, Engeland
 
 8 oktober 1989

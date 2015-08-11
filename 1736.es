@@ -1,6 +1,5 @@
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 1993.
 
-
 Incluso para mí, es difícil hablar al ver a tantos sahaja yoguis de todas partes del mundo aquí sentados, con caras tan brillantes, como si mi visión hubiera tomado forma hoy.
 
 Veo en vosotros la salvación del mañana; quienes vais a salvar al mundo entero de todas las calamidades del Kali Yuga, que nos están rodeando por todas partes y que vienen en todas las direcciones. Sin embargo, vosotros habéis recibido vuestro segundo nacimiento en este "estanque" del Kali Yuga, y os habéis convertido en hermosos lotos de colores diferentes, de gran fragancia y belleza.

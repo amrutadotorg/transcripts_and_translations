@@ -57,7 +57,3 @@ Zadbamy o wasze dzieci, nie martwicie się.
 
 Niech was Bóg błogosławi. 
 
-
-
-
-

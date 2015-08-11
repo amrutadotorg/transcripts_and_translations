@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Sahasrara Puja
 ‘Meditatie is de enige weg’
 
-
 Cabella Ligure, Italië
 10 mei 1998
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 12/12/2008
-&nbsp;
 
 Vandaag is het een grote dag omdat de Sahasrara dag en moederdag samenvallen. Dat is een zeer sahaj[1] gebeurtenis denk ik, en zo moeten we ook begrijpen hoe de Sahasrara en het moederschap samengaan.
 
@@ -119,69 +117,41 @@ Maar op de eerste plaats komt jouw Sahasrara. Alleen je Sahasrara kan het licht 
 
 Wij zijn degenen die de Satya Yuga zullen ondersteunen en er voor zullen zorgen. En daarom is het openen van de Sahasrara zeer belangrijk, zeer belangrijk. Het is zeer belangrijk. En degenen die willen groeien, zouden elke dag moeten mediteren. Hoe laat je ook thuiskomt, misschien ‘s morgens, misschien ‘s avonds, eender wanneer. Je zal weten dat je mediteert wanneer je in gedachteloos bewustzijn kan geraken, dan zal je het weten. Je reactie zal herleid zijn tot nul. Kijk naar iets, je zal er gewoon naar kijken, je zal niet reageren, want je bent gedachteloos. Je zal niet reageren. Als die reactie er niet is, dan is alles, tot je eigen verrassing, goddelijk. Want reactie is een probleem van je Agnya. Eens je volledig gedachteloos bewust bent, ben je één met het Goddelijke. In die mate dat het Goddelijke elke activiteit, elk moment van je leven overneemt en voor je zorgt. En je voelt je volledig veilig, één met het Goddelijke, en je geniet van de zegeningen van het Goddelijke.
 
-&nbsp;
-
 Moge God jullie zegenen.
 
-&nbsp;
-
 We hebben hier zoveel kinderen. Ik weet niet wat te doen met al deze kinderen hier. Ze kunnen gewoon op het podium komen en ze kunnen het lied van Shri Ganesha zingen.
-
-
-
 
 
 
 [1] Sahaj: ‘sahaja’, spontaan, aangeboren
 
 
-
-
 [2] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
-
 
 
 [3] peetha: plaats, ‘zetel’ van een chakra
 
 
-
-
 [4] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
-
-
 
 
 [5] Gita, Bhagavad gita: letterlijk ‘Lied van de Heer’; onderdeel van het grote episch gedicht genoemd ‘Mahabharata’. De gita is een dialoog tussen Shri Krishna en prins Arjuna vòòr de grote veldslag van Kuruksetra (India) over het vinden van God en de Spirit (Atma, eeuwige ziel) én daarbij het juiste handelen.
 
 
-
-
 [6] Bija mantra: ‘bija’ betekent ‘zaad’; Bija mantra’s zijn zeer oude, oorspronkelijke mantra’s gebaseerd op de klanken die de Kundalini voortbrengt wanneer ze opstijgt en doorheen de verschillende chakra’s gaat. Voor elke chakra bestaan er een aantal specifieke ‘bija mantra’s’ die diep inwerken op het subtiele lichaam.
-
-
 
 
 [7] Ham: ”Ik ben (de Spirit)”; Bija mantra voor het ego (maakt nederig)
 
 
-
-
 [8] Ksham (soms ook Kshum geschreven): ”Ik vergeef”; Bija mantra voor het superego
-
-
 
 
 [9] samadhi: ‘sama’ betekent ‘verlichting’; ‘dhi’ betekent ‘bewustzijn’. In de staat van ‘samadhi’ wordt het individuele bewustzijn volledig één met het Goddelijke. In vroegere tijden zonderden heiligen of yogi’s zich vaak voor lange tijd af om te sterven in ‘samadhi’.
 
 
-
-
 [10] punya’s: de vruchten van goede daden in ons leven, die bijdragen aan het Karma ( = universele principe van actie en reactie; “wat men zaait, zal men oogsten”)
 
 
-
-
 [11] Satya Yuga: ‘Golden Age’ of ‘Gouden Tijdperk’. De laatste van een cyclus van yuga’s of tijdperken van elk duizend jaar waarin de mensheid zijn volledige glorie bereikt; tevens het begin van een nieuwe cyclus.
-
 

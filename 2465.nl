@@ -4,10 +4,9 @@ Guru Puja
 
 Cabella Ligure, Italië
 4 juli 2004
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 16/07/2010
-&nbsp;
 
 Het doet me veel plezier, het geeft heel veel vreugde om zoveel Sahaja yogi's te zien voor de Guru Puja. Het doet me veel genoegen te bedenken dat er zovelen zijn, zoveel van jullie die volgelingen zijn.
 
@@ -39,9 +38,5 @@ Moge God jullie zegenen!
 
 
 
-
-
-
 [1] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
-
 

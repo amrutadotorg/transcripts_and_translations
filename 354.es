@@ -1,6 +1,5 @@
 Sahasrara Puja. Cabella Ligure, Italia. 9 de mayo de 2004.
 
-
 Hoy es un día muy importante en nuestras vidas como sahaja yoguis. Es el día en el que se abrió el Sahasrara y, lo que ocurrió, fue algo muy especial y significativo. Yo nunca creí que podría hacerlo en esta vida, pero así ha sido y ahora sois muchos los que tenéis el Sahasrara abierto. Sin ello, nunca habríais podido conocer la Verdad. Estabais todos perdidos, como todo el mundo.
 
 En primer lugar, a través del Sahasrara es la única manera en que podemos percibir, comprender y conocer la Realidad. Ya habéis logrado saber qué es la Realidad y ahora disfrutáis de ese estado en el que conocéis la Realidad.

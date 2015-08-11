@@ -3,7 +3,7 @@ Shri Mataji Nirmala Devi
 Paas Puja
 Temple of all Faiths, Londen
 22 april 1984
-&nbsp;
+
 Engelse transcriptie: IBP reviewed
 Nederlands: eindversie 07/05/2013
 Vandaag vieren we de verrijzenis van Christus. Tegelijkertijd moeten we de verrijzenis van de mensen vieren, van Sahaja yogi's die als gerealiseerde zielen verrezen zijn. We moeten zo begrijpen dat we daarmee een nieuw bewustzijn betreden. Voor Christus was het niet nodig om in een nieuw bewustzijn binnen te treden. Hij moest afdalen en deze wereld weer laten zien dat je het eeuwige leven bent, dat je een leven leidt dat spiritueel is, dat nooit vergaat. Je moet opstijgen in dat nieuwe domein, dat het domein van God Almachtig is, dat je het Koninkrijk van God noemt. En hij zei heel duidelijk tegen Nicodemus: "Je moet opnieuw geboren worden" toen deze vroeg: "Moet ik terugkeren in de schoot van mijn moeder om herboren te worden?" En hij zei het zo duidelijk! Het is zo duidelijk. Zij die het niet willen zien, kunnen blind blijven, maar hij zei heel duidelijk dat: "Neen, het is zo dat wat uit het vlees geboren is, het vlees is, maar wat uit de Spirit[1] is geboren, is de Spirit." Ik bedoel, het kon niet duidelijker zijn dan dat: het moet 'uit de Spirit' geboren worden.
@@ -62,74 +62,44 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [2] Panchanga's: astronomische en astrologische publicatie of kalender die gebruikt wordt om het meest gunstige moment voor belangrijke ondernemingen te voorspellen of te berekenen.
 
 
-
-
 [3] nirvichara: gedachteloos bewustzijn
-
-
 
 
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
 
-
-
 [5] maryada's: begrenzing van het juiste (rechtschapen) gedrag, gedragscode
-
-
 
 
 [6] vishaya shaithilya: de ontspanning van (het reageren van) de zintuigen, het kunnen waarnemen zonder gedachten
 
 
-
-
 [7] tapa: boetedoening, vrome soberheid, ascetisme
-
-
 
 
 [8] jihad: strijd, Heilige Oorlog
 
 
-
-
 [9] ayudha's: goddelijke wapens
-
-
 
 
 [10] ghee: geklaarde boter; boter ontdaan van zijn onzuiverheden
 
 
-
-
 [11]  mauni: de gelofte afleggen om niet te praten
-
-
 
 
 [12]  ilaj: behandeling, herstel
 
 
-
-
 [13]  maun: rustig, stil, zonder te praten
 
 
-
-
 [14] nirikshana: weten wat het is
-
 

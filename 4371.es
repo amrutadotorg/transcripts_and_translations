@@ -1,6 +1,5 @@
 Día de Felicitaciones. Delhi, India. 23 de marzo de 2002.
 
-
 Este acto de felicitación me resulta un poco embarazoso, porque desde que nací soy una persona extremadamente sencilla, siempre he sido así. No entiendo de dinero ni de odio, ni de codicia. Soy una persona muy sencilla en ese sentido. A pesar de eso, vosotros vinisteis y recibisteis la Realización. El logro es vuestro. Se han cumplido vuestros deseos.
 
 Hoy en día muchos niños nacen ya realizados. Creo que este momento tenía que llegar, y que todo esto tenía que ocurrir a lo largo de mi vida. Creo que todos tuvimos una responsabilidad determinada. Como Shri Rama, luego Shri Krishna, luego Jesús, y todos los demás. Era su tiempo. En mi tiempo tengo que daros la Realización. Pero debo decir que todos la habéis aceptado de todo corazón, y de una forma muy dulce, y que estáis usando vuestros poderes para amar y transformar a los demás.

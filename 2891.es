@@ -1,6 +1,5 @@
 Shri Ekadesha Rudra Puja. Moedling, Austria. 8 de junio de 1988.
 
-
 Hoy es un día muy importante en la historia de la espiritualidad. La encarnación de Ekadesha Rudra fue profetizada por todos los profetas. Se profetizó que Ekadesha Rudra vendría y destruiría toda la negatividad y todas las actividades en contra de Dios.
 
 En realidad el principio de Ekadesha fue constituido en el Vacío porque, cuando los santos querían cruzar el océano de ilusión a través de su meditación eran entorpecidos, molestados, torturados y masacrados por las fuerzas negativas.

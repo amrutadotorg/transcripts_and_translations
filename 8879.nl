@@ -5,12 +5,8 @@
 
 13 oktober 2007, Sydney, Australië
 
-&nbsp;
-
 Engelse transcriptie: IBP verified
 Nederlands: reviewed/nagekeken 05/10/2010
-
-&nbsp;
 
 Kom ook hier, kom binnen, ga hier zitten, die andere ook… [pratend tegen mensen], kom naar voren! Er zijn mensen die niet konden gaan zitten. Kun je gaan kijken of iedereen binnen is?
 

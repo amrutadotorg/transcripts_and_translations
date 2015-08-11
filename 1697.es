@@ -1,6 +1,5 @@
 Puja de Cumpleaños. Sídney, Australia. 21 de marzo de 1990.
 
-
 Tal entusiasmo en el mundo entero. Creo que todo Sídney se ha inundado de flores. Habéis dicho cosas tan bonitas…, las tarjetas, las cartas y los hermosos poemas; los niños cantan tan bien… Las palabras no logran expresar tal sentimiento de júbilo y sincera felicidad.
 
 Necesitabais una Madre que cuidara de vosotros, que se preocupara por vosotros y que pudiera transformaros con mucha sabiduría. Cada cumpleaños veo que los sahaja yoguis también están ensanchando sus corazones y se van dando cuenta de que ya no son gotas, sino parte esencial del océano. Y que el océano mismo les va a fortalecer y les va a cuidar. Es el océano el que les va a nutrir. Y el mismo océano es el que los va a guiar. Por tanto, la conexión entre la gota y el océano ha de establecerse totalmente, de modo que las limitaciones de la gota se disuelvan por completo en la grandeza del océano.

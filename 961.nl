@@ -1,15 +1,12 @@
 Shri Mataji Nirmala Devi
 
-
 Publiek programma 2
-
 
 Madras, India
 7 december 1991
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 09/12/2009
-&nbsp;
 
 Ik buig voor alle zoekers naar de waarheid.
 
@@ -287,239 +284,143 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] Qiyama: benaming die in de Koran gegeven wordt aan ‘de Tijd van Wederopstanding’ of Verrijzenis
-
-
 
 
 [2] bhram: verkeerd begrip, misvatting, misverstand
 
 
-
-
 [3] Atma sakshatkara: zelfrealisatie, verlichting
-
-
 
 
 [4] shastra's: spirituele geschriften, leer, in het bijzonder kennis die gebaseerd is op tijdloze, universele principes
 
 
-
-
 [5] Nadigranth: boek geschreven door de eerste grote astroloog Bhrigumuni, waarin hij duidelijke voorspellingen maakte over het leven en het werk van Shri Mataji.
-
-
 
 
 [6] Gyaneshwara: grote heilige en dichter die leefde van 1275 tot 1297 AC in Maharashtra, India. Hij vertaalde o.a. oude spirituele Sanskriet teksten in het Marathi zodat deze kennis toegankelijker werd.
 
 
-
-
 [7] samadhi: ‘sama’ betekent ‘verlichting’; ‘dhi’ betekent ‘bewustzijn’. In de staat van ‘samadhi’ wordt het individuele bewustzijn volledig één met het Goddelijke. In vroegere tijden zonderden heiligen of yogi’s zich vaak voor lange tijd af om te sterven in ‘samadhi’.
-
-
 
 
 [8]  Adi Shankaracharya: Indische heilige, filosoof en dichter (788-820); schreef de ‘Saundarya Lahiri’, waarvan elk couplet een mantra is ter ere van de Moeder.
 
 
-
-
 [9] Atma:de Spirit, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [10] dharmisch: volgens het dharma (rechtschapen gedrag)
 
 
-
-
 [11] tattwa: een element, de essentie, het principe
-
-
 
 
 [12] Aum of Om: de oerklank die ontstond bij de splitsing van Sadashiva (God Almachtig) en de Adi Shakti (Oermoeder) aan het begin van de schepping. Deze klank wordt voorgesteld door het Sanskriet letterteken Omkara (\).
 
 
-
-
 [13] swastika: eeuwenoud, voorspoedbrengend symbool van zuiverheid en wijsheid; symbool van de Muladhara chakra.
-
-
 
 
 [14] Sadashiva: God Almachtig
 
 
-
-
 [15] nirvichara samadhi: gedachteloos bewustzijn
-
-
 
 
 [16] ankur, ankura: kiem
 
 
-
-
 [17] Brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort
-
-
 
 
 [18] pitha of peetha: plaats, ‘zetel’ van een chakra (‘troon’ van een godheid) op het hoofd
 
 
-
-
 [19] chaitanya: vibraties, kracht van Gods liefde
-
-
 
 
 [20] chitta: (verlichte) aandacht
 
 
-
-
 [21] darshan: fysieke aanwezigheid van een goddelijke incarnatie
-
-
 
 
 [22] bhakta: toegewijde volgeling
 
 
-
-
 [23] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
-
 
 
 [24] nirvikalpa: twijfelloos bewustzijn
 
 
-
-
 [25] sadhana: praktijk van devotie
-
-
 
 
 [26] sahaj, sahaja: spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 
-
-
 [27] ritambhara pragya: innerlijke, verlichte kennis van goddelijke liefde; kennis over de aard van de natuur, verandering van de seizoenen,… Een nieuwe staat van ‘zijn’, mogelijk gemaakt door Shri Mataji, waarbij we overal datgene wat we vereren kunnen zien, voelen en ervaren.
-
-
 
 
 [28] bhakti: liefdevolle toewijding, devotie
 
 
-
-
 [29] rakshasa: demon, incarnatie van negatieve of duivelse krachten
-
-
 
 
 [30] adharmisch: dat wat tegen het dharma ingaat, anti-dharma, onrechtschapen
 
 
-
-
 [31] dharmateet: voorbij het dharma, het dharma overstijgend
-
-
 
 
 [32] guna’s: energiekanalen
 
 
-
-
 [33] gunateet: voorbij de guna’s; de beweging tussen linker-, rechter- en middenkanaal overstijgend
-
-
 
 
 [34] sanyasi: asceet, bedelaar
 
 
-
-
 [35] Lakshmi chit(ta): verlichte aandacht vanuit het Lakshmi principe. Shri Lakshmi is het goddelijke aspect dat staat voor welzijn en voorspoed.
-
-
 
 
 [36] pranayama: ademhalingstechnieken waarbij gewerkt wordt met ‘prana’; op de juiste wijze toegepast brengt dit evenwicht tussen het linker- en rechterkanaal
 
 
-
-
 [37] prana: vitale levensstroom; uitdrukking van de kracht van het rechterkanaal (Mahasaraswati)
-
-
 
 
 [38] Aumkara of Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\).
 
 
-
-
 [39] moksha: bevrijding, gelukzaligheid
-
-
 
 
 [40] Brahma: energie van de Schepping
 
 
-
-
 [41] prasanna: vreugdevol
-
-
 
 
 [42] taloo, talu: fontanelbeen op de top van de schedel
 
 
-
-
 [43] mala: gebedssnoer van kralen
-
-
 
 
 [44] prasanna chitta: vreugdevolle persoonlijkheid
 
 
-
-
 [45] Satguru: werkelijke guru, Adi Guru of oorspronkelijke meester
-
-
 
 
 [46] avidya: datgene dat tegen de ‘vidya’, de (zuivere) kennis en waarheid ingaat; spirituele onwetendheid
 
 
-
-
 [47] vidya: zuivere, goddelijke kennis
-
 

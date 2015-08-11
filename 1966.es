@@ -1,6 +1,5 @@
 Diwali Puja. Noida, India. 10 de noviembre de 2007.
 
-
 Feliz Diwali. Os deseo a todos un Diwali muy feliz. Habéis visto estos diferentes tipos de bailes; entended una cosa de ellos que, quienquiera que los haya escrito o explicado, todos dicen lo mismo. Lo más grande que dijeron fue que el Paramatma es Uno. Ellos han encarnado en diferentes formas, los avatares, pero el Paramatma es Uno.
 
 No hubo ninguna discusión entre ellos, vinieron a este mundo para la destrucción del mal y para matar a la gente perversa; y esto está pasando. Estoy viendo en todas partes que esta gente maligna está siendo desenmascarada y ahora también es vuestro deber el aseguraros de que todos los que son malvados, aquellos que están trabajando contra el Paramatma y que están preparados para hacer cualquier cosa, solo para ganar dinero, todos ellos vayan al infierno.

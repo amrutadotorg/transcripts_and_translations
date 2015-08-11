@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Sahasraradag Puja
 ‘Het werk van Mahamaya’
 
-
 Cabella Ligure, Italië
 8 mei 1994
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 11/04/2013
-&nbsp;
 
 Vandaag hebben we een unieke combinatie van Moederdag in verschillende landen en Sahasrara dag voor de Sahaja yogi's. Ik vind dat dit de belangrijkste dag is in de geschiedenis van de menselijke evolutie, want alle andere gebeurtenissen, incarnaties en ondernemingen in de spirituele atmosfeer hebben nergens toe geleid. Integendeel, ze zijn zelfs in een bepaald soort cocon zonder deur(opening) beland, waar ze tegen de muren beuken en problemen creëren uit iets dat zo zuiver is en zo onwaarschijnlijk mooi op spiritueel vlak. Het is onmogelijk fouten te vinden bij de incarnaties uit wiens naam alle religies ontstonden. Maar als je het mij vraagt is deze cocon de mahamaya[1]. Deze cocon is niets anders dan onwetendheid. We kunnen zeggen dat maya[2], Mahamaya[3] het niet creëert. Deze cocon werd gecreëerd door de fundamentele onwetendheid van de mensen, en door hun misidentificaties.
 
@@ -91,91 +89,53 @@ Nu zullen we eerst een kleine Ganesha Puja houden en dan Sahasrara Puja.
 
 
 
-
-
-
 [1] mahamaya: grote (opperste) illusie
-
-
 
 
 [2] maya: illusie
 
 
-
-
 [3]  Mahamaya: de verschijningsvorm of fysieke manifestatie van Shri Adi Shakti op de aarde
 
 
-
-
 [4] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging
-
-&nbsp;
-
-
 
 
 [5] nirakara: vormeloos; de niet-fysieke vorm van Shri Adi Shakti
 
 
-
-
 [6] Virata: het grote Kosmische Lichaam; manifestatie van God
-
-
 
 
 [7] Viratangana: de kracht/de plaats van de Virata (het Kosmische Lichaam) in de hersenen
 
 
-
-
 [8] Leela: het spel van het leven; het Goddelijke spel
-
-
 
 
 [9] Leeladhara: kwaliteit van Shri Krishna, ‘de meester van het levensspel’
 
 
-
-
 [10]          Paramchaitanya: de allesdoordringende kracht van God
-
-
 
 
 [11] Mahamaya swarupa: de incarnatie of belichaming van Mahamaya
 
 
-
-
 [12] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
-
-
 
 
 [13] sushupti staat: staat van zeer diepe slaap
 
 
-
-
 [14] rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
-
-
 
 
 [15] nirananda: zuivere vreugde, opperste vreugde
 
 
-
-
 [16] ananda: vreugde
 
 
-
-
 [17] brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort; zetel van de Hart chakra op het hoofd
-
 

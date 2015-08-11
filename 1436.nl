@@ -1,12 +1,8 @@
 Shri Mataji Nirmala Devi
 
-&nbsp;
-
 Shri Adi Shakti Puja
 
 ‘De kracht van liefde’
-
-&nbsp;
 
 Cabella Ligure, Italië
 
@@ -90,8 +86,6 @@ Elf Rudra's zijn ontwaakt, en zij zullen alles wat negatief is vernietigen. Onwe
 Nu kunnen we puja doen. Moge God jullie zegenen.
 
 [1] Adi Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, scheppende kracht van het universum, die belichaamd wordt door Shri Mataji; primordiale (oorspronkelijke) kracht
-
-&nbsp;
 
 [2] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt
 

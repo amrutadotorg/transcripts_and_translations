@@ -1,6 +1,5 @@
 Programa público en Viena. Austria. 27 de julio de 1992.
 
-
 Me inclino ante todos los buscadores de la Verdad. Antes que nada debemos saber que la Verdad es lo que es. No podemos imaginarla, pensar sobre ella o conceptualizarla. Desafortunadamente, en este nivel humano tampoco podemos sentirla. Tenemos que convertirnos en seres más sutiles para sentir nuestro Ser sutil. Tenemos que ser el Espíritu. De lo contrario, cualquier cosa sobre la que pensemos no será la Realidad. Para conocer la Realidad hay que ascender a otro nivel de Espíritu.
 
 Veamos lo que es la Verdad. La Verdad es que no sois este cuerpo, ni esta mente, ni vuestros condicionamientos, ni el ego, ni las emociones, sino el puro Espíritu. La segunda Verdad es que hay un Poder Omnipresente de Amor divino, que hace todo el trabajo viviente. Vemos estas hermosas flores; es un milagro, pero lo damos por hecho. Mirad vuestros ojos, que son un milagro en sí; son una cámara fotográfica. Mirad vuestro cerebro, que es como un ordenador. Pero se da por supuesto y no pensamos en ello.

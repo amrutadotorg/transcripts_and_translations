@@ -4,10 +4,9 @@ Paas Puja
 
 Magliano Sabina, Italië
 11 april 1993
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 12/04/2013
-&nbsp;
 
 Vandaag zijn we hier allemaal samengekomen op de top van deze prachtige berg, om de wederopstanding van Christus te vieren.
 
@@ -127,8 +126,6 @@ Er zijn alleen maar kinderen, er zijn zoveel kinderen. Vandaag is de dag van Chr
 
 Zou dat daar passen, of moet je het verplaatsen?
 
-&nbsp;
-
 Deel 2
 
  
@@ -147,40 +144,22 @@ Ik hoop dat al deze concerten jullie ook zullen inspireren om klassieke Indiase 
 
 Moge God jullie allemaal zegenen.
 
-&nbsp;
-
-
-
-
 
 
 [1] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [2] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
-
 
 
 [3] Logos: het ‘Woord’ uit het Johannes evangelie; Om, Aum, Amen, de Logos of het Woord hebben dezelfde betekenis.
 
 
-
-
 [4] swastika: eeuwenoud, voorspoedbrengend symbool van zuiverheid en wijsheid; symbool van de Muladhara chakra.
-
-
 
 
 [5] alfa: eerste letter van het Griekse alfabet (α)
 
 
-
-
 [6] omega: laatste letter van het Griekse alfabet (ω)
-
-&nbsp;
-
 

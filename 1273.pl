@@ -121,14 +121,7 @@ Więc dzisiaj jesteśmy tutaj, aby czcić Shri Ganeshę. Teraz chciałabym, aby�
 
 Teraz powinniście skierować oczy na zieleń, aby polepszyć waszego Ganeshę. A kiedy jest bardzo ciepło, możecie rano chodzić boso po trawie, gdy na trawie jest rosa. Ci, którzy są wyjątkowo nadaktywni powinni stosować wegetariańską dietę, to im pomoże, stać się bardziej zbalansowanymi. Nie fanatycznie, ale więcej jarzyn i jedzenie bardzo małych zwierząt, tak też jest w porządku.
 
-
-
-
-
-
 CD2
-
-
 
 Ale dzisiaj nie mówiłam o Jego vahanie, ponieważ mówiłam o tym w innych wykładach. Jego vahana – Jego pojazd – nie mówiłam o tym, ponieważ mówiłam o tym w Moich innych wykładach o Nim. 
 
@@ -177,5 +170,4 @@ Twoje palce powinny być masowane, twoje palce powinny być masowane w ten spos�
 On czyta. Posłuchaj go. To oznacza obudzenie w nas Chrystusa, obudzenie w nas Shri Ganeshy. 
 
 Radujcie się! 
-
 

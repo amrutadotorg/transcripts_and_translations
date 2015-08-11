@@ -90,49 +90,28 @@ Dank jullie allemaal. Jullie moeten daar allemaal iets aanbrengen. Kom maar! Dan
 
 
 
-
-
-
-
-
 [1] Krita Yuga: overgangstijdperk tussen Kali Yuga en Satya Yuga - Aquariustijdperk of ‘Blossom time’
-
-
 
 
 [2] guru: meester
 
 
-
-
 [3] shariat: het Arabische woord voor de islamitische wet of de wet van God; het betekent letterlijk 'weg naar de bron', ook: 'gebaande weg', 'wet' en 'rite'
-
-
 
 
 [4] primordiale guru of meester: de tien Oorspronkelijke Meesters, die incarneerden op aarde om het dharma te vestigen en te beschermen. Ze verpersoonlijken de kwaliteiten van het meesterschap en die van ‘de leerling’, die in ons subtiele systeem verbonden zijn met de Void.
 
 
-
-
 [5] Guru Tattwa: het guru principe, de essentie van het meesterschap
-
-
 
 
 [6] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [7] avadhuta: krachtige, hooggeëvolueerde gerealiseerde ziel die een meester is
 
 
-
-
 [8] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-
-
 
 
 [9] tantrisch: volgens het tantrisme; leer waarbij de Kundalini als een seksuele energie wordt beschouwd; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
@@ -140,33 +119,20 @@ Dank jullie allemaal. Jullie moeten daar allemaal iets aanbrengen. Kom maar! Dan
  
 
 
-
-
 [10] nirmala vidya: ‘zuivere kennis’ in het Sanskriet
-
-
 
 
 [11] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en  plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
 
 
-
-
 [12] Kundalini shastra: spirituele geschriften, leer, in het bijzonder kennis die gebaseerd is op tijdloze, universele principes, in dit geval met betrekking tot de Kundalini
-
-
 
 
 [13] Kundalini: primordiale, moederlijke levensenergie, die opgerold in het heiligbeen verblijft
 
 
-
-
 [14] madhurya: zachtheid, zoetheid, melodieuze lieflijkeid
 
 
-
-
 [15] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
-
 

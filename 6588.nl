@@ -4,10 +4,9 @@ Shri Mataji Nirmala Devi
 
 Praag, Tsjechische Republiek
 17 augustus 1991
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 08/07/2013
-&nbsp;
 
 Ik buig voor alle zoekers naar de waarheid. Eerst en vooral moet ik jullie zeggen dat de waarheid is wat ze is. We kunnen er geen theorie rond opbouwen en we kunnen haar ook niet veranderen. Helaas kunnen we haar ook niet kennen met behulp van dit menselijke bewustzijn. We moeten een subtieler wezen worden om de waarheid te kunnen ontdekken; met andere woorden, we moeten de Spirit[1] zijn. Daarvoor moet je begrijpen dat dit een evolutionair, levend proces is. Het is een levende gebeurtenis in ons die je verandert in de Spirit, waar je niet voor kunt betalen. Je kunt er ook geen inspanningen voor leveren, maar het werkt gewoon omdat jullie zoekers naar de waarheid zijn.
 
@@ -133,29 +132,17 @@ Zeg hen ook er niet over te spreken. Het gaat je verstand voorbij. Wees stil. Di
 
 
 
-
-
-
 [1] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
-
 
 
 [2] karma: de gevolgen van onze vroegere daden, die vaak generaties lang blijven doorwerken
 
 
-
-
 [3]  Angina (pectoris): drukkend, zwaar of pijnlijk gevoel midden op de borst (angineuze pijn); hartprobleem dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen (vernauwde kransslagader in combinatie met grote lichamelijke inspanning of emoties)
-
-
 
 
 [4]  spondylitis: de ziekte van Bechterew, haken vormende ontsteking van de wervelkolom
 
 
-
-
 [5] Paramchaitanya: de allesdoordringende kracht van God
-
 

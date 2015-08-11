@@ -1,6 +1,5 @@
 Programa público en el Royal Albert Hall. Londres, Reino Unido. 14 de julio de 2001.
 
-
 Me inclino ante todos los buscadores de la Verdad. Algunos de vosotros habéis encontrado la verdad, algunos aún no la habéis descubierto totalmente, y algunos no la habéis descubierto en absoluto. Pero si observáis la situación actual a vuestro alrededor, estaréis de acuerdo en que hoy día hay una gran confusión. Muchos países están siguiendo todo tipo de cosas erróneas. Hay una gran guerra fría, las personas se matan unas a otras, destruyen lugares bellos, se acuchillan la garganta unos a otros sin ninguna razón aparente. Todos ellos son seres humanos creados por Dios. Dios Todopoderoso los ha creado y los ha llevado hasta el nivel de la conciencia humana.
 
 En esta coyuntura uno no puede ver hacia dónde nos estamos dirigiendo colectivamente. ¿Acaso es esto lo que debemos alcanzar? ¿Es este nuestro destino? ¿Es este el destino de los seres humanos? ¿El destruirse unos a otros por un pedazo de tierra o por cualquier otra razón? Pensad en todo el mundo como una unidad y pensad en lo que está sucediendo por todas partes. Todos los días podemos leer en los periódicos noticias horribles acerca de cosas horribles que los seres humanos se hacen unos a otros, sin causa ni razón.

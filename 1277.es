@@ -1,6 +1,5 @@
 Shri Durga Puja. Viena, Austria. 26 de septiembre de 1982.
 
-
 Deberíais haceros todos un bandhan. Es mejor antes del Puja. Hoy es la primera vez que hacemos este puja en este país, en Austria. Este es un país histórico que ha sufrido diferentes sacudidas para aprender muchas lecciones en la vida. Pero los seres humanos son de tal manera que no relacionan las calamidades con sus errores. Por eso continúan repitiendo los mismos errores una y otra vez.
 
 La visita a Viena se retrasó y he llegado el día en el que teníamos que celebrar el cumpleaños de Machindranath (un bebé sahaja yogui). Es muy auspicioso para todos vosotros que hoy haya cumplido su primer año de vida. Le bendigo con todas las flores, las flores más bellas, y con toda la dicha para él y su familia, para todos sus parientes.

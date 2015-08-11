@@ -1,6 +1,5 @@
 Shri Kundalini Puja. Weilburg, Alemania. 11 de agosto de 1991.
 
-
 Hoy nos hemos reunido aquí para hacer el Puja de Adi Kundalini, y también para hacer el Puja a vuestra propia Kundalini.
 
 Antes que nada creo que es muy importante comprender acerca de vuestra Kundalini que autorrealización es autoconocimiento, y la que os da el autoconocimiento es vuestra propia Kundalini porque cuando Ella sube manifiesta los problemas de vuestros chakras. Ahora bien, decimos que la Kundalini es puro deseo, pero no sabemos lo que significa pureza. Quiere decir vuestro deseo casto, que no tiene ninguna lujuria mi orgullo en Ella. Ella es vuestra propia Madre. Este poder está situado en vuestro hueso triangular, es vuestra propia Madre, conoce todo de vosotros, es como una grabadora, y es absoluto conocimiento, porque es muy pura. Sabe lo que no funciona en cualquier chakra que toca, lo sabe con antelación; podemos decir que está bien preparada y se adapta completamente de manera que no tengáis problemas en su despertar. Si un chakra está oprimido espera y se mueve lentamente abriendo este chakra.

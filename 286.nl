@@ -3,13 +3,11 @@ Shri Mataji Nirmala Devi
 Sahasrara Puja
 ‘Het begin van een nieuw tijdperk’
 
-
 Rouen, Frankrijk
 5 mei 1984
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 02/12/2011
-&nbsp;
 
 Het is zo heerlijk voor jullie moeder om zoveel mooie Sahaja yogi's samen te zien, op deze dag van de Sahasrara. Ik denk dat het begintijdperk van Sahaja Yoga nu beëindigd is, en dat er een nieuw is begonnen.
 
@@ -59,64 +57,38 @@ Moge God jullie allemaal zegenen.
 
 
 
-
-
-
 [1] Atma: de Spirit (de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is)
-
-
 
 
 [2] yoga: verbinding, eenheid, eenwording
 
 
-
-
 [3] Adi Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, scheppende kracht van het universum, die belichaamd wordt door Shri Mataji; primordiale (oorspronkelijke) kracht
-
-
 
 
 [4] mahamaya: grote (opperste) illusie
 
 
-
-
 [5] Mahamaya Shakti: de kracht die de maya of illusie belichaamt
-
-
 
 
 [6] Bhakti Gamya: één van de 108 namen van Shri Mataji: ‘Zij die gerealiseerd is door devotie.’
 
 
-
-
 [7] bhakti: liefdevolle toewijding, devotie
-
-
 
 
 [8] Avatar: goddelijke incarnatie; manifestatie van een godheid op de aarde - er zijn vier types incarnaties: de Vader, de Primordiale Meester, de Zoon, de Moeder
 
 
-
-
 [9] bhakta: toegewijde volgeling
-
-
 
 
 [10] kshema: Sanskriet voor ‘welzijn’
 
 
-
-
 [11] pragya: verlichte kennis
 
 
-
-
 [12] tap/tapas: vrome soberheid, ascetisme
-
 

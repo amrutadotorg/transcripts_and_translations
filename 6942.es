@@ -1,6 +1,5 @@
 Seminario: Charla final. Bordi, India. 9 de febrero de 1985.
 
-
 En esta ocasión en que vais a dejarme, es bastante duro escuchar las cualidades con que me describís en vuestra bella canción. Mis palabras están llenas de un sentimiento de extrema tristeza. También siento un gran entusiasmo por nuestros nuevos proyectos y hay algunas ideas que quiero desarrollar mucho más, para establecer lo que describís de mí.
 
 Tal como habéis descrito, ahora también hay muchos rakshasas que han de ser eliminados. Todas las discrepancias de este mundo han de ser eliminadas. Toda la ignorancia y la oscuridad han de ser eliminadas. Es muy fácil destruir este mundo y fue aún más fácil destruir a los demonios y diablos. Pero los tiempos actuales son tan precarios que todos ellos han entrado en el cerebro y en el Sahasrara de muchos buscadores. Por eso, eliminar estas horribles influencias y salvar a los buscadores de las garras de estos demonios es una tarea muy delicada.

@@ -1,27 +1,17 @@
 Shri Mataji Nirmala Devi
 
-&nbsp;
-
 Shri Virata Puja
 
 ‘Wees dynamisch’
 
 ‘We moeten spreken over Sahaja Yoga’
 
-&nbsp;
-
 Connecticut, Verenigde Staten
 
 11 juni 1989
 
-&nbsp;
-
-&nbsp;
-
 Engelse transcriptie: IBP reviewed
 Nederlands: verified/gecontroleerd 16/05/2013
-
-&nbsp;
 
 We hebben besloten om vandaag een Virata Puja te houden in het land van Shri Krishna. Zoals je weet, verloopt de ontwikkeling van Shri Vishnu's manifestatie over tien incarnaties en uiteindelijk manifesteert hij zich als de Virata. De Virata is het brein van het wezen dat God Almachtig kan genoemd worden. Zo wordt het hele centrale zenuwstelsel door Shri Krishna doorlopen als Vishnu, dan als al deze incarnaties, dan als Shri Krishna en uiteindelijk als Virata[1]. Dit is de ontwikkeling van ons brein en wanneer we de Virata vereren, moeten we weten dat wij binnen in ons ook de manifestatie van deze kracht van de Virata hebben. Als Shri Krishna Mahavirata is, dan kunnen we die manifestatie Virata noemen.
 
@@ -121,12 +111,7 @@ Zo wordt er mij verteld dat sommigen teleurgesteld zijn, omdat er niet zoveel Sa
 
 Ik hoop, ik hoop telkens weer dat jullie na deze Virata Puja allemaal op het toneel zullen komen als grote Virata’s.
 
-&nbsp;
-
 Moge God jullie allemaal zegenen.
-
-
-
 
 
 
@@ -135,28 +120,17 @@ Moge God jullie allemaal zegenen.
 Viratangana: de kracht van de Virata in de hersenen
 
 
-
-
 [2]  tapasya: boetedoening; beproevingen die men moet doorstaan om spiritueel te groeien, ascetisme
-
-
 
 
 [3] rishimuni: wijze, visionair denker, ziener (Sanskriet)
 
 
-
-
 [4] Ida (nadi): linker energiekanaal; correspondeert met het (linker) sympathische zenuwstelsel. Kanaal van de emoties en het verleden.
-
-
 
 
 [5] Pingala (nadi): rechter energiekanaal; correspondeert met het (rechter) sympathische zenuwstelsel. Kanaal van actie en toekomstgericht denken.
 
 
-
-
 [6] Sushumna: middenkanaal van het subtiele systeem, kanaal van evolutie, kanaal waarlangs de Kundalini opstijgt, correspondeert met het parasympathische zenuwstelsel.
-
 

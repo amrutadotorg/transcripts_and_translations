@@ -5,7 +5,6 @@ Eerste publiek programma
 Volkshogeschool Margarethen, Wenen, Oostenrijk
 26 september 1982
 
-
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 03/01/2014
 
@@ -127,21 +126,11 @@ Moge God jullie zegenen.
 
 
 
-
-
-
-
-
 [1] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is.
-
-
 
 
 [2] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht.
 
 
-
-
 [3] karma: de gevolgen van onze vroegere daden, die vaak generaties lang blijven doorwerken
-
 

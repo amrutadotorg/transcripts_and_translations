@@ -1,6 +1,5 @@
 Diwali Puja. Lago Piru, Los Ángeles, Estados Unidos. 29 de octubre de 2000.
 
-
 Hoy es un gran día para el mundo entero, porque estamos celebrando este Diwali Puja en América. Es muy importante hacerlo en esta tierra en la que ha habido gente que ha ganado mucho dinero y después se han arruinado por completo.
 
 Cuando hablamos de Diwali, hay que entender por qué en el día del Diwali tenemos todas estas luces y la relación que hay entre las luces y Lakshmi, que nació en el agua, y que está de pie sobre el agua. ¿Por qué se da esta combinación? Como sabemos, el que esté de pie sobre las aguas es símbolo de prosperidad. En la conciencia del ser humano está establecido que puede prosperar. Los animales no prosperan, todos tienen sus maryadas. Los árboles tienen sus maryadas. Solo los seres humanos pueden prosperar. Pero si no tienen el sentido de sus propias maryadas, entonces la prosperidad se pierde y resulta ruinoso para el mundo entero. Por eso están ahí las luces, para que todos los que tienen las bendiciones de Lakshmi logren su iluminación, tengan luz e iluminen también a los demás. Sin embargo, lo que sucede es que cuando la gente obtiene las, así llamadas, bendiciones de Lakshmi, se vuelve ciega y olvida lo que hay detrás de estas bendiciones.

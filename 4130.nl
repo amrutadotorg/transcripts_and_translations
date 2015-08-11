@@ -1,7 +1,5 @@
 Shri Mataji Nirmala Devi
 
-&nbsp;
-
 Navaratri Puja
 
 ‘Erken de Mahamaya’
@@ -15,8 +13,6 @@ Cabella, Italië
  
 Engelse transcriptie: IBP reviewed
 Nederlands: eindversie 15/10/2010
-
-&nbsp;
 
 Vandaag zijn we hier samengekomen om de Navaratri Puja te vieren. Negen keren manifesteerden zich de belangrijkste incarnaties van de Moeder van dit universum. Zij manifesteerden zich met één doel: de bescherming van haar bhakta’s[1], haar leerlingen, haar kinderen. Het was een bindende liefde. Ze kon er niet aan ontsnappen. De liefde van de Moeder is verplichtend. Ze kan er niet aan ontsnappen, ze moet haar liefde manifesteren en die bescherming geven aan al haar kinderen.
 
@@ -78,24 +74,14 @@ Moge God jullie zegenen.
 
 
 
-
-
-
 [1] bhakta: toegewijde volgeling, leerling
-
-
 
 
 [2] Mahamaya: grote (opperste) illusie
 
 
-
-
 [3] sadhana: praktijk van devotie
 
 
-
-
 [4] Adi Shakti: de oorspronkelijke of primordiale vrouwelijke kracht; oermoederkracht
-
 

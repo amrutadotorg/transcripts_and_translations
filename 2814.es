@@ -1,6 +1,5 @@
 Shivaratri Puja. Pune, India. 16 de marzo de 2003.
 
-
 [Charla en inglés]
 
 Hoy vamos a adorar a Shri Shiva, Sadashiva. Su cualidad es que Él es el perdón personificado. La cantidad de perdón que Él tiene nos ha ayudado a existir a muchos de nosotros, de otro modo este mundo habría perecido, muchos habrían desaparecido porque ya sabéis cuál es la condición de los seres humanos. No comprenden lo que está mal y lo que está bien. Además, no pueden perdonar. Continúan cometiendo errores sin importarles. Pero no pueden perdonar a los demás. Eso es lo que tenemos que aprender de Shri Sadashiva.

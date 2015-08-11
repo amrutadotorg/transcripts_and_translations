@@ -1,6 +1,5 @@
 Shivaratri Puja. Puna, India. 17 de marzo de 2002.
 
-
 Hoy nos hemos reunido aquí para celebrar el Shri Shiva Puja. Solo las personas limpias de Corazón pueden hacer este Puja. Un sencillo precepto de Shri Shivaratri es que los que no tienen el Corazón limpio no pueden hacer el Puja a Shri Shiva.
 
 Como pudisteis observar ayer, unas serpientes horribles vigilan detrás del Shiva Linga. Esto significa que el Poder de Shiva, que son las serpientes, siempre protege a las personas de Corazón limpio y llenas de amor por los demás. Es muy simbólico. Pero debo decir que los animales entienden las fuerzas divinas mucho mejor que los seres humanos, porque tienen un corazón limpio. Mantienen la forma de vida propia de su naturaleza. Pero en su corazón no existe la malicia ni los celos, ni ningún sentimiento mezquino. Se comportan de esa forma porque se supone que así debe ser.

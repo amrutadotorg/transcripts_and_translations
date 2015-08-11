@@ -1,6 +1,5 @@
 Puja de Año Nuevo. Kalwe, India. 31 de diciembre de 2001.
 
-
 (Charla en hindi)
 
 Hoy he llegado tarde y el poder de vuestro amor me ha traído hasta aquí. La salud de vuestra Madre está un poco afectada y vuestro deseo es muy fuerte y Yo quiero que vuestro poder de deseo sea aún más fuerte.

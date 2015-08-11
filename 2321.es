@@ -1,6 +1,5 @@
 Shri Krishna Puja. Cabella Ligure, Italia. 1 de septiembre de 1991.
 
-
 Hoy hemos decidido adorar al Yogeshwara. Creo que ese es el nombre más grande de Shri Krishna para nosotros. Significa que Él es el Ishwara del yoga. "Yoga" significa "la unión", como sabéis, con el Divino. Pero también yoga tiene otro significado que es "yukti". En inglés no se puede traducir correctamente, no es posible, podemos decir que significa "el truco", el truco. Pero la palabra truco se usa siempre como algo divertido o malo. Pero este "yukti" significa "la técnica". La técnica es la mecánica, no encuentro ninguna otra palabra apropiada. Se puede decit que es el "saber la técnica" o bien "el truco de la técnica". Este es otro significado de yoga, el "yukti".
 
 Así pues, aunque estéis conectados, si no conocéis el truco de esa unión entonces no tiene sentido, es inútil. Lo que uno ha de aprender después de obtener la Realización no es solo la técnica, sino también el truco de la técnica. Se alcanza al nivel de Krishna, que es una encarnación de Shri Rama. Shri Rama vino como Maryada Purushottama, que se refiere a una persona que es el ideal de las maryadas y el rey benevolente.

@@ -13,8 +13,6 @@ Mechelen, België
 Engelse transcriptie: IBP not verified
 Nederlands: eindversie 03/10/2013
 
-&nbsp;
-
 Het was zo aangenaam om in België te komen en daar zoveel mensen voor ons programma aan te treffen, en ik moet zeggen dat we nu mensen krijgen die heel gevoelig zijn. Ik denk, ik heb het gevoel dat dit een nieuwe dimensie is waarin we binnentreden. Want nu krijgen we echt mensen die oprecht geïnteresseerd zijn in hun zelfrealisatie, en die heel respectvol zijn. En er is veel minder agressiviteit. Er is niemand meer die zich agressief opstelt. Dus kunnen we zeggen dat de weg nu open ligt voor jullie allemaal om dingen uit te werken op een sahaj[1] manier, om hen op de juiste manier in te leiden in Sahaja Yoga en hen te helpen stabiliseren. Deze sahaj manier moet goed begrepen worden. Als mensen naar je toe komen dan moet je, door een sahaj houding, er rekening mee houden dat Sahaja Yoga volledig nieuw is voor hen.
 
 Eerst en vooral zou je het dus niet over mij moeten hebben. Je moet ze niets over mij vertellen; maar vertel hen over Sahaja Yoga en over jezelf. Je kunt bijvoorbeeld zeggen: “Ik had hetzelfde probleem als jij”. Of je kunt zeggen: “Zie je, het heeft mij meer tijd gekost dan jou.” Dat is een kleine leugen, maar dat geeft niet [Shri Mataji lacht]. Want allereerst moet je mensen begrijpen. Als je hen direct zegt: “Je bent slecht” of: “Je bent kwaadaardig, je bent bhootish[2]”, dan zullen ze weglopen, ook al is het de waarheid.
@@ -57,28 +55,16 @@ Voor zover het jullie betreft moet je weten dat Sahaja Yoga niet met het verstan
 
 Moge God jullie zegenen.
 
-&nbsp;
-
 Begin met [de] Ganesha [puja]. De kinderen moeten hier komen en mijn voeten wassen. Nu moet degene die de mantra’s citeert niet gestoord worden. Op dit moment moeten jullie ook denken aan de Sahaja yogi’s van België die in het buitenland zijn. Zoals die twee meisjes die getrouwd zijn. En denk ook aan alle Sahaja yogi’s in de wereld. En je moet naar hen schrijven: “We hebben allemaal aan jullie gedacht.”
 
 Moge God jullie zegenen.
-
-&nbsp;
-
-
-
 
 
 
 [1] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 
-
-
 [2] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 bhootish: negatief, beïnvloed door bhoot(s)
-
-&nbsp;
-
 

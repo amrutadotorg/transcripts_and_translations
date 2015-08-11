@@ -1,6 +1,5 @@
 Shri Mahakali Puja. Bangalore, India. 9 de diciembre de 1991.
 
-
 Ahora habéis venido todos a Bangalore y ayer estuvisteis en Mysore, que fue gobernado por Mahishasura. Por esta razón no comisteis allí, lo que os contrarió. Pero es mejor no comer en sitios así, ¿no?
 
 Bangalore es un lugar muy bello. El clima es muy bueno y estos rakshasas siempre viven en lugares como este. Como Puna, donde como sabéis estaba Rajnish, igual que aquí Mahishasura. Siempre tratan de encontrar lugares que son frescos porque ellos tienen mucho calor en su cuerpo. Como sabéis, aquí hay otro rakshasa que ha de ser desenmascarado. Y a través del Puja de hoy debemos conseguirlo.

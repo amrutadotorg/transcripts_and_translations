@@ -1,6 +1,5 @@
 Shri Guru Puja. Cabella Ligure, Italia. 24 de julio de 1994.
 
-
 Hoy os habéis reunido todos aquí para adorarme como vuestro Guru. Debo decir que carezco de muchas de las cualidades que un guru debería tener, en el sentido de que no puedo ser estricta con vosotros, no puedo ser severa; realmente no sé cómo castigaros si hacéis cosas malas.
 
 Puede que esto se deba a que, normalmente, los gurus tienen problemas con sus discípulos que, en general, no son almas realizadas. Al no ser almas realizadas los gurus sienten que es difícil comunicarse con ellos o hablarles de los problemas sutiles que tienen. Sé de muchos gurus, incluso en los tiempos modernos que han sido muy, muy estrictos. Ellos mismos me dijeron que habían conseguido la Realización trabajando muy duro y sufriendo la dureza estricta de sus gurus. A veces me sentía llena de compasión hacia aquellos discípulos que aún no habían conseguido su Realización. Tenían gurus que eran almas realizadas pero ellos nunca recibieron la Realización. El guru era extremadamente estricto con ellos.

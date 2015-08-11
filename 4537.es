@@ -1,6 +1,5 @@
 Charla a yoguis: "Atención y gozo". Shibir, Bordi, India. 27 de enero de 1977.
 
-
 ... se dispersa mucho y la cuestión es cómo fijar la atención. La calidad de vuestra atención cambia de acuerdo a vuestro estado de evolución.
 
 Entonces ¿dónde está situada la atención en el cuerpo humano?. No es un punto fijo. Podemos decir que la atención es la superficie o el borde de la consciencia. De cualquier cosa que somos conscientes, la atención se desvía hacia ese punto. Podemos utilizar una analogía, todas las limaduras del hierro tienen la cualidad de ser atraídas por un imán. ¿Dónde está esa cualidad? No se puede localizar, está en todas partes. Dondequiera que se coloque el imán, las limaduras son atraídas. Nuestra atención también es así. Dondequiera que seamos atraídos, nuestra atención va allí.

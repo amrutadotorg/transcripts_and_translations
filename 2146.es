@@ -1,6 +1,5 @@
 Navaratri Puja. Cabella Ligure, Italia. 27 de septiembre de 1992.
 
-
 Hoy es el primer día de Navaratri; cuando vi que había mucha lluvia, tormenta y todo tipo de problemas, y que Vishnumaya estaba sugiriendo algo, consulté el calendario y os sorprenderá saber que en el calendario estaba escrito que hasta las 5:45 p.m. no era auspicioso (para el Puja). Después de las 5:45 p.m. era el momento correcto. Ved lo increíble de este cálculo en el calendario, según el cual no debíamos tener el Puja hasta después de las 5:45 p.m. Así que, hoy es el primer día del Navaratri y comienza en Italia o Europa después de las 5:45 p.m.
 
 Por tanto, debéis entender que el Chaitanya hace funcionar todo, os sugiere muchas cosas; porque, de hecho, yo ni consulté el calendario simplemente lo sentí y dije que tendríamos el Puja por la tarde y después vimos que ocurría todo esto.

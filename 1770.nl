@@ -5,10 +5,9 @@ Shri Ganesha Puja
 
 San Diego, Camp Marston, VSA
 7 september 1986
-&nbsp;
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 10/11/2011
-&nbsp;
 
 Vandaag vieren we in het land van Shri Krishna de verjaardag van Shri Ganesha. Het is zo'n unieke gebeurtenis van zo'n grote waarde dat jullie de verjaardag van de zoon van Shri Krishna in zijn eigen land vieren. Je weet dat Shri Ganesha op deze aarde geïncarneerd is als Mahavishnu en hij was ook de zoon van Radha, hij incarneerde als de Heer Jezus Christus. Door vandaag deze verjaardag te vieren erkennen jullie dus de allerhoogste waarheid, namelijk dat de Heer Jezus Christus de zoon van Shri Krishna was.
 
@@ -122,8 +121,6 @@ Sharmila, Sharmadayini, Sharmila, Sharmadayani. Sharmadayani is degene die geluk
 
 Jullie kunnen hier komen om met de puja te helpen.
 
-&nbsp;
-
 Deel 2
 
 En laat de kinderen nu maar bij me komen... Kom nu maar hier om mijn voeten te wassen. Kom maar hier, jullie allebei, kom maar. Rol eerst je mouwen maar op, rol je mouwen netjes op. Goed zo.
@@ -166,56 +163,32 @@ Wat is dit? Is zij helemaal van Oostenrijk gekomen? Ah! Uit Oostenrijk! Heel erg
 
 
 
-
-
-
 [1] Devi Mahatmayam: loflied aan de Godin, bestaande uit 700 verzen – maakt deel uit van de Oud-Indiase Purana’s
-
-
 
 
 [2] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
 
 
-
-
 [3] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
-&nbsp;
-
-
 
 
 [4] Pashupati: Shri Shiva is gekend als ‘Pashupati’; alle dieren zijn gebonden door zijn wetten.
 
 
-
-
 [5] shakti: primordiale (oorspronkelijke) kracht, ondersteunende, vrouwelijke, moederlijke oerkracht
-
-
 
 
 [6] Adi Shakti: de oorspronkelijke of primordiale vrouwelijke kracht; moederlijke oerkracht die belichaamd wordt door Shri Mataji
 
 
-
-
 [7] Guru Tattwa: het guru principe, de essentie van het meesterschap
-
-
 
 
 [8] Ganesha Tattwa: de essentie, het principe van Shri Ganesha
 
 
-
-
 [9] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 
-
-
 [10] Ganapati: bevelhebber van de gana’s, Heer Ganesha
-
 
