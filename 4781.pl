@@ -1,0 +1,1 @@
+Jesteście dla waszego wzrostu. Jesteście dla  otrzymania  swoich  wszystkich mocy i dla waszego królestwa Bożego . Ale musicie wypracować swoją lewą stronę,  ze zrozumieniem czystości i czystych relacji oraz waszą prawą stronę,  poprzez stawienie czoła waszemu sztucznemu ego...kolektywnie. jeśli zrozumiecie, że to jest problem, możemy to wypracować wszyscy razem. 

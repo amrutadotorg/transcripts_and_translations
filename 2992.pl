@@ -1,0 +1,24 @@
+Disintegration
+
+Druga kwestia jest taka: zawsze mówię, że z powodu naszego ego jesteśmy bardzo zdezintegrowani. Jesteśmy tak zdezintegrowani, że połączenie z Boskością nigdy nie jest należycie ustabilizowane.
+ Tak jak mówię, że gdy  instrument ( przez który mówię), podzielony jest na pięć części i te pięć części walczy ze sobą, to wy nic nie możecie otrzymać zrobionego poprzez ten instrument podłączony do głównej sieci. W ten sam sposób, jeśli wy pozostajecie wciąż zdezintegrowani, nie możecie otrzymać tego połączenia.Na przykład, zobaczcie, ludzie przychodzą tutaj, do Sahaja Yogi, ale mają inne zainteresowania, inne priorytety i inne rzeczy, które są bardzo ważne dla nich. Cały czas, marnują czas na to, a potem powiedzą: " Matko, nie robimy żadnych postępów w Sahaja Yodze".
+Jeśli zdecydujecie, jak to on powiedział (Mr. Venugopalan) do was: "Przede wszystkim musimy robić Sahaja Yogę, inne rzeczy są na drugim miejscu", wówczas tylko wtedy Sahaja Yoga może się w was naprawdę ugruntować. Będziemy mieć trochę Sahaja Yoginów na bardzo wysokim poziomie, wiem to, i trochę na miernym poziomie, niektórzy będą kompletnie nieużyteczni, a część zostanie absolutnie wyrzucona. 
+Mamy wszystkie typy, to również wiem. Teraz decyzja należy do was, gdzie wy przyjdziecie? Jak daleko pójdziecie? Jeśli macie zamiar marnować swój czas na myślenie o innych Sahaja Yoginach lub o małych i trywialnych rzeczach, wówczas wasza dezintegracja będzie się powiększać, jeszcze bardziej oddzielicie się, ponieważ ta cała  decyzja zostały podjęta przez wasze ego: "Nie lubię tego". "Nie lubię tamtego", "Nie widzę tego". Gdybyście jakoś mogli ujrzeć jak to ego pracuje, pozbylibyście się go, i to jest jedna rzecz, którą należy zrobić. Nie walczyć z nim, ja nigdy nie mówię, "aby walczyć z ego, ale oddać go". To jest jedyny sposób, żeby ego odeszło. 
+
+MEDYTACJA ZE SHRI MATAJI. JAK WYJŚĆ POZA EGO
+
+Po pierwsze przed medytowaniem, w waszych sercach, lub,  powinniście spojrzeć w wasze serca, i tam powinniście umieścić swojego Guru,  w jego rdzeniu. Po ustabilizowaniu w sercu, musicie pokłonić się temu z oddaniem i poświeceniem. Teraz cokolwiek zrobicie swoim umysłem, po Realizacji, nie jest wyobraźnią,  ponieważ teraz wasz umysł i  wasza wyobraźnia są  oświecone.
+ Następnie wyobraźcie sobie siebie, pokornych, u stóp waszego Guru  i poproście o odpowiednie usposobienie  niezbędne do medytacji lub odpowiednią atmosferę. Medytacja ma miejsce wtedy, jeśli jesteście jednym z Boskością. Teraz, gdy przychodzą myśli, najpierw musicie powiedzieć pierwszą  Mantrę oczywiście. I wtedy obserwujcie siebie w środku. 
+Także musicie powiedzieć Mantrę do Shri Ganeshy, to pomoże niektórym ludziom. Wtedy ponownie  obserwujcie siebie wewnątrz i zobaczcie co jest największą przeszkodą dla was . Najpierw myśli, dla myśli musicie powiedzieć mantrę do  
+Shri Nirvichara : “Twameva sakshat Nirvichaar sakshat Shri Mataji Nirmala Devi namoh namaha.” Powinniście  to powiedzieć trzy razy. 
+
+Teraz przechodzimy do problemu waszego ego, ponieważ, widzicie, myśli się uspokoiły, nie ma wątpliwości, ale wciąż jest ucisk na głowie. 
+Jeśli to jest ego, powiedzcie: “Twameva sakshat Mahatahamkaara”
+mahat - oznacza wielkie, ahamkara - znaczy ego. 
+“sakshat Shri Mataji Nirmala Devi namoh namaha.” Powiedzcie trzy razy. 
+
+Teraz , nawet jeśli teraz czujecie, że ego wciąż tam  jest, musicie unieść waszą lewą stronę, żeby pchnąć to z powrotem do prawej strony, swoją ręką. Jedna ręka w stronę fotografii. Pchnijcie waszą lewą  stronę wyżej, a prawą niżej, tak, żeby ego i superego były w równowadze. Zróbcie to siedem razy. Spróbujcie poczuć,  jak czujecie się wewnątrz. Teraz podnieście swoją Kundalini i  nad głową zawiążcie. Ponownie unieście Kundalini  i zawiążcie. I ponownie unieście Kundalini i zawiążcie nad głową. teraz powinniście powiedzieć mantrę do Shri Sahasrara - trzy razy. 
+
+Teraz rozszerzyło się,  widzicie. Ponownie możecie otworzyć swoją Sahasrarę tak samo. Po prostu ściągnijcie to ponownie i zobaczycie, że stacjonujecie tam. Kiedy to zostanie zrobione, wchodzicie w medytację. 
+To jest tak oczyszczenie, nazywa się to : Nyasa. Teraz, gdy znajdziecie kolejną przeszkodę, możecie także powiedzieć, gdy macie problem Mahakali, możecie powiedzieć tę mantrę. Oczyśćcie to i usiądźcie do medytacji. każdą indywidualną rzecz możecie wyjąć. jak np. macie problem z ego, jeśli czujecie, że powinniście rozpocząć z Mahatahamkara. To jest to czego musicie się dowiedzieć, jaki jest problem? Gdzie zatrzymuje się Kundalini? Możecie to w sobie poczuć. 
+Niektórzy mogą nie poczuć. Jeśli nie czujecie, poczujecie na swych palcach. Jeśli nie czujecie w sobie, poczujecie na palcach, możecie to poczuć. 
