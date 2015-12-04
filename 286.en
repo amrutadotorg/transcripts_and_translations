@@ -1,4 +1,4 @@
-Sahastrara Puja. Château Mesnières, Rouen (France), 5 May 1984.
+Mahasahasrara Puja. Château Mesnières, Rouen (France), 5 May 1984.
 
 It is so wonderful for your Mother to see so many beautiful sahaja yogis assembled together, on this day of Sahastrar.
 
