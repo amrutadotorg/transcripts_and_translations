@@ -1,7 +1,6 @@
 # transcripts_and_translations
 all transcripts and translations
 
-
 ### file format 'txt'
 ### convention naming:
 amrutaID.language_code
