@@ -1,3 +1,5 @@
+List, Znaczenie Pujy
+
 Moja droga Nirmala
 Wiele Błogosławieństw.
 Otrzymałam twój czuły list. Mnie również bardzo radowała Navarati Puja. 
