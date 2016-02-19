@@ -1,3 +1,5 @@
+Medytacja bez wysiłku, Londyn 1980
+
 Wibracje przychodzą w taki sposób, że są one rozprzestrzeniane. Jedyne, co musicie zrobić to poddać się ich działaniu. Najlepiej jest nie wkładać w to żadnego wysiłku. Nie martwić się, w którym miejscu macie problem.
 Widziałam wielu ludzi, którzy w czasie medytacji zajmują się rzeczami, które gdzieś wcześniej złapali. A wy po prostu nie musicie się martwić. Jeśli tylko to zostawicie, wypracuje się samo. To jest bardzo łatwe Nie musicie w to wkładać żadnego wysiłku. Tym właśnie jest medytacja.
 
