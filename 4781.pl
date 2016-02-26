@@ -1,4 +1,5 @@
 Shri Krishna Puja. St Quentin (France), 16 August 1987.
+
 To było bardzo piękne ze strony  dzieci przyjść i otrzymać mnie w taki piękny sposób. Mogę wam przywołać wspomnienia z dzieciństwa Kriszny, kiedy on, w swoim dzieciństwie,  był   bardzo szanowany  przez swoich przyjaciół i oni  starali się pełnić wszelkie honory, jakie  tylko były możliwe. Znacie historię jego narodzin. I tutaj mamy płynącą wodę, po obu stronach. Sposób w jaki on grał na swoim flecie, wzdłuż rzeki Jamuna. Ta cała sprawa wygląda, czasami, tak  ludzko, ale nie jest. I w odpowiednim czasie, kiedy potrzebował, jako dziecko, zamanifestował swoje moce:  zabił kobietę będącą złym duchem, a w końcu zabił Kansę. Po tym jak wiecie ogłosił Gitę, ale nie tak szybko.
 
 Po zabiciu Kansy, przybył po to do Dvaraki, i potem musiał ożenić się z piecioma żonami.  Najpierw miał 16 tysięcy żon. Więc wielu ludzi może zadać pytanie: "Matko, to jakim on był mężem?" 
