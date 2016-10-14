@@ -74,4 +74,4 @@ Więc lepiej dać odpoczynek umysłowi. Powiedz umysłowi: "Zadałeś wcześniej
 
 Więc najlepsza rzecz, to dostać Realizację, to jest najlepsza rzecz, w przeciwnym razie ten umysł może nam trochę przeszkadzać. Może wkroczyć akurat w momencie, kiedy osiągniecie wasz ostatni przełom, może to zatrzymać. W porządku?
 
-Więc jeśli macie jakieś naglące pytanie, które naprawdę wam przeszkadza, musicie Mi je zadać. Ale jeśli to nie jest nic takiego ważnego, po prostu odpuście. Czy to coś ważnego? No to w porządku. On zrozumiał. 
+Więc jeśli macie jakieś naglące pytanie, które naprawdę wam przeszkadza, musicie Mi je zadać. Ale jeśli to nie jest nic takiego ważnego, po prostu odpuście. Czy to coś ważnego? No to w porządku. On zrozumiał.
