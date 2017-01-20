@@ -1,0 +1,129 @@
+Navaratri 6-ty Dzień, O Alkoholu, 17.10.2007, Sydney, Australia, (wersja 2)
+
+O! Bardzo piękne. Kto to zrobił? Ty zrobiłeś? Bardzo dobre, bardzo piękne, absolutnie świetne. Całość. Jak ona się nazywa? Sue Williams. Bardzo dziękuję, przepięknie wykonane. Czy moglibyście przesunąć się trochę dalej? 
+
+Wszyscy jesteście Sahaja yoginami i nie powinno być między wami żadnych sporów. Wszyscy powinniście myśleć o tym samym, czyż nie? Przykro Mi, że tak wielu stoi na zewnątrz. Wejdźcie, wejdźcie. Czy możecie odsunąć pianino? Jesteś z Como? Spójrzcie, on mógł przyjechać! 
+
+Miło Mi widzieć was wszystkich tutaj. Niech was Bóg błogosławi. 
+
+Jest was tak wielu i stać was na wynajęcie sali, w której wszyscy mogliby siedzieć i czuć się wygodnie. Przede wszystkim, jesteście wszyscy Sahaja yoginami, braćmi i siostrami i nie zwracacie uwagi na niewygody. Ale jeśli coś może być wygodniejsze, to powinniśmy to zrobić. 
+
+Nie, nie, Ja nie narzekam, przybyłam aż z Indii! Nie przejmujcie się tak bardzo Moją wygodą. Gdzie byście nie byli, gdziekolwiek mielibyście program, pojadę tam. Będę to robić tak długo jak to możliwe. 
+
+Dziś życie jest dużo wygodniejsze, ale kiedy pracowałam w wioskach, jeździłam wozem zaprzężonym w woły. Macie zdjęcie, możecie spojrzeć, przejechałam wiele mil na takim wozie. Wiedziałam, że muszę to wszystko zrobić, jeśli chcę mieć Sahaja yoginów, musiałam pracować w taki sposób. Byłam przygotowana. Nigdy nie czułam się tym zmęczona, nigdy. Przeciwnie, po spotkaniu z wami czuję się bardzo szczęśliwa. 
+
+Czy jest tu ktoś, kto ma problemy? Ktokolwiek z problemami... 
+
+Alkohol, picie alkoholu. Czy oni nie są w Sahaja Yodze? - Nie. Dlaczego nie? Jesteś matką? Tak...i mój mąż. A co z dziećmi? Mam z nim dwoje dzieci. Dzieci są...czy twoje dzieci są Sahaja yoginami? Nie, dwoje starszych dzieci nie jest. Ile masz dzieci? - Czworo. Czworo dzieci, czworo dzieci. I one nie są Sahaja yoginami? Tylko dwójka młodszych. Dwoje młodszych dzieci jest w Sahaja Yodze a dwoje starszych nie jest, mąż nie jest w Sahaja Yodze. Zadziwiające. Ale tutaj system rodzinny jest dobry w porównaniu na przykład z Anglią. Tam rodziny rozpadają się po jakimś czasie. Przynajmniej tutaj jest dużo lepiej. Shri Mataji, mamy w Ameryce taki problem, że poszukiwacze nie zostają w Sahaja Yodze. Poszukiwacze dostają Realizację, ale nie zostają w Sahaja Yodze. To jest nasz problem. Oni nie zostają. Tak, Shri Mataji. Dlaczego?
+
+Ja nie wiem, Shri Mataji. To nie jest pełne. Gdyby mieli pełną Realizację, musieliby przyjść. Nie są w pełni Zrealizowani. Są w połowie drogi. Czy oni piją? Tak, Shri Mataji, w tym problem. Po przyjściu do Sahaja Yogi nie możecie pić. Tak, Shri Mataji. Pewnie dlatego nie chcą przyjść. Ale róbcie dla nich bandhany i szubitujcie ich. O kogo chodzi - o twoją matkę i ojca? 
+
+Tak, o matkę i ojca, a także bliskich przyjaciół. Dostają Realizację, ale nie zostają yoginami. 
+
+To dlatego, że piją. - Tak, Shri Mataji. Spójrzcie, wszystkie wasze kraje mają problem z piciem, cała Europa. To jest taka mała walka, ponieważ dla nich picie jest ich życiem Musimy robić dla nich bandhany. Jeśli zrobicie dla nich bandhan, wszyscy razem, wtedy nie będą mogli uciec. Trzeba zrobić bandhan. Wszyscy powinni zrobić bandhan. Tak to wypracowano w Indiach. Wiecie, jak silna jest Sahaja Yoga w Indiach. Ponieważ, jeśli odkryją, że rodzice nie przychodzą, albo może dzieci nie przychodzą, lub coś podobnego, wszyscy wypracowują to robiąc bandhan. Ale po pierwsze, powinniście regularnie przychodzić do Sahaja Yogi. Regularnie. Nie możecie być w połowie drogi, dzisiaj przyjdziecie, a potem nie przyjdziecie. To nie jest właściwe. Tak nie możecie wzrastać. Musicie przychodzić na programy, wszyscy, regularnie. Ponieważ wiecie, że Realizacja nie jest łatwa. Nikt wcześniej jej nie miał. Teraz wy ją dostaliście i musicie ją utrzymać. Kiedy wy zaczniecie to wypracowywać, reszta rodziny też się zmieni. 
+
+Największym problemem Europy, prawdziwym problemem, jest picie. Picie jest głównym problemem i dlatego oni nie chcą przyjść do Sahaja Yogi. Oni mogą zrezygnować z rodziców, ale nie z Sahaja Yogi. Taki jest problem z nimi. Rodziców można zostawić. Jeśli nie chcą zająć się Sahaja Yogą, powinniście pokazać, że wam się to nie podoba. Dlaczego nie chcą Sahaja Yogi? Ponieważ oni piją. Słucham? - Ponieważ oni piją. Picie jest przekleństwem Europy, oni wszyscy piją. To coś bardzo trudnego. Nie mogą z tego zrezygnować, biedni ludzie, są niewolnikami, niewolnikami picia. Ale przez wasze zachowanie i uczuciowość, jestem tego pewna, możecie ich pozyskać. Jaki z tego pożytek? Ludzie, którzy piją umierają tak wcześnie. Musieliście słyszeć, że bardzo wcześnie umierają. Ale pomimo tego nie zdają sobie sprawy, że nie powinno się pić. Dlatego, że stało się to teraz dla ludzi tak łatwo dostępne, jest to największy problem Europy. 
+
+Ale w Ameryce jest znacznie gorzej. Problem Ameryki jest tak dziwny, że ludzie, którzy zajmują się Sahaja Yogą nie mogą przekonać swoich rodziców. Wydaje im się, że mają wolność robienia wszystkiego, co chcą. Niektórzy Sahaja yogini w bardzo młodym wieku stracili rodziców. W bardzo młodym wieku. Jak również mieli rodziców, którzy mieli ataki serca. Różne rodzaje ataków, nie tylko serca, ale też różne inne choroby. To jest bardzo dziwne, oni nie rozumieją, jak ważne jest otrzymanie Realizacji. 
+
+Powinniście z nimi rozmawiać, "jaki jest cel waszego życia?" Musicie ich pytać: "Jaki jest cel waszego życia? Czy chcecie umrzeć, czy żyć?" - Pierwsze pytanie. Jeśli powiedzą, że chcą umrzeć, pozwólcie im umrzeć. 
+
+Powinniście im mówić: "Czy mamy wam zapewnić dostawę wina po śmierci?" Żartujcie z tego. Żartujcie, żeby zdali sobie sprawę, że są głupcami pijąc i że są niewolnikami. Niewolnikami picia. Nie piją dlatego, że są wolnymi ludźmi. Z powodu picia umierają i to bardzo wcześnie. 
+
+Te społeczeństwa są bardzo skomplikowane, że widziałam bogatych ludzi, z miłymi dziećmi, ale oni stracili prawa rodzicielskie, stracili dzieci i wszystkie pieniądze. Wylądowali na ulicy. Picie jest najlepszym sposobem na stracenie wszystkich pieniędzy. Może oni myślą, że kiedy przestrzegacie ich przed piciem, to jesteście zainteresowani ich pieniędzmi. Bóg wie, co oni myślą, ponieważ Ja nie rozumiem psychiki ludzi, którzy piją. Myślę, że to jakieś buce dają im takie pomysły, a oni nie mogą się tego pozbyć - to bardzo źle. Gdzie, w jakiej księdze, mam na myśli Biblię i temu podobne, jest napisane, że picie jest dobre? Czy Chrystus pił? Oni będą podążać za Chrześcijaństwem. Oni podążają za Chrześcijaństwem, ale nie za Chrystusem. To właśnie tak. Chrystus nigdy nie pił. Jego rodzice nie pili. Co sprawia, że oni myślą, że mają prawo pić? Zwłaszcza Chrześcijanie. Są głupcami, jeśli myślą, że picie jest ich prawem. Potem mają problemy z piciem. Być może wiecie, jakie to są problemy. Możecie zorientować się, co dzieje się z ludźmi, którzy są pijani, co się z nimi dzieje, gdzie trafiają, jaka jest ich sytuacja. Możecie zauważyć na przykładzie ich przyjaciół, gdzie są, co robią, jak żyją. Będziecie zaskoczeni, że oni są już na krawędzi. Jeśli z przekonaniem przedstawicie im swoją mądrość, oni przyjdą. Musicie im powiedzieć. Nie ma się czego wstydzić. Musicie powiedzieć im, co dzieje się kiedy piją. Co jest w tym takiego wielkiego?
+
+Pierwszym problemem Europy jest picie. Drugim jest rodzicielstwo. Rodzice nie rozumieją odpowiedzialności za dzieci, że całe życie będą waszymi dziećmi i musicie się nimi opiekować. Nie da się od tego uciec. Po pierwsze, dlaczego powinniście mieć dzieci? A jeśli macie dzieci, musicie się nimi dobrze opiekować. Ale widziałam, że ludzie w Europie są naprawdę głupi. Nie rozumieją tej prostej rzeczy, że jeśli sami o siebie nie umiemy się zatroszczyć, to kto zatroszczy się o nasze dzieci? Bardzo nieodpowiedzialni. Również społeczeństwo jest takie, że w społeczeństwie też wierzy się w picie. Hndusi, którzy nie piją w Indiach, przyjeżdżają tu i piją. Kiedy tu się znajdą, wydaje im się, że to coś wspaniałego i piją. Znałam wielu takich, którzy wyjechali za granicę i zaczęli pić. 
+
+To jest wielki problem. Powinniście otwarcie wszystkim o tym mówić, że picie jest głupotą i głupotą jest płacenie za to. Musicie płacić i musicie stawać się szaleni. Wyobraźcie sobie! Możecie się z tego śmiać i jeśli powiecie im prawdę, jestem pewna, że są inteligentni i zrozumieją. Ale cały czas powinniście im o tym mówić. 
+
+Trzecim problemem jest, że kiedy stajecie się dorośli, jesteście wolni i macie wolną drogę. Nie mogę tego zrozumieć, urodziliście się z waszych rodziców i jak możecie stać się wolni po osiemnastu latach lub w jakimkolwiek wieku. Jak to możliwe? Drzewo produkuje owoce a ludzie zrywają je i jedzą. My nie jesteśmy drzewami, ale ludźmi. Nie możemy zachowywać się jak drzewa, które nie wykazują żadnego zainteresowania swoimi dziećmi po tym jak nastąpiło pewne odcięcie. 
+
+To bardzo zaskakujące. Dla nas Indusów to zaskakujące, że można zapomnieć o własnych dzieciach? Jak oni mogą tak postępować? Macie pisarzy, którzy opisywali historie, którzy opisywali tutaj tak wiele przypadków, jak głupi mogą być rodzice. Cokolwiek to może być, jacykolwiek by nie byli twój ojciec czy matka, mogą być bogaci czy biedni, cokolwiek to jest, oni są waszymi rodzicami! A rodzice są od tego, żeby się wami opiekować. 
+
+Głupotą jest kazać dziecku samemu o siebie się troszczyć. Kiedy ma osiemnaście lat samo zarabia, a rodzice mówią: "W porządku, śmiało". Chcą się pozbyć całej odpowiedzialności. Nigdy o czymś takim nie słyszałam! To bardzo współczesna moda. Czy działo się tak za czasów Abrahama Lincolna? Czy działo się tak z Chrystusem, że Jego Matka przestała się o Niego troszczyć mówiąc: "W porządku, idź, niech Cię ukrzyżują"? 
+
+Jak rodzice mogą się tak zachowywać? Nie mają serca? Nie mają miłości dla własnych dzieci? Indie nie są może tak bogate, ale ludzie kochają swoje dzieci. 
+
+Dzieci tutaj nie słuchają swoich rodziców, ponieważ rodzice nie opiekują się nimi. Możecie więc wyobrazić sobie społeczeństwo, religię, czy nazwijcie to jak chcecie - gdzie ludzie nie są ze sobą w ogóle połączeni. Ale w Sahaja Yodze jesteśmy wszyscy połączeni. Jesteśmy wszyscy jednością i chcemy być razem niezależnie od wszystkich naszych tak zwanych różnic. My jesteśmy Indusami, my jesteśmy z Afryki, my jesteśmy Anglikami - ale wszyscy jesteśmy Sahaja yoginami i to musicie im powiedzieć: "Jakich wy macie przyjaciół? Przychodzą tylko pić a potem ich nie ma. Nie możecie na nich liczyć". Ale nasi przyjaciele są naszymi drogimi przyjaciółmi. 
+
+Sahaja yogini czasami popełniają błędy, nie szkodzi. Ale są Sahaja yoginami i są jednością, pomagają sobie nawzajem. Zobaczcie, ile krajów jest razem w Sahaja Yodze i łączy ich taka przyjaźń, jakiej nie możecie znaleźć między ludźmi urodzonymi w tej samej części planety. Nie możecie się wzajemnie rozpoznać. To straszne. Czasami dziwi Mnie, że rodzice nie myślą o swoich rodzicach. Rodzice nie myślą o tym, że są rodzicami, a dzieci nie myślą o tym, że są dziećmi tych rodziców. Nie wiem, co do tego doprowadziło. Wszyscy mówią, że to pieniądze, pieniądze, które zarabiają. I co robicie z tymi pieniędzmi: czynicie siebie i innych żałosnymi. Nawet nie szanujecie pieniędzy, ponieważ pijąc, tak dużo ich tracicie. Czy to wam pomaga? To pijaństwo, ono istnieje tutaj - byłam zaskoczona. Wielu to porzuciło, na szczęście porzucili to i są szczęśliwi. W Europie, picie jest dużym społecznym wydarzeniem i wielu myśli, że trzeba pić, bo w przeciwnym razie nie jest się człowiekiem. Myślą, że trzeba stawać się szalonym, w przeciwnym razie nie jest się człowiekiem. 
+
+Jeśli się połączycie, możecie ich przyciągnąć, wtedy rodzice zrozumieją. Są ludzie, którzy tak zrobili. Wszyscy Sahaja yogini wspólnie zdołali przyciągnąć do Sahaja Yogi ludzi z zasiedziałym ego. Kiedy zobaczą, że jesteście szczęśliwi, nie kłamiecie, jesteście uczciwi i pokorni - czego więcej chcecie? Ale oni pójdą do kościoła, nazwą siebie chrześcijanami i będą zachowywać się jak szatan. 
+
+Zobaczcie ich zachowanie, oni nie troszczą się nawet o swoje dzieci, ponieważ rozwinęli pewne nawyki. "Dlaczego nie możecie zrezygnować z tych nawyków?" Powinniście o to zapytać rodziców: "Dlaczego nie porzucicie tych złych rzeczy, które czynią was szalonymi?" Picie czyni z ludzi wariatów, mówię wam, cały ich system wartości zostaje zatracony. Możecie być kimkolwiek, możecie mieć jakiekolwiek wykształcenie, wszystko to traci znaczenie, jeśli zaczynacie pić. Potem nie macie już żadnej osobowości. Niczego [niesłyszalne] - sposób, w jaki zachowujecie się, a gdy ludzie się upiją, czy widzicie jak śmiesznie się zachowują. 
+
+Nie tolerujcie tego i powiedzcie swoim rodzicom, że nie podoba wam się picie. "Nie chcemy, żebyście pili, dlaczego pijecie?" Możecie im powiedzieć. "Dlaczego pijecie?" Gdyż z powodu picia stają się szaleni. Lepiej jest dostać zaświadczenie z "domu wariatów". Wy Sahaja yogini uświadamiacie sobie, że jest to szaleństwo i musicie im powiedzieć: "Myślimy, że wszyscy, którzy siedzicie i pijecie, jesteście szaleni. Czego wy chcecie? Co daje wam picie? Po pierwsze, musicie odnaleźć spokój umysłu. Nie jest to możliwe, jeśli pijecie. Czy słyszeliście, żeby ktoś odnalazł spokój umysłu pijąc? No chyba, że po śmierci". 
+
+Trzeba im powiedzieć szczerze: "Po co pijecie? Po co tracić wszystkie pieniądze?" Zauważyłam, że większość pije, ponieważ są wielkimi ignorantami i nie wiedzą, że istnieje wyższe i lepsze życie, w którym możecie kontrolować swoje ciało i wszystko inne. Kiedy oni się o tym dowiedzą, zdadzą sobie sprawę, że to picie ich zniewala. Są niewolnikami. Kiedy coś wam powiedzą, odpowiedzcie: "Nie chcemy słuchać niewolników. Jesteście wszyscy niewolnikami". Nie ma nic złego w takim mówieniu. "Jesteście niewolnikami a my nie chcemy słuchać niewolników". 
+
+W Indiach jakoś rozwiązaliśmy ten problem. Ludzie nie piją aż tyle, ponieważ od samego początku picie było tam bardzo źle widziane. Jeśli dziewczyna dowiedziałaby się, że narzeczony pije, nigdy by za niego nie wyszła. To, że społeczeństwo nie akceptuje picia, jest słuszne. Podczas gdy wasze społeczeństwo nie jest żadnym społeczeństwem, ponieważ nie ma przyjaźni, nie ma zrozumienia, nie myślą o poprawianiu jakości życia. A o czym oni myślą? Są bardzo samolubni i myślą tylko o sobie. Egoizm w takim sensie, że stawanie się szalonym jest wielkim egoizmem. Oni stają się szaleni i brną w to szaleństwo coraz bardziej. To jest choroba. Powinniście powiedzieć im, że to jest choroba. "Jesteście chorzy i nie chcemy iść w wasze ślady". Nie bądźcie niegrzeczni, ale powiedzcie im, że picie jest chorobą. Możecie się powołać na Mnie, nie mam nic przeciwko temu. 
+
+Widzieliście pijanego człowieka? Co o nich myślicie? Oni są bardziej niż szaleni. Ludzie mogą być szaleni, ponieważ coś poszło nie tak, ale pijacy są szaleni, ponieważ piją. Więc musicie im powiedzieć: "Jesteście wszyscy szaleni. Zniszczycie swój kraj". 
+
+Widziałam tyle rzeczy, które dzieją się na Zachodzie - to Moje własne doświadczenie. Pracuję w Maharastrze, w różnych miejscach w Indiach i nie mam problemów z tymi, którzy są Zrealizowanymi Duszami. Ale tutaj są problemy również ze Zrealizowanymi Duszami. W Indiach nie ma żadnego problemu ze Zrealizowanymi Duszami są w pełni zrealizowani. Ale tutaj są problemy nawet z ludźmi Zrealizowanymi. Są tutaj Sahaja yogini, którzy zarabiali nielegalnie pieniądze. Są Sahaja yoginami, wiem to z całą pewnością, ale robili takie rzeczy. Zostali ocaleni, ale nie w Niebie. Wypracowują to, ratują się siebie, ale wszystko się zdarza. Niektórzy mówią: "Matko, my pijemy bardzo mało". Ale po co? Często mówią: "Pijemy bardzo mało". Ale po co chcecie pić i tracić pieniądze? Po pierwsze tracicie pieniądze. 
+
+To jest bardzo smutne, że wszyscy ci ludzie, którzy są tak dobrze wykształceni, zamożni, stają się tak szaleni. Nie rozumiem. Jeśli wasi rodzice piją, to są szaleni. Musicie traktować ich jak szaleńców, wtedy zdadzą sobie z tego sprawę. Powinniście im powiedzieć: "Chcecie stracić wszystkie pieniądze na picie?" W Indiach w ten sposób zyskaliśmy bardzo silnych Sahaja yoginów. Tłuką butelki po wejściu do domu lub to co robią, to tłuką…cokolwiek! 
+
+Rodzice stają się dziwaczni, ponieważ nie mogą zrozumieć, co dzieje się z tymi dziećmi. Ale one są Sahaja yoginami, więc nie podoba im się to i po prostu je wyrzucają. Wobec szaleńców nie należy być pokornym. Musicie dopilnować, żeby skończyli z piciem, to bardzo ważne i tutaj nie ma się czego wstydzić. Jeśli skorygujecie rodziców, skorygujecie cały naród. 
+
+Wszyscy musicie to wypracować. Przedyskutujcie to między sobą i powiedzcie: "O, mój ojciec dużo pije". Więc poproście przyjaciela, żeby przyszedł zrobić z nim porządek. Możecie się z nich śmiać: oni są szaleni! Nie traktujcie ich poważnie. Oni są szaleni. Żałujcie ich i wypracujcie to w ten sposób. Macie tylu przyjaciół. Picie jest przekleństwem Zachodu, pojawiło się to w taki sposób, myślę, że pracowały nad tym jakieś diabelskie moce. Nigdy wcześniej tyle nie pili. Nigdy! A teraz, Ja nie wiem, idzie się ulicą i tylu się ich widzi włóczących się. 
+
+Sahaja yogini sami nie powinni pić ani nie pozwalać pić nikomu - ojcu, matce, bratu. Musicie im powiedzieć: "Jesteście wszyscy szaleni. Idźcie się leczyć". Kiedy im to powiecie, zdadzą sobie z tego sprawę. Tylko wy możecie ich poprawić. Ja mogę zrobić cokolwiek, ale w pierwszej kolejności ci ludzie powinni przestać pić. 
+
+Jako Sahaja yogini macie dużo siły i musicie pracować nad swoimi rodzicami. Ilu z was ma pijących rodziców? Podnieście ręce. 
+Twoi rodzice też? Bah prai! Wyobraźcie sobie! 
+
+Wszyscy powinniście otwarcie sprzeciwić się ich piciu. Powinniście powiedzieć: "Nie lubię rozmawiać z ludźmi, którzy piją". Róbcie to i będziecie zaskoczeni - oni przyjdą. 
+
+To zależy całkowicie od was. Jeśli wasi rodzicie piją, musicie przyjąć bardzo zdecydowane stanowisko. Macie też tak wielu przyjaciół do pomocy. Śmiejcie się z nich. Ktoś powinien ich przedrzeźniać jak się zachowują pijani, jak chodzą. Nie powinniście ich obrażać, ale przedrzeźniać. Kiedy zorientują się, że nie macie dla nich szacunku i nie dbacie o nich, poprawią się. Ale nawet jeśli oni piją, nie przejmujecie się tak bardzo. Nie przejmujecie się tym, czy piją - powinniście mówić: "Jesteście wszyscy szaleni. Dokąd was to zaprowadzi? Co z wami będzie?" Możecie z nimi rozmawiać, jak osoby starsze. I sprawdzajcie, czy nie mają przyjaciół, którzy piją. Jeśli mają, porozmawiajcie lepiej z tymi przyjaciółmi. 
+
+Nie chodzi tylko o to, że otrzymujecie odpowiedzialność, kiedy otrzymacie swoją Realizację. Ale waszą absolutną odpowiedzialnością jest poprawić rodziców, poprawić braci i siostry. Musicie nimi pokierować i tłumaczyć im. Nie ma się czego wstydzić - ponieważ oni są szaleni, jak wiecie. To dla Sahaja yoginów jest bardzo ważne. 
+
+Doświadczyłam tego, że na Zachodzie rodzą się Sahaja yogini, otrzymują Realizację, są bardzo dobrzy, doskonali - nic nie muszę im mówić. Ale są bardzo pokorni wobec swoich rodziców. Spróbujcie im pokazać, że wam się to nie podoba. Jeśli piją, nie siedźcie z nimi, wyjdźcie stamtąd. Powinniście starać się to wszystko potępiać. To nie zaszkodzi. Gdy ktoś powie wam coś przykrego, wy reagujecie. Ale co z tymi pijakami, którzy siedzą i piją? Musicie ich zganić. Tylko wy możecie naprawić społeczeństwo. Jestem tu, żeby do was mówić, ale wy jesteście bardzo bierni. 
+
+Ilu z was walczy z rodzicami? Powiedzcie, podnieście ręce. Prawie nikt. Boicie się ich, tych pijaków? To oni powinni bać się was, chować się gdzieś. Jeśli w domu są butelki, tłuczcie je. Oczywiście! Wyrzucajcie je, tłuczcie - tak musicie z nimi walczyć. 
+
+Jak zdołaliśmy pozbyć się Brytyjczyków z Indii? Protestując! Protestując przeciwko ich dominacji. I tyle, to proste! I oni odeszli. Wyobraźcie sobie, nie było żadnej wojny, a oni odeszli. 
+
+Mówią, że piją ponieważ jest zimno. Wcale nie trzeba pić z tego powodu. Znam tak wielu Hindusów, tak wielu, oni nie piją. Oni nigdy nie byli w tak zimnym kraju. Znam tak wielu Rosjan, oni nie piją. Rosja to bardzo zimny kraj, a oni nie pozwalają swoim rodzicom na picie. Wiecie jak Rosjanie walczyli, oni są bardzo odważni. Wiecie, że Hitler próbował ich podbić. Ale oni mają całą moc. Muszę powiedzieć, że Rosjanie nie są tacy modni Ty jesteś Rosjaninem? To mogę... - Lider Ukrainy. Zgadzam się. Rosjanie to bardzo, bardzo odważni ludzie. Walczyli z rodzicami i teraz w Rosji mamy tak wielu Sahaja yoginów. Stanie się tak, że cała Rosja stanie się Zrealizowaną Duszą. Podczas gdy tutaj, wielcy ludzie, którzy myślą tylko o sobie będą kończyć w zakładach dla obłąkanych. 
+
+Zapamiętajcie Mój dzisiejszy wykład - macie pełne prawo przeciwstawić się rodzicom, jeśli piją. Oni myślą, że chcecie pieniędzy, to dlatego. Ale powiedzcie im: "Nie chcemy waszych pieniędzy". 
+Jeśli jesteście przywódcą, a są i tacy, którzy przewodzą, to powinniście pamiętać, że jeśli przeciwstawiacie się rodzicom - to czym tu się przejmować? Muszę przyznać, że Rosjanie są bardzo odważni. Strofowali swoich rodziców, nawet autorytety. Dlaczego? Czy dlatego, że są komunistami? Czy to dlatego? Nie - dlatego, że mają wyzwolone umysły. W końcu wszyscy jesteście Sahaja yoginami, więc jakie oni mają prawo, żeby was dominować? Nie mają żadnego prawa, są pijakami. Jak oni mogą was dominować? Powiedzcie im: "Jesteście pijakami - nie odzywajcie się". To nie zaszkodzi. Musicie walczyć, musicie walczyć z rodzicami - to bardzo ważne. 
+
+Jestem z wami. Niech was Bóg błogosławi. 
+
+Będą walczyć o demokrację, o to, o tamto. To wszystko to ‘demonokracja’. Jaka jest ta ich demokracja? Jaki mają interes w dominowaniu was, jeśli piją? Kim oni są? Pijakami. Śmiejcie się z nich. Musicie teraz walczyć, nadszedł czas. Za dużo czasu straciliście na tolerowanie ich. Co oni zrobili? Nic. 
+
+Muszę powiedzieć, że Rosjanie są bardzo mądrzy i bardzo odważni. Tak! Wiecie, jak wygonili Hitlera? Ktoś taki, jak Hitler uciekł stamtąd. Jak im się to udało? Ponieważ generalnie są uczciwi i odważni. 
+
+My nie pijemy, więc dlaczego mielibyśmy być tchórzami? Tylko pijacy mogą być tchórzami. Wy nie jesteście pijakami, więc powinniście być odważni powiedzieć rodzicom i naprawić swoją rodzinę. Odkryłam, że życie rodzinne tutaj jest tak okropne. Rodzice są dziwaczni, matki są dziwaczne. Jak mogą takie być? Jak możecie być ich dziećmi? Powinniście powiedzieć: "Wstydzimy się być dziećmi pijaków". Wtedy zrozumieją. 
+
+Rosjanie porzucili pijaństwo. Ci, którzy są Sahaja yoginami porzucili to całkowicie. Nie wiem, co do tego doprowadziło. Oni nie są zainteresowani pieniędzmi, pozycją, ani niczym. Sahaja yogini. Hindusi mają dziedzictwo, ale oni także po przyjeździe do Anglii zaczynają pić. Wydaje im się, że ludzie nie piją, ponieważ nie są wolni. Co to za pomysł: "Jeśli jesteś wolny, powinieneś móc pić". Powinieneś oszaleć. To jest wolność, czyż nie? Możecie im teraz powiedzieć: "Jesteście szaleni. Pijecie, więc jesteście szaleni". Powiedzcie im, że Ja to powiedziałam. 
+
+Czy jesteście już przekonani? 
+
+Więc... Czy wszyscy czujecie wibracje? Czy jest ktoś, kto ich nie otrzymuje? Podnieście proszę ręce. Spójrzcie, jak jesteście kolektywni, jak potężni. 
+
+Ale widziałam, że Sahaja yogini boją się swoich rodziców, zachowują się jak tchórze. Powinniście być odważni i strofować ich. Macie moc, aby to czynić. Jeśli możecie zmienić swoich rodziców, to wykonacie dla nich wielką pracę. 
+
+Cóż innego możecie dla nich zrobić? Jeśli zmienicie rodziców, wykonacie wielką pracę. Co macie powiedzieć? Jesteście zbyt łagodni. Weźcie dwóch, trzech Sahaja yoginów i porządnie im dołóżcie. Bo oni biją za każdym razem, kiedy są pijani. Piją i tak postępują. To bardzo smutne. Wszyscy żyjecie w wolnym kraju, ale musicie walczyć. Bez walki to się nie wypracuje. 
+
+Chcę, żebyście się wszyscy wzajemnie spotykali i mieli pełne poczucie bycia Sahaja yoginami. To znaczy, że jesteście pobłogosławieni przez Boga. Reprezentujecie Boga i nie sięgniecie po te złe rzeczy. Szanujcie siebie, szanujcie! Powiedzcie rodzicom: "Nie możemy was szanować za picie". Powiedzcie im tak. Możecie im powiedzieć, że Ja tak powiedziałam. 
+
+Spójrzcie, jak walczył Chrystus. Co z nich za chrześcijanie? Piją, piją, piją. Ale dlaczego w Indiach nie piją? Nie piją. Żyją bez picia i dobrze im się wiedzie. 
+
+Weźcie ode Mnie odwagę do walki ze swoimi rodzicami. Kiedy przyjadę następnym razem, nie chcę widzieć nikogo, kto powie, że rodzice nie słuchają… Kiedy są pijani, możecie ich bić łyżką! 
+
+Nawet w Rosji dużo piją, ale ci, którzy mają Realizację nie piją. Cokolwiek by to nie było. Oni nie piją. To dlatego myślę, że komunizm jest dobry, ponieważ mają tyle odwagi. 
+
+Przy tej całej demokracji stajecie się demonami, niczym innym, tylko demonami. 
+
+Dzisiaj obiecajcie Mi, że poradzicie sobie z rodzicami. Dziękuję wam bardzo. Jeśli ktoś ma jakiś problem, powiedzcie Mi. Matko, w mojej szkole jest wielu uczniów, których rodzice piją i rozwodzą się. Oni są tym bardzo zdenerwowani. Nie słyszę go. On mówi, że w wielu rodzinach jego szkolnych kolegów, pije się i rodzice rozchodzą się, biorą rozwód z powodu picia. Kiedy? Kiedy oni mają wolne? I oni wszyscy są zdenerwowani, uczniowie są zdenerwowani, Matko. Czego chcą? Uczniowie, ich rodzice piją i rozwodzą się. Jest tak wiele problemów a młodzi uczniowie są z tego powodu bardzo zmartwieni. 
+
+Tłuczcie im butelki! Powiedzcie im to, co Ja wam powiedziałam. Tłuczcie im butelki. Widzicie butelkę, to rozbijcie ją, wtedy zobaczycie. Zrobiliśmy to w Indiach, kiedy żądaliśmy Niepodległości. Dzieci rozbijały im butelki. Z tymi butelkami nigdy nie będziecie cieszyć się wolnością. Tłuczcie je. 
+
+Jakieś pytania? 
+
+Nie powinniśmy ich obrażać, ale możecie rozbijać im butelki, zgoda? Shri Mataji dziękujemy, że przyjechałaś do Burwood, dziękujemy. 
+
+Niech was Bóg błogosławi.

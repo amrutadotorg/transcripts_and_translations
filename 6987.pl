@@ -1,5 +1,7 @@
 Diwali Puja, “Potęga Niewinności”, 25.10.1987, Lecco (Italy)
 
+Fragment z Pujy - Znaczenie Imion
+
 Najpierw kłaniamy się Shri Ganeshy, ponieważ Shri Ganesha jest źródłem niewinności w nas. Zatem kłaniamy się niewinności w nas. I ta niewinność daje wam oświecenie. Jak wam wczoraj mówiłam, światło ma niewinność, ale to jest niewinność bez wiedzy. A wasze światło jest niewinnością z wiedzą. Myślimy zawsze, że ludzie mający wiedzę nie mogą nigdy być niewinni, prości. A ta idea jaką mamy o niewinności, że niewinna osoba jest zawsze oszukiwana, zawsze daje się nabierać - może być uznawana za oczywistą. Lecz niewinność jest siłą, siłą chroniącą was, dającą wam światło wiedzy.
 
 Wiedza jaką posiadamy w sensie doczesnym, polega na wykorzystywaniu innych, oszukiwaniu ich, robieniu na nich pieniędzy, wyśmiewaniu i braku szacunku dla innych. Ale światło mądrości jest światłem, dzięki któremu wiecie, że miłość jest najwyższą rzeczą. I ono uczy was jak kochać innych, jak się o nich troszczyć, jak być delikatnym wobec innych. Daje wam również światło wewnątrz.
