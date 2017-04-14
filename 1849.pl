@@ -1,5 +1,5 @@
-Pudża Shri Adi Shakti 1982
-01.08 1982, Cowley Manor Seminar. Cheltenham (UK)
+Pudża Shri Adi Shakti 1982, 01.08 1982, Cowley Manor Seminar. Cheltenham (UK)
+
 [Shri Mataji rozmawia chwilę z joginami na tematy organizacyjne]
 ….Jeśli powiedzieliście im, czym jest pudża to nie mam nic przeciwko, jeżeli jednak nie wiedzą nic o pudży, to musicie być ostrożni. Dla ich dobra. Wybaczcie, ale musiałam to powiedzieć, ponieważ wczoraj było tak ciężko, nie mogłam nawet mówić, podnoszenie Kundalini było jak dźwiganie 100 osłów na głowie, to było za dużo. A wszyscy ci na wpół upieczeni [yogini] są trochę jak pies ogrodnika, sami tego nie mają i nie pozwolą, by inni to mieli. Będą się kłócić przed programem, a zwłaszcza przed pudżą. Ponieważ nie będą chcieli pozwolić wam cieszyć się owocami pudży, zepsują waszą uwagę, będą się wykłócać, dyskutować -
 […? Poprostu usiądź.]
