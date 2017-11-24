@@ -1,17 +1,4 @@
-Shri Mataji Nirmala Devi
-
- 
-
-Shri Vishnumaya Puja
-
-“Voel je niet schuldig”
-
-Everbeek, België
-
-4 juli 1992
-
-Engelse transcriptie: IBP reviewed
-Nederlands: eindversie 21/09/2012
+Shri Vishnumaya Puja - “Voel je niet schuldig” - Everbeek, België - 4 juli 1992
 
 Vandaag doet zich de unieke gelegenheid voor om een Vishnumaya Puja te houden, want zij heeft dit huis bezocht. We moeten haar vereren. Maar eerst moeten we weten wie Vishnumaya is. Het is heel belangrijk dit te weten, want in de Devi Mahatmyam wordt zij enkel beschreven als de incarnatie van de Godin.Men noemt haar Vishnumaya. Maar laten we eens kijken wie ze eigenlijk is, deze Vishnumaya.
 
