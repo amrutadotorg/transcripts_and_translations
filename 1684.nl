@@ -1,8 +1,5 @@
 Shri Ganesha Puja - Onschuld en Huwelijk - Cabella, Italië 16/09/2000
 
-Translation not verified. Dear yogi, register as volunteer to do so.
-Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
-
 Wij zijn hier vandaag samengekomen om Ganeshapuja te vieren. Jullie weten zeer goed dat Ganesha het symbool is van zuiverheid, van heiligheid en het vereren van de onschuld. Als je Shri Ganesha vereert, moet je beseffen dat hij de belichaming is van de onschuld. Ik vraag me af of hij de betekenis van “onschuld” begrijpt of niet. Onschuld is een aangeboren kwaliteit die je niet kunt forceren, die je niet kunt inoefenen, ze is een aangeboren kwaliteit van de mens. Als hij een volgeling wordt van Shri Ganesha, wordt hij onschuldig.
 
 Misschien merk je dan op dat onschuldige mensen aangevallen worden door de sluwe en agressieve mensen, maar onschuld is iets zo groots dat ze niet kan vernietigd worden. Ze is een kwaliteit van de Spirit. Onschuld is een kwaliteit van de Spirit en als de Spirit in je ontwaakt, verkrijg je de kracht van de onschuld, waardoor je al wat negatief is, al wat verkeerd is, al wat nadelig is voor je spirituele groei en voor je spirituele inzicht, kunt overwinnen.

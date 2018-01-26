@@ -1,14 +1,4 @@
-Shri Mataji Nirmala Devi
-
-Shri Virata Puja
-
-‘Wees dynamisch’
-
-‘We moeten spreken over Sahaja Yoga’
-
-Connecticut, Verenigde Staten
-
-11 juni 1989
+Shri Virata Puja ‘Wees dynamisch’ - Connecticut, Verenigde Staten - 11 juni 1989
 
 Engelse transcriptie: IBP reviewed
 Nederlands: verified/gecontroleerd 16/05/2013
