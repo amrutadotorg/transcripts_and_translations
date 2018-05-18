@@ -1,4 +1,4 @@
-2.veřejný program 07/11/1982, Madras, Indie
+2.veřejný program 07/12/1982, Madras, Indie
 
 Klaním se všem, kteří hledají pravdu.
 
