@@ -16,7 +16,7 @@ La segunda cosa era destruir vuestra mente que os lleva hacia los sentidos, haci
 
 Entonces podíais discutir, sólo discutir sobre el Nirvana. Antes de esto ni siquiera teníais derecho de hablar del Nirvana.
 
-Cuando leí este libro dije: "Baba me rindo, esto es demasiado". Pero en Sahaja Yoga es al revés. Primero construimos el tejado y después los cimientos. La apertura del Sahasrara es lo primero que conseguimos; así, en la luz del Sahasrara, tenéis que observaros a vosotros mismos.
+Cuando leí este libro dije: "Baba me rindo, esto es demasiado". Pero en Sahaja Yoga es al revés. Primero construimos el tejado y después los cimientos. La apertura del Sahastrara es lo primero que conseguimos; así, en la luz del Sahastrara, tenéis que observaros a vosotros mismos.
 
 Gradualmente la introspección mejora a través de las vibraciones y veis por qué. ¿Por qué quiero esto? ¿Por qué mi atención va a mi comodidad? ¿Por qué mi atención va a la comida? ¿Por qué a mi familia, por qué a mis hijos, cuando tengo que alcanzar lo más elevado?
 

@@ -1,4 +1,4 @@
-Programa público: "El lado izquierdo, problemas del subconsciente". Brighton, Reino Unido. 13 de mayo de 1982.
+Programa público: "El lado izquierdo, problemas del subconsciente", 13 de mayo de 1982.
 
 [Los tres primeros minutos no hay sonido]
 

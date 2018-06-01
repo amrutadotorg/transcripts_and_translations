@@ -1,4 +1,4 @@
-Celebraciones de Navaratri: “Kundalini y Kalki Shakti”. Bombay, India. 28 de septiembre de 1979.
+Celebraciones de Navaratri: “Kundalini y Kalki Shakti”,  28 de septiembre de 1979.
 
 Hoy voy a hablaros en inglés como queríais. Incluso mañana quizá tengamos que usar este idioma.
 

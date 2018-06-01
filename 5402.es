@@ -1,4 +1,4 @@
-Shri Guru Puja. Dollis Hill Ashram, Londres, Reino Unido. 8 de julio de 1979.
+Guru Puja. Dollis Hill Ashram, 8 de julio de 1979.
 
 Hoy es el día del Guru Purnima, el día de la luna llena, por eso se llama Purnima. El gurú debe ser como una luna llena. Esto significa completamente crecido, completamente maduro.
 

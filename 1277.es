@@ -234,7 +234,7 @@ El perfume Khus lo podéis usar todos los sahaja yoguis. Limpia vuestro Vishuddh
 
 Dejad que lo haga mientras sostengo la espada. Sostendré la espada en esta mano (hindi).
 
-(Un sahaja yogui pide leer el Lalita Sahasraranama)
+(Un sahaja yogui pide leer el Lalita Sahastraranama)
 
 Los 108 nombres. ¿Tenemos copias de los 108 nombres? Pero podéis traducirlo.
 

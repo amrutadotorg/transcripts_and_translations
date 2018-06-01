@@ -1,4 +1,4 @@
-Shri Ganesha y Shri Gruha Lakshmi Puja. Sídney, Australia. 7 de abril de 1981.
+Shri Ganesha y Shri Gruha Lakshmi Puja, 7 de abril de 1981.
 
 Hoy es el aniversario de las bodas y les he permitido que lo celebren porque el matrimonio es muy importante en Sahaja Yoga. Una de las cosas más importantes en Sahaja Yoga es que uno debe casarse. En primer lugar el matrimonio os da equilibrio en vuestra comprensión, si es que tenéis una idea apropiada acerca del matrimonio. Si tenéis ideas extrañas o si os casáis simplemente como diversión, sin entender el valor del matrimonio, será simplemente como un juego. Esto no es el matrimonio. En Sahaja Yoga entendéis verdaderamente el valor del matrimonio y cuál es su significado. Afortunadamente hoy vamos a celebrar algunos matrimonios de Sahaja Yoga, en los que debéis intentar ajustaros a las leyes divinas del matrimonio y casaros bajo esas leyes.
 

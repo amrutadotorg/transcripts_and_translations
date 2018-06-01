@@ -1,4 +1,4 @@
-Shri Guru Puja. Shuddy Camps, Reino Unido. 13 de julio de 1987.
+Guru Puja. Shuddy Camps, Reino Unido. 13 de julio de 1987.
 
 Hoy es un gran día porque estáis aquí, en el reino del corazón del Universo, para adorar al Guru; si podéis hacer esto en vuestro corazón no tendréis que hacer nada más. Hoy también siento que tengo que hablaros de Sahaja Yoga y su valor en relación con otros yogas que fueron aceptados en tiempos antiguos en todo el mundo.
 
@@ -6,7 +6,7 @@ Lo que en un principio se llamó Yoga, (no Sahaja Yoga) comenzó con las distint
 
 Luego apareció otro estilo de acercamiento llamado Sankhya, que consistía en reunir cosas en la vida con desapego para luego distribuirlas. Después, iban a un Guru con completa entrega, y entonces recibían la Realización. Sankhya era el camino del lado izquierdo y Yoga el del derecho. En el Sankhya se utilizaba el Gayatri Mantra, porque solían ser personas del lado izquierdo. Se fueron tanto al lado izquierdo reuniendo cosas, posesiones, propiedades, reuniendo todo tipo de relaciones y de sociedades, que tenían miedo de ser arrollados y perderse entre esas cosas, y así acudían al Gayatri Mantra, el cual os enseña la esencia de todos los chakras o centros.
 
-Ya os he hablado de esto antes: Bhuh, Bhur, Swaha...etc. BHUH significa la Esencia, el Bija del Muladhara; BHUR es el Universo creado, es el Bija del Swadisthana; SWAHA es el Bija del Nabhi; MANAH en la esencia del chakra del Corazón; JANAH es la gente o la colectividad, es la esencia, el Bija del Vishuddhi; TAPAH es donde entramos en tapasya, en la renuncia, en las privaciones, es la esencia del Agnya chakra. Y finalmente SATYAH, que es la Verdad, la Esencia del Sahasrara. No la Verdad que nosotros consideramos como Verdad, sino que es la Verdad que se expresa en nuestro sistema nervioso central. Esto se descubre en la séptima etapa, el Sahasrara.
+Ya os he hablado de esto antes: Bhuh, Bhur, Swaha...etc. BHUH significa la Esencia, el Bija del Muladhara; BHUR es el Universo creado, es el Bija del Swadisthana; SWAHA es el Bija del Nabhi; MANAH en la esencia del chakra del Corazón; JANAH es la gente o la colectividad, es la esencia, el Bija del Vishuddhi; TAPAH es donde entramos en tapasya, en la renuncia, en las privaciones, es la esencia del Agnya chakra. Y finalmente SATYAH, que es la Verdad, la Esencia del Sahastrara. No la Verdad que nosotros consideramos como Verdad, sino que es la Verdad que se expresa en nuestro sistema nervioso central. Esto se descubre en la séptima etapa, el Sahastrara.
 
 Así, la gente que practicó Sankhya no eran demasiado respetados como gente espiritual, porque se pensaba que estaban muy envueltos en cosas y propiedades mundanas, y por tanto se les consideró como secundarios. Y sin embargo, aquellos yoguis que habían ido a un Guru eran considerados más elevados puesto que habían dejado todas sus pertenencias.
 

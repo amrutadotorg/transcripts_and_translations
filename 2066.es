@@ -1,4 +1,4 @@
-Shri Guru Puja: "Estableciendo el Principio del Guru". Nightingale Lane, Londres, Reino Unido. 4 de julio de 1982.
+Guru Puja: "Estableciendo el Principio del Guru". Nightingale Lane, Londres, Reino Unido. 4 de julio de 1982.
 
 ¿Quién va a traducirme? ... ¿Por qué no uno de estos Gregoire?
 

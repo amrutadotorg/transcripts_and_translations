@@ -1,4 +1,4 @@
-Charla a yoguis: "Atma y Pamamatma". Delhi, India. 18 de agosto de 1979.
+Charla a yoguis: "Atma y Pamamatma", 18 de agosto de 1979.
 
 La repentina llegada es por varias razones. En Sahaja Yoga, repentina llegada tiene un significado especial. Debemos haber visto muchos incidentes en nuestras vidas los cuales han ocurrido repentinamente. No significan nada para nosotros. Si tratamos a un nivel intelectual la cuestión no podemos comprender por qué un incidente especial ha ocurrido en nuestra vida. Ha sido el camino de los seres humanos, él quiere comprender todo a través del razonamiento. Esto es correcto en parte porque su consciencia no ha despertado todavía. Cuando su consciencia es limitada y cuando está buscando la prueba de todo a través de su intelecto, es difícil para él adoptar algunos otros significados que están fuera del alcance del razonamiento
 

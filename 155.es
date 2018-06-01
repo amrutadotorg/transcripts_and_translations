@@ -1,4 +1,4 @@
-Carta sobre el Rakhi & Raksha-Bandhan en el día de Purnima. 7 de agosto de 1978.
+Carta sobre el Rakhi &amp; Raksha-Bandhan en el día de Purnima. 7 de agosto de 1978.
 
 [Traducción de Marathi]
 

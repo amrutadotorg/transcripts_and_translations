@@ -1,4 +1,4 @@
-Charla a yoguis: "El valor del matrimonio". Dollis Hill Ashram, Londres, Reino Unido. 8 de marzo de 1980.
+Charla a yoguis: "El valor del matrimonio". Dollis Hill Ashram, 8 de marzo de 1980.
 
 Sahaja Yoga es primero para comenzar la germinación, y después para crecer. En ese crecimiento, tenéis que convertiros en una personalidad cada vez más grande. Con el matrimonio os convertís en una persona incluso mejor. Desarrolláis una personalidad mejor.
 
