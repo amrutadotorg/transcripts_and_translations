@@ -1,4 +1,4 @@
-Shri Guru Puja. Cabella Ligure, Italia. 20 de julio de 1997.
+Guru Puja. Cabella Ligure, Italia. 20 de julio de 1997.
 
 Este puja que vamos a celebrar es muy importante para nosotros. Todos tenéis la Realización y el conocimiento necesario para dársela a otros. Debéis saber que lo que tenéis, es muy importante. Si no os ponéis a prueba, si no dais la Realización, no tendréis ni fe en vosotros mismos ni autoestima.
 

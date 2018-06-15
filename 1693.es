@@ -1,4 +1,4 @@
-Shri Adi Shakti Puja. Nirmal Nagari, Canajoharie, Nueva York, Estados Unidos. 2 de julio de 2000.
+Adi Shakti Puja. Nirmal Nagari, Canajoharie, Nueva York, Estados Unidos. 2 de julio de 2000.
 
 Hoy hemos venido aquí para hacer el puja a la Adi Shakti. Ya os he hablado sobre la Adi Shakti, sobre cómo Ella ha hecho que funcionen muchas cosas en este mundo -en primer lugar la Creación, y en ella los seres humanos- a través del proceso evolutivo. Después de eso, reconfortarles y luego aconsejarles. Muchas personas vinieron a este mundo simplemente para aconsejar a los seres humanos. Dijeron qué está mal y qué está bien, lo que se debe hacer y lo que no se debe hacer, qué es respeto por uno mismo y cuáles son los deberes de un ser humano como el ser supremo de la creación. Muchas personas vinieron para esto, una detrás de otra, en muchos países. De sus consejos surgieron las religiones.
 

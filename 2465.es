@@ -1,4 +1,4 @@
-Shri Guru Puja. Cabella Ligure, Italia. 4 de julio de 2004.
+Guru Puja. Cabella Ligure, Italia. 4 de julio de 2004.
 
 Es para mí un gran placer, una gran alegría, ver que han venido tantos sahaja yoguis para el Guru Puja. Es muy gratificante pensar que sois tantísimos discípulos. Nunca esperé que un día me siguiera tal cantidad de gente. Lo que sí se espera de vosotros es que sigáis mi Mensaje de Amor.
 

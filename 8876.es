@@ -1,6 +1,6 @@
-Shri Guru Puja. Cabella Ligure, Italia. 20 de julio de 2008.
+Guru Puja. Cabella Ligure, Italia. 20 de julio de 2008.
 
-Hoy es un gran día para todos los sahaja yoguis porque el Sahasrara se abrió en vosotros y pudisteis sentir la existencia de Dios. Decir que Dios existe no era suficiente y decir que Dios no existe también estaba mal, muy mal, y la gente que lo ha dicho ha sufrido. Solo después de recibir la Realización sabéis que Dios existe y que existen las vibraciones. Es una gran apertura en todo el mundo. Por eso digo que hoy es uno de los días más grandes para vosotros.
+Hoy es un gran día para todos los sahaja yoguis porque el Sahastrara se abrió en vosotros y pudisteis sentir la existencia de Dios. Decir que Dios existe no era suficiente y decir que Dios no existe también estaba mal, muy mal, y la gente que lo ha dicho ha sufrido. Solo después de recibir la Realización sabéis que Dios existe y que existen las vibraciones. Es una gran apertura en todo el mundo. Por eso digo que hoy es uno de los días más grandes para vosotros.
 
 Muchos de vosotros habéis sentido la brisa fresca en vuestras manos y saliendo de vuestra cabeza. Algunos habéis crecido en Sahaja Yoga, otros no. Algunos todavía continúan con viejos bloqueos. Pero ahora, tengo que decir que bastantes de vosotros podéis convertiros en gurus, es decir, en profesores; y deberíais actuar como maestros. Para actuar como maestros deberíais conocer Sahaja Yoga -su teoría y su práctica- absolutamente bien y, entonces, podéis convertiros en un guru.
 

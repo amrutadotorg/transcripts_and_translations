@@ -107,26 +107,26 @@ All right. Now, the second condition is - which is also not very absurd - that p
 
 And the third one is - I think, is also very simple - is to forgive yourself, as I said, and forgive others. Now, you say " Mother, we can't, just we can't, it's very difficult. " But try to understand the logic: whether you forgive or don't forgive, what do you do? Nothing, just the same. But say, if you don't forgive, then what happens: you play into wrong hands, you torture yourself. So, just say in your heart " Mother, I forgive myself fully, I forgive others fully " - whether they are in your mind or not, just say that and your this center will open now in no time.
 
-This will all help Me a lot. These tree things are very important and I know you can get your Realization in no time. 
+This will all help Me a lot. These tree things are very important and I know you can get your Realization in no time.
 
-So to put your hands like this towards Me, like this, just simple, as if you are asking for your Self realization, like this. Need not be higher, just whatever is comfortable. People can't believe that sitting in the hall, how can we get Realization? But you deserve it. You get it because that's the time, and because you are seekers. 
+So to put your hands like this towards Me, like this, just simple, as if you are asking for your Self realization, like this. Need not be higher, just whatever is comfortable. People can't believe that sitting in the hall, how can we get Realization? But you deserve it. You get it because that's the time, and because you are seekers.
 
-Don't doubt yourself, please. Have your hands like that. Now, you can close your eyes, if you want to. If you don't want to close, don't close your eyes. Because there is no mesmerism going on: at least, I close My eyes. 
+Don't doubt yourself, please. Have your hands like that. Now, you can close your eyes, if you want to. If you don't want to close, don't close your eyes. Because there is no mesmerism going on: at least, I close My eyes.
 
-Now, put the right hand towards Me, and put the left hand on top of your fontanel bone area. 
-Now, you'll feel some cool or hot breeze, coming out of your fontanel bone area, which was a soft bone in your childhood. Don't put your hand on top of it, you have to put it away from you, and you can move the hand to see yourself. Don't say that you've got it unless and until you've got it. You are not to cheat ourselves, all right. Now, please, put your left hand towards Me and put the right hand on top of your head. You can bend your head, that's better if you bend your head, and with the right hand you see. 
+Now, put the right hand towards Me, and put the left hand on top of your fontanel bone area.
+Now, you'll feel some cool or hot breeze, coming out of your fontanel bone area, which was a soft bone in your childhood. Don't put your hand on top of it, you have to put it away from you, and you can move the hand to see yourself. Don't say that you've got it unless and until you've got it. You are not to cheat ourselves, all right. Now, please, put your left hand towards Me and put the right hand on top of your head. You can bend your head, that's better if you bend your head, and with the right hand you see.
 
-Once more, please, put your right hand towards Me, and again with the left hand you see for yourself, if there's a cool or a hot breeze is coming. Now, don't doubt it: if it is coming, it is there. Could be hot, it will cool down. Can move up on the sides and see for yourself. Now, open your eyes and put your both the hands towards Me like this. Now, watch Me without thinking, without thinking, just try, you can do it. 
+Once more, please, put your right hand towards Me, and again with the left hand you see for yourself, if there's a cool or a hot breeze is coming. Now, don't doubt it: if it is coming, it is there. Could be hot, it will cool down. Can move up on the sides and see for yourself. Now, open your eyes and put your both the hands towards Me like this. Now, watch Me without thinking, without thinking, just try, you can do it.
 
 Ah?
 
-Now, raise your both the hands towards the sky like this, push back your head. And ask anyone of these three questions three times, anyone of them: 
+Now, raise your both the hands towards the sky like this, push back your head. And ask anyone of these three questions three times, anyone of them:
 
-First one " Mother, is this the Cool Breeze of the Holy Ghost? " - first question is " Is this the Cool Breeze of the Holy Ghost? " Second question is " Mother, is this the All-pervading Power of Divine love? " Third question is " Mother, is this the Ruh, or the Param Chaitanya? " Ask anyone of these questions three times in your heart. 
+First one " Mother, is this the Cool Breeze of the Holy Ghost? " - first question is " Is this the Cool Breeze of the Holy Ghost? " Second question is " Mother, is this the All-pervading Power of Divine love? " Third question is " Mother, is this the Ruh, or the Param Chaitanya? " Ask anyone of these questions three times in your heart.
 
-Now, again put down your hands, that's all. Now, put your hands like this towards Me, just like this. 
+Now, again put down your hands, that's all. Now, put your hands like this towards Me, just like this.
 
-All those who have felt cool or hot breeze on their palms or on their fingertips or out of their fontanel bone area, please raise your both the hands. 
+All those who have felt cool or hot breeze on their palms or on their fingertips or out of their fontanel bone area, please raise your both the hands.
 
 Just look at that! You're proving what I've said. Just look at that! Now, you've got it, now this is a responsibility to grow.
 

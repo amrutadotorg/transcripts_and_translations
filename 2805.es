@@ -8,7 +8,7 @@ Cuando alguien nos bendice y nos dice: "Que tengas Kalyana (que seas bendecido)"
 
 Lo primero y más importante es el aspecto físico, los problemas y debilidades a nivel físico. Todo esto desaparece con la vía del Kalyana. Os libráis de vuestros problemas físicos. Si esto todavía no os ha sucedido, debéis pensar que todavía no habéis alcanzado el estado de Kalyana. En segundo lugar, están las debilidades a nivel mental. Las obstrucciones y problemas mentales que persisten en vosotros, impidiéndoos alcanzar el estado de Kalyana, y por las cuales no podéis florecer completamente, también desaparecen. En esto se basa este poder.
 
-Cuando lográis este poder, obtenéis la verdadera solución Kalyana a todos los problemas, es decir, os convertís en seres realizados. Shri Mahadeva ayuda mucho en este proceso. Cuando vuestra Kundalini atraviesa el Sahasrara, Shri Mahadeva se establece allí. Por eso se le llama "Mahadeva": el Dios de los Dioses.
+Cuando lográis este poder, obtenéis la verdadera solución Kalyana a todos los problemas, es decir, os convertís en seres realizados. Shri Mahadeva ayuda mucho en este proceso. Cuando vuestra Kundalini atraviesa el Sahastrara, Shri Mahadeva se establece allí. Por eso se le llama "Mahadeva": el Dios de los Dioses.
 
 Esta vía del Kalyana lleva a muchos otros logros. El más importante es la paz: paz mental, paz física, y sobre todo la paz mundial. En el mundo hay muchos problemas y dificultades. Todos pueden superarse por medio de la Realización Kalyana. Sencillamente, dejarían de existir. Hay mucha gente en el mundo que, después de obtener este poder, se establecen en su meditación y actúan allí donde viven. Esto es Kalyana, el camino por el cual la persona alcanza un completo equilibrio.
 

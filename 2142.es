@@ -68,7 +68,7 @@ Estoy segura de que todos comprenderéis la magnitud del peligro que acecha. Qui
 
 La lucha que estoy librando es, sin duda, muy seria. Pero si podéis luchar todos colectivamente, podremos lograr mucho... (pausa larga)... Todos mis esfuerzos, mi entendimiento, mis poderes, todo, está ahora en vuestras manos, y debéis estar preparados para ello. No solo por medio de leer alguna cosa o hablando al respecto, sino desarrollando el Poder del Amor en vuestro interior.
 
-Con la apertura del Sahasrara, estoy segura de que lo lograréis. Intentad leer algo, comprender algo sobre el Poder del Amor. Es un tema muy profundo, y al hablar de él, estoy en parte en mi interior y en parte afuera. Tengo que pediros a todos que desarrolléis este Poder del Amor, pues solo eso constituirá una oposición muy fuerte contra estos "malhechores", como se les suele llamar.
+Con la apertura del Sahastrara, estoy segura de que lo lograréis. Intentad leer algo, comprender algo sobre el Poder del Amor. Es un tema muy profundo, y al hablar de él, estoy en parte en mi interior y en parte afuera. Tengo que pediros a todos que desarrolléis este Poder del Amor, pues solo eso constituirá una oposición muy fuerte contra estos "malhechores", como se les suele llamar.
 
 Todas mis bendiciones están con vosotros, y quiero que todos lo logréis individualmente. ¿A cuántas personas amáis? ¿A cuántas personas....... (pequeña pausa)... Tenéis que averiguarlo.
 

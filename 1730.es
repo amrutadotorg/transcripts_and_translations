@@ -1,4 +1,4 @@
-Shri Adi Shakti Puja. Cabella Ligure, Italia. 25 de mayo de 1997.
+Adi Shakti Puja. Cabella Ligure, Italia. 25 de mayo de 1997.
 
 Hoy vamos a celebrar el Puja a la Adi Shakti. Hablar acerca de la Adi Shakti es muy difícil, porque no es fácil entender que la Adi Shakti es el Poder de Sadashiva. Sadashiva es Dios Todopoderoso y Ella es su aliento, como lo llama alguna gente. Algunos dicen que Ella es el deseo y otros dicen que es todo el Poder de Sadashiva. Y Sadashiva no puede hacer nada sin sus poderes. Este tema ha sido descrito por mucha gente, de diferentes modos, en varios libros. En realidad no necesitamos ir a los antecedentes de la Creación de la Adi Shakti, para ello necesitaríamos al menos siete charlas. Pero vayamos al punto en el que la Adi Shakti empezó a trabajar en esta Madre Tierra.
 

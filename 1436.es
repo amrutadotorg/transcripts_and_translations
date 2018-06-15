@@ -1,4 +1,4 @@
-Shri Adi Shakti Puja. Cabella Ligure, Italia. 6 de junio de 1993.
+Adi Shakti Puja. Cabella Ligure, Italia. 6 de junio de 1993.
 
 Hoy me vais a adorar, por primera vez, como Adi Shakti. Hasta ahora hemos tenido pujas de aspectos o partes de mí. Ahora, uno tiene que saber muy claramente lo que es la Adi Shakti. Como ya hemos dicho, es el Puro Deseo de Dios Todopoderoso, de Sadashiva. Pero, ¿cuál es el deseo de Dios Todopoderoso? Si observáis de dónde provienen vuestros deseos veréis que no provienen del Amor divino sino del amor carnal, del amor material o del amor al poder; detrás de todos estos deseos hay amor, si no amáis o queréis algo no lo deseáis.
 

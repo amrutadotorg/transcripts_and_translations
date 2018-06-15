@@ -1,4 +1,4 @@
-Shri Guru Puja. Cabella Ligure, Italia. 23 de julio de 2000.
+Guru Puja. Cabella Ligure, Italia. 23 de julio de 2000.
 
 Hoy estamos aquí para saber sobre el Principio del Guru. ¿Qué hace un guru? El guru descubre, para vuestro conocimiento, todo lo que tenéis, todas las cosas preciosas dentro de vosotros. De hecho, todo está ahí, todo, todo el conocimiento, toda la espiritualidad, todo el gozo están allí (en el momento justo). Todo está contenido dentro de vosotros. Lo único que hace un guru es haceros conscientes de vuestro conocimiento, de vuestro propio Espíritu. Todo el mundo tiene el Espíritu en su interior. Todos tienen espiritualidad en su interior. No hay nada que se obtenga de afuera. Pero antes de tener este conocimiento, vivís en la ignorancia. En esa ignorancia, no sabéis el tesoro que lleváis dentro. Así, el trabajo del guru es haceros saber lo que sois. Este es el primer paso, el de comenzar este despertar en vosotros, por medio del cual sabéis que no sois este mundo exterior, que es solo una ilusión, y comenzáis a iluminaros en vuestro interior. Algunas personas logran una luz completa, otras lo van logrando gradualmente.
 

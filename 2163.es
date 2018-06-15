@@ -1,4 +1,4 @@
-Shri Guru Puja. Cabella Ligure, Italia. 8 de julio de 2001.
+Guru Puja. Cabella Ligure, Italia. 8 de julio de 2001.
 
 No sabéis cómo se siente vuestra Madre al ver a tantas personas, que por sí mismas, se han convertido en verdaderos gurus. Han buscado la Verdad en tiempos muy difíciles. Deseaban saber qué es la Verdad. Y estos tiempos difíciles han servido para influir en vuestras mentes y hacer que os preguntéis qué está pasando en este mundo. Todo lo que veis a vuestro alrededor y en el mundo entero muestra que, definitivamente, hay algo que marcha muy mal y que tenemos que llegar más lejos.
 
