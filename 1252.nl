@@ -141,6 +141,7 @@ Leg nu je hand op de top van je hoofd, waar je vroeger een zacht been had, de ta
 
 
 
+
 [1] asana: Sanskriet voor ‘zitten’ of (ver)blijven; fysieke yoga oefeningen en lichaamshoudingen
 
 

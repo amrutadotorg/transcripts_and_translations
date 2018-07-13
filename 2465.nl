@@ -1,11 +1,5 @@
-Shri Mataji Nirmala Devi
+Shri Guru Puja - Cabella Ligure, Italië - 4 juli 2004
 
-Guru Puja
-
-Cabella Ligure, Italië
-4 juli 2004
-
-Engelse transcriptie: ISDP verified
 Nederlands: eindversie 16/07/2010
 
 Het doet me veel plezier, het geeft heel veel vreugde om zoveel Sahaja yogi's te zien voor de Guru Puja. Het doet me veel genoegen te bedenken dat er zovelen zijn, zoveel van jullie die volgelingen zijn.

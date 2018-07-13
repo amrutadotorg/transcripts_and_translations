@@ -2,10 +2,8 @@ Shri Mataji Nirmala Devi
 
 Puja lezing – deel I en II
 ‘Je moet je eigen belangrijkheid begrijpen’
-
 Brighton, Engeland
 15 mei 1982
-
 Engelse transcriptie verified
 Nederlands: eindversie 18/09/2014
 
@@ -313,7 +311,7 @@ Niemand anders kan daar binnentreden. Brahma granthi. Kijk, je kunt niet in dit 
 
 Kijk, zonder naar Sahaja Yoga te zijn gekomen zou je al deze dingen nooit hebben begrepen, nietwaar? Want jullie zouden normaal gezien niet eens weten dat er granthi's in ons zijn, dat er centra in ons zijn, en dat deze centra geopend moeten worden zodat er vervolgens granthi's gevormd worden tussen de centra - al deze kennis is zo goed als ontoegankelijk. Als jullie niet gerealiseerd zijn, wat voor nut heeft het dan hier met jullie over te praten? Jullie zouden het niet begrijpen. Maar soms kun je bij iemand zien dat op een bepaald punt tussen twee centra de Kundalini stopt, zie je. Als je bijvoorbeeld de centra hebt van Manipura en Swadisthana, dan stopt de Kundalini tussen deze twee centra. Wat betekent dit nu? Dat is de granthi van Vishnu, het is dus de Vishugranthi vibhedini. Alleen als je de mantra van Vishnugranthi vibhedini zegt, dan zal de Kundalini verder opstijgen. Maar voor de realisatie, voordat de Kundalini zelfs nog maar is opgestegen, wat heeft dit dan voor betekenis? Dan zijn het slechts woorden zonder enige betekenis.
 
-Hier, ter hoogte van de Agnya chakra. Antaral. Antaral betekent de diepste kern. Antaral - in de diepste kern van de Agnya chakra zetelt zij. Rudra. Sahasraram bhuja wil zeggen 'in de lotus van de Sahasrara', aarudh - zij is hierop neergedaald. Bestijgen - dat is aarudh. Goed. Als je op een troon gaat zitten of op een paard dan noemen jullie dat ook wel 'gezeten': zij is 'gezeten op', zij is 'gezeten op' - aarudh.
+Hier, ter hoogte van de Agnya chakra. Antaral. Antaral betekent de diepste kern. Antaral - in de diepste kern van de Agnya chakra zetelt zij. Rudra. Sahastraram bhuja wil zeggen 'in de lotus van de Sahastrara', aarudh - zij is hierop neergedaald. Bestijgen - dat is aarudh. Goed. Als je op een troon gaat zitten of op een paard dan noemen jullie dat ook wel 'gezeten': zij is 'gezeten op', zij is 'gezeten op' - aarudh.
 
 [Yogi: Ere aan haar die rank is als de stengel van een lotus.]
 
@@ -397,7 +395,7 @@ Het is prachtig. Deze komt uit Brighton. Laat Jeremy die van Brighton vasthouden
 
 Kom maar, maak het netjes vast. Kom maar, kom maar. Maak het maar vast... Goed. Nee, als je klaar bent met deze margrieten, dan is het klaar. Goed. Het zit goed, het is klaar; het is fantastisch gedaan, nietwaar? Het is niet gemakkelijk. Jullie kunnen het alleen omdat jullie Sahaja yogi's zijn. Nee, nee, het is echt niet gemakkelijk. Vraag het aan wie dan ook.
 
-Zet deze bloemen maar hier voor. Dit zijn allemaal krachten van Vishnu. Ze geuren zo heerlijk! Kijk eens naar deze, de Sahasrara is zo open! Kijk eens naar deze margrieten, kijk hoe prachtig hun Sahasrara is! Kijk hier eens naar, kijk naar deze. Kijk er gewoon naar, jullie allemaal. Alleen margrieten hebben dit bijzondere element, heb je dat al eerder opgemerkt? En je zult ook te weten komen dat mijn naam Margriet is. Kijk, de één is mooier dan de ander - zie je dat? Ja, werkelijk! Ja, het is echt waar! En de geur, je zou de geur eens moeten ruiken van deze margrieten!
+Zet deze bloemen maar hier voor. Dit zijn allemaal krachten van Vishnu. Ze geuren zo heerlijk! Kijk eens naar deze, de Sahastrara is zo open! Kijk eens naar deze margrieten, kijk hoe prachtig hun Sahastrara is! Kijk hier eens naar, kijk naar deze. Kijk er gewoon naar, jullie allemaal. Alleen margrieten hebben dit bijzondere element, heb je dat al eerder opgemerkt? En je zult ook te weten komen dat mijn naam Margriet is. Kijk, de één is mooier dan de ander - zie je dat? Ja, werkelijk! Ja, het is echt waar! En de geur, je zou de geur eens moeten ruiken van deze margrieten!
 
 Goed, ik denk dat de jongens de sari zo hebben vastgemaakt.
 
