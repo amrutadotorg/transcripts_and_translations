@@ -32,5 +32,3 @@ Una vez que vuestra Kundalini, energía de la evolución que permanece inactiva,
 
 En tres dimensiones Tamo guna (izquierdo) os volvéis Sthit, estable, Rajo guna (derecho) se activa y Satva guna os coloca en el Dharma, rectitud. La cuarta dimensión es cuando el ser humano está más allá de estos tres, en Nirivichara (sin pensamientos)/ inconsciente colectivo
 
-
-

@@ -72,7 +72,3 @@ Me gustaría que todos ustedes sintieran que la hacen y así podrán sentir [los
 
 Su Santidad Shri Mataji Nirmala Devi
 
-
-
-
-

@@ -385,7 +385,6 @@ Jak: "Chodź do domu mojego ojca, muszę iść do domu mojej mamy". Wszystkie te
 
 Ale kobiety powinny zrozumieć, że jej rodzina jest ważniejsza niż ojciec, matka nawet Mataji. Ponieważ Ja będę szczęśliwa, tylko widząc szczęśliwą rodzinę. Tak więc dziękuję bardzo.
 
-
 Litania na zagładę Materasury  (demona materializmu), Z programu wieczornego przed Navaratri Pują w Cabelli, 04.10 1997
 
 [Podczas programu wieczornego, po kilku występach muzycznych i sztuce przedstawionej przez Anglików, szwajcarscy Sahaja yogini odegrali sztukę, w której otwarcie potępili szwajcarski bank (o praniu brudnych pieniędzy itp.). Na końcu recytowali "Litanię na zagładę Materasury" - demona materializmu:

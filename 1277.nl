@@ -127,22 +127,15 @@ Kijk, svatojayte betekent het principe, je doet het principe van het hele univer
 
 Het zou beter "Jij bent God in de mens" zijn. God in de mens... Hij is geen mens, in geen geval, hoe kun je hem zo noemen?
 
-
-
 [1] dharma: geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag
-
 
 [2] bhoot: geest van een overledene
 
-
 [3] nirvikalpa: twijfelloos bewustzijn
-
 
 [4] vaidya: Ayurvedische dokter
 
-
 [5] rakshasa’s: demonen, incarnaties van negatieve krachten
-
 
 [6] Virata: het Kosmische Lichaam
 

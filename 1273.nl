@@ -137,38 +137,25 @@ Nu de getrouwde vrouwen. Getrouwde vrouwen? (Aan de kinderen, aan de kinderen, a
 Alle getrouwde vrouwen kunnen naar voren komen. Goed. Laten we het doen. Je kunt eerst deze armbanden gebruiken. Daar zijn enkele armbanden. Goed. Armbanden. Zie je, geef het door aan alle vrouwen, een voor een, en dan zijn deze armbanden er. Er is ook nog een andere in het groen. Dit moet - niet, het is niet voor jou, het is voor mij! Goed, daar is er nog een andere. Daar is er nog één; zij zal het nemen. Nu, klaar. Kijk nu, je kunt ze rond mijn hand doen. Nu de rode. Nu de groene. Nu de rode. Nu de groene. Dank je. Nu de rode. De groene. Nu de rode. De groene. Nu de rode. Is het nu klaar? Rood. Rood. Groen. En rood. Nu, ah! Hoe ze rinkelen, zie je? Dat maakt het leuk!
 Wat is dit? Wat is dat? Maak dit maar open. Nu, dit is... Je moet het aanbrengen op mijn voeten. Dit is hoe... Dat is alles. Nu is het klaar. Het is klaar. Nu moet mijn hand gedaan worden. Eerst maak je een lijn, op deze manier, en de rest moet je ermee opvullen. Kijk, maak de lijn, laten we dat doen, en dan alleen nog dit... en hier, alleen tot hier maak je de lijn, en dan vul je het op. Goed? Met deze vinger, de Agnya vinger. Wat er overblijft kunnen we nu opvullen.
 
-
-
-
 [1] panchamruta of panchamrit: ‘panch’ betekent ‘vijf’, ‘amrut’ betekent ‘nectar’ - ‘nectar van de goden’, bestaande uit 5 elementen (ghee, melk, yoghurt, honing en suiker); wordt gebruikt bij het uitvoeren van puja’s
-
 
 [2] shripala: kokosnoot
 
-
 [3] shankar: schelphoorn
-
 
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
-
 [5] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
 
 [6] bhootish: afkomstig van of onder invloed van bhoots
 
-
 [7] durva: grassoort (Cynodon dactylon) die gebruikt wordt om Shri Ganesha te vereren en te behagen
-
 
 [8] vahana: voertuig, in het bijzonder het dier waarmee bepaalde godheden zich verplaatsen
 
-
  [9] Chaturthi: geboortedag van Shri Ganesha; belangrijk Ganesha festival in India.
 
-
 [10] Chaturdashi: volgens de hindu kalender de 14de dag van de wassende of afnemende fase van de maan. Het is de dag voor nieuwe of volle maan.
-
 
 [11] pushpam: bloem
 

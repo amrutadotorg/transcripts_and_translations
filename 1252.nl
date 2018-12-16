@@ -139,26 +139,17 @@ Dit antwoord zal een koele bries in je handen doen stromen.
 Leg nu je hand op de top van je hoofd, waar je vroeger een zacht been had, de taloo. Ga na of er een koele bries uit komt. Je kunt mij één vraag stellen, omdat ik dit niet aan jullie kan opdringen, je moet er zelf om vragen. Je moet om je zelfrealisatie vragen: “Moeder geef mij alsjeblieft mijn zelfrealisatie.” Ik kan het je niet opleggen. Je vrijheid moet gerespecteerd worden. Als je naar de hel wilt gaan, kan je gaan. Als je naar de hemel wilt gaan, kan het ook uitwerken. Dus vraag me alsjeblieft om je zelfrealisatie. Eigenlijk geef ik het je niet, maar zo werkt het uit.
 [Hier stopt de opname.]
 
-
-
-
 [1] asana: Sanskriet voor ‘zitten’ of (ver)blijven; fysieke yoga oefeningen en lichaamshoudingen
-
 
 [2] sahaja, sahaj: spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
-
 [3] Guru Nanak(a): 1469 - 1539 AC, Punjab, India. Eén van de 10 Primordiale (oospronklijke) Meesters; grondlegger van de Sikh religie.
-
 
 [4] Kabir(a): gerealiseerde heilige en dichter die leefde in Bihar, India, in de 16de eeuw. Hij gebruikte veelvuldig Sahaj termen in zijn liederen en gedichten.
 
-
 [5]  ashtanga: betekent letterlijk ‘acht’. Patanjali beschreef in zijn Yoga Sutra’s acht principes waarop de Hatha Yoga discipline gebaseerd is.
 
-
 [6] Ishwar pranidhana: overgave aan God (Ishwara), vertrouwen op het grotere geheel.
-
 
 [7] smriti: klassieke religieuze geschriften uit India; geschriften waarmee men zich 'de oorspronkelijke wijsheid' herinnert.
 

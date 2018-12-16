@@ -300,55 +300,37 @@ O, dank je. Twee, drie kinderen, wie is de jongste? Welke leeftijd heeft de jong
 
 Zijn dat cementblokken? Wij hebben ook zoiets, maar in India zijn ze niet sterk. Maar deze kunnen twee verdiepingen dragen? Echt?
 
-
-
 [1] Pingala nadi: rechter energiekanaal; correspondeert met het (rechter) sympathische zenuwstelsel. Kanaal van actie en toekomstgericht denken.
-
 
 [2] Ida nadi: linker energiekanaal; correspondeert met het (linker) sympathische zenuwstelsel. Kanaal van de emoties en het verleden.
 
-
 [3] nadi: energiekanalen in ons subtiel lichaam. De belangrijkste zijn het linker en rechter energiekanaal, corresponderend met het sympathische zenuwstelsel, en het middenkanaal corresponderend met het parasympathische zenuwstelsel.
-
 
 [4] bandhan: bescherming
 
-
 [5] tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
-
 
 [6] bhoots: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
-
 [7] rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
-
 
 [8] sushupti: staat van diepe slaap
 
-
 [9]  brahmaan: betekent letterlijk ‘diegene die tweemaal geboren is en de brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het vroegere kastensysteem in India.
-
 
 [10] modus operandi: manier van werken
 
-
 [11] Angina pectoris: een drukkend, zwaar gevoel en/of pijn midden op de borst (angineuze pijn) dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen.
-
 
 [12] badha: subtiele negativiteit, blokkade, hindernis ter hoogte van orgaan of chakra
 
-
 [13] shirshasana: yogahouding of asana waarbij het lichaam ondersteboven staat, steunend op de kruin en de voorarmen
-
 
 [14] pranayama: yogaoefening waarmee de ademhaling wordt beheerst; controle over de levensenergie
 
-
 [15] dhyana: spirituele evolutie
 
-
 [16] prana: vitale levensenergie, adem – kracht die verbonden is met het rechterkanaal, de ‘Prana Shakti’
-
 
 [17] moksha: bevrijding, gelukzaligheid
 

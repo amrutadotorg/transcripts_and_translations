@@ -42,4 +42,3 @@ Sahaja Yoga, que está ahora en tiempos modernos, Yo he reactivado y canalizado,
 
 H.H. Shri Mataji Nirmala Devi
 
-

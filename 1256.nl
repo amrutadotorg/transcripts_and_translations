@@ -296,64 +296,43 @@ Kun je je dat voorstellen? Ik ben zelf verrast, ook over al degenen die in de ve
 
 Laten we het nu doen. Richt nu je handen naar mij, alsjeblieft. Doe allemaal jullie schoenen uit. Je moet het zoekende (in je) hebben. Als je geen zoeken (in je) hebt, wat heeft het dan voor nut naar mijn programma te komen?
 
-
-
 [1] chaitanya: vibraties, kracht van Gods liefde
-
 
 [2] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
-
 [3] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
 
 [4] brahmin, brahmaan: betekent letterlijk ‘diegene die tweemaal geboren is en de Brahmananda of goddelijke zegen kan voelen’. Ook: hoogste kaste in het kastensysteem in India.
 
-
 [5] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) moederkracht.
-
 
 [6] valentie: indicatie voor de kracht van een atoom om een chemisch verbinding te vormen. Koolstof heeft vier valenties, d.w.z. dat het koolstofatoom vier bindingen kan aangaan met een ander atoom.
 
-
 [7] dharma: afgeleid van Sanskriet ‘dhr’: ondersteunen. Geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag; de wezenlijke natuur van iets.
-
 
 [8] preta vidya: kennis van het paranormale
 
-
 [9] smashana vidya: kennis van het dodenrijk
-
 
 [10]  tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
 
-
 [11]  Ekadasha Rudra's: de elf vernietigende krachten van Shri Kalki
-
 
 [12]  Kalki: de tiende incarnatie van Shri Vishnu, die nog moet komen. De ‘ruiter op het witte paard’, die wordt aangekondigd bij het Laatste Oordeel, zoals beschreven in de Bijbelse Apocalyps.
 
-
 [13]  Matreya: ‘ma’ betekent ‘moeder’ die ‘in drie vormen’ (‘treya’) bestaat: Mahakali, Mahalakshmi, Mahasaraswati
-
 
 [14]  adharmisch: datgene dat tegen het dharma (het rechtschapen gedrag) ingaat
 
-
 [15]  spondylitis: de ziekte van Bechterew, ook wel spondylitis ankylopoëtica ('haken vormende ontsteking van de wervelkolom') of ankyloserende spondylitis genoemd.
-
 
 [16]  subplexus: bijknoop van een hoofdzenuwknoop of zenuwplexus in het ruggenmerg
 
-
 [17]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
 
 [18]  brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort; zetel van de Hart chakra op het hoofd
 
-
 [19]  Allah hu akbar: ‘God is groot’
-
 
 [20]  maryada's: begrenzing van het juiste (rechtschapen) gedrag
 
