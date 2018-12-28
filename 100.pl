@@ -1,9 +1,7 @@
 
 Diwali Puja,Moce Mahalakshmi,09.11.1980 Hampstead, Londyn
 
-...angielski, w tym sensie, że usiądziemy razem i przetłumaczymy Puję z sanskrytu
-
-na angielski, próbując uczynić ją bardziej zrozumiałą dla was ludzi. Mówią, że jest to dzień Pujy Mahalakshmi, nie tylko Pujy Lakshmi. Jest różnica między nimi dwoma.
+...angielski, w tym sensie, że usiądziemy razem i przetłumaczymy Puję z sanskrytu na angielski, próbując uczynić ją bardziej zrozumiałą dla was ludzi. Mówią, że jest to dzień Pujy Mahalakshmi, nie tylko Pujy Lakshmi. Jest różnica między nimi dwoma.
 
 Mahalakshmi jest jedną z sił, trzech sił, głównych sił Adi Shakti. Jak wiecie: Mahalakshmi, Mahasaraswati, Mahakali. Te siły posiadają moc na poziomie materialnym, ale także na poziomie subtelniejszym.
 
