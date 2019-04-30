@@ -17,9 +17,9 @@ De vraag is niet te weten of zij succesvol waren, maar zij hebben op zeer dapper
 
 In het menselijk wezen zijn er verschillende soorten gifstoffen. De eerste is de fysische: als je gifstoffen inneemt, wordt je lever beschadigd. En om als het ware de collectieve lever, de universele lever uit te dagen, is men begonnen met het distilleren van wijnen, van sterke alcohol, die zowel de individuele lever beschadigt, alsook de universele.
 
-Onze lever is het symbool van de lever van het primordiale wezen. Men kan zeggen dat onze lever één van de cellen is van de Europese lever. Dus is de verantwoordelijkheid van de Europeanen de gifstoffen van het universum te verwijderen, en niet van ze te consumeren of aan te pr ijzen.
+Onze lever is het symbool van de lever van het primordiale wezen. Men kan zeggen dat onze lever één van de cellen is van de Europese lever. Dus is de verantwoordelijkheid van de Europeanen de gifstoffen van het universum te verwijderen, en niet van ze te consumeren of aan te pr ijzen.
 
-Deze lever die Europa is, zou in goede staat geweest kunnen zijn, maar er zijn zoveel soorten gifstoffen die zich geïnstalleerd hebben, dat ze niet meer in staat was ze te elemineren.
+Deze lever die Europa is, zou in goede staat geweest kunnen zijn, maar er zijn zoveel soorten gifstoffen die zich geïnstalleerd hebben, dat ze niet meer in staat was ze te elemineren.
 
 Het is een vicieuse cirkel, want de lever ondersteunt onze aandacht en als je aandacht niet gefixeerd is op de noodzakelijkheid van de zuiverende functie, kan om het even welke gifstof je vergiftigen. Alcohol, of om het even wat stijgt naar het hoofd en zwakt je bewustzijnsniveau af.
 
@@ -31,7 +31,7 @@ Men begint compromissen af te sluiten, en men zegt: "Wat is er slecht aan het dr
 
 Bij voorbeeld zijn er mensen die asceten geworden zijn. Het katholicisme in dit land is zeer krachtig geworden, maar heeft het consumeren van alcohol niet verbannen. In het begin wel, maar daarna hebben ze de verbanning verzwakt...
 
-Als je niveau van bewustzijn vertroebeld is, zijn je ideeën in verband met sex ook vertroebeld. Je begint compromissen te sluiten op het niveau van je seksueel gedrag. Zo ontstond een soort grappig conflict bij de menselijke wezens dat zij asceten moeten zijn én alcohol drinken. Door het drinken van alcohol verliezen ze hun waarden in verband met sex, en ze weten niet wat te doen met zichzelf. Het is daarom dat religieuzen en asceten innerlijk met problemen zaten, maar zij uiterlijk een schijn van vrede en ascetisme te kennen gaven.
+Als je niveau van bewustzijn vertroebeld is, zijn je ideeën in verband met sex ook vertroebeld. Je begint compromissen te sluiten op het niveau van je seksueel gedrag. Zo ontstond een soort grappig conflict bij de menselijke wezens dat zij asceten moeten zijn én alcohol drinken. Door het drinken van alcohol verliezen ze hun waarden in verband met sex, en ze weten niet wat te doen met zichzelf. Het is daarom dat religieuzen en asceten innerlijk met problemen zaten, maar zij uiterlijk een schijn van vrede en ascetisme te kennen gaven.
 
 Op een dag vroeg ik aan de vriend van mijn man, zeer duidelijk:
 
@@ -45,7 +45,7 @@ Als een menselijk wezen zich zo gedraagt, voelt hij innerlijk dat hij een fout h
 
 Hij komt ertoe zichzelf ervan te overtuigen dat hij niets verkeerd heeft gedaan, en dat dit alles helemaal normaal was, zoals een dief na meerdere diefstallen een overtuigde boosdoener wordt. Het is zo dat hij zijn innerlijk conflict oplost met een sterke rationalisatie, omdat hij niet elk moment met dit conflict kan leven.
 
-Het. probleem is, dat wanneer de lever door deze conflicten aangetast is, het zelfvertrouwen fel vermindert. Als Moeder, verwijt ik niemand, en Ik verwijt eerder mezelf, want toen de Incarnaties op deze aarde gekomen zijn, hebben de Profeten tegen alcohol gesproken, maar ze hadden duidelijk moeten uitleggen dat alcohol gif is, gecreëerd en, getormenteerd door demonen om de wereld te vernietigen. Veronderstellen we dat ze zouden uitgelegd hebben dat het effect hetzelfdezou zijn als een atoombom, niemand zou er van gedronken hebben! Maar ze hebben enkel gezegd: "Drink niet". En door dit alleen te zeggen hebben ze een probleem voor de mensen gecreëerd, want als men hen een keer zegt iets niet te doen, zullen ze het tien keer meer doen. Kinderen zijn zo... En één keer ze deze gewoonte aangenomen hebben, hebben ze niet meer de mogelijkheid terug te stappen.
+Het. probleem is, dat wanneer de lever door deze conflicten aangetast is, het zelfvertrouwen fel vermindert. Als Moeder, verwijt ik niemand, en Ik verwijt eerder mezelf, want toen de Incarnaties op deze aarde gekomen zijn, hebben de Profeten tegen alcohol gesproken, maar ze hadden duidelijk moeten uitleggen dat alcohol gif is, gecreëerd en, getormenteerd door demonen om de wereld te vernietigen. Veronderstellen we dat ze zouden uitgelegd hebben dat het effect hetzelfdezou zijn als een atoombom, niemand zou er van gedronken hebben! Maar ze hebben enkel gezegd: "Drink niet". En door dit alleen te zeggen hebben ze een probleem voor de mensen gecreëerd, want als men hen een keer zegt iets niet te doen, zullen ze het tien keer meer doen. Kinderen zijn zo... En één keer ze deze gewoonte aangenomen hebben, hebben ze niet meer de mogelijkheid terug te stappen.
 
 Bij voorbeeld heeft Christus niet tegen alcohol gepraat, want zijn werk lag anders. Krishna heeft nooit tegen alcohol gepraat, Rama ook niet. Wat dat betreft, geen enkele van de Incarnaties heeft ooit tegen alcohol gepraat, met uitzondering van de Primordiale Meesters.
 
@@ -67,7 +67,7 @@ De lever is als een lampekap van een lamp: hij bevat de ruimte die de aandacht i
 
 Wanneer de Kundalini rijst voedt ze eerst je Swadisthan. En het is de Swadisthan die waakt over je aandacht: hij reinigt, hij zuivert uw aandacht via de lever, de pancreas en de nieren. Hij onderhoudt deze aandacht via de milt. Hij maakt de aandacht rijker door de vetcellen te transformeren in hersencellen. De hersencellen zijn zeer bijzonder; zij hebben een aandacht die naar buiten gaat.
 
-Als een mens iets bekijkt dan creëert hij een gedachtengolf van zichzelf daarover. Alle dimensies van de estetiek, kleuren, vormen, zijn in de menselijke hersencellen. De dieren hebben dit niet. Als een artiest dit bloemstuk ziet, kan hij zijn aandacht op die manier projecteren dat hij iets meer ziet. Hij kan de atmosfeer creëren, de atmosfeer door dit bloemstuk gecreërd reproduceren met enkele zinnen. Een toneelschrijver kan een stuk maken waarin hij een stemming, een atmosfeer weergeeft. Een musicus kan een melodie spelen die een atmosfeer van abstracte vreugde geeft.
+Als een mens iets bekijkt dan creëert hij een gedachtengolf van zichzelf daarover. Alle dimensies van de estetiek, kleuren, vormen, zijn in de menselijke hersencellen. De dieren hebben dit niet. Als een artiest dit bloemstuk ziet, kan hij zijn aandacht op die manier projecteren dat hij iets meer ziet. Hij kan de atmosfeer creëren, de atmosfeer door dit bloemstuk gecreërd reproduceren met enkele zinnen. Een toneelschrijver kan een stuk maken waarin hij een stemming, een atmosfeer weergeeft. Een musicus kan een melodie spelen die een atmosfeer van abstracte vreugde geeft.
 
 Het is alleen de menselijke geest die naar abstractie kan gaan. Er bestaan zeer grove mensen, maar zij kunnen ontwikkelen en zeer subtiel worden, en bekwaam worden om zich te projecteren in de dimensies van het abstracte. Er is geen einde aan de dimensies van het menselijk brein.
 
@@ -83,11 +83,11 @@ Maar de slechte effecten van alcohol worden niet direct door de persoon opgemerk
 
 Het probleem is dat men alcohol drinkt om het ego te ontwijken, omdat men het ego niet onder ogen durft te zien. Men wil ontsnappen aan zijn persoonlijkheid en men neemt alcohol. Indien men het ego onder ogen had genomen zou het verminderd zijn. Wanneer men terugkeert van dit tripje, verweg van het ego, is het ego gegroeid, het is een grote ballon.
 
-En omdat het ego geaktiveerd is zijn de hersencellen het ook gedurende een zekere tijd. Voor een bepaalde tijd, niettegenstaande de drank, kan men zeer veel kracht hebben, men kan een succesvol persoon zijn, of een groot redenaar zoals Hitler bijvoorbeeld, en dit zou lange tijd kunnen doorgaan als men niet aangetast was doop de katers. Maar al die gifstoffen hebben de mogelijkheid om te reageren. Al wat niet Goddelijk is zal op de lange duur tegenwerken. En na een zekere tijd vind je naties na naties die verdwijnen zoals het Romeinse keizerrijk. Engeland toont goed de weg. Ook Frankrijk, Zwitserland heeft nog een ander probleem: zij hebben een soort verkeerde militaire training. In Noorwegen pleegt men zelfmoord, Zweden concureert hierin met hen, Spanje, de Spanjaarden zijn een tijd zeer agressief geweest: zij zijn naar Chili en Argentinië geweest en nu worden ze verondersteld een ontwikkelingsland te zijn. Het is een arm land. En Portugal?
+En omdat het ego geaktiveerd is zijn de hersencellen het ook gedurende een zekere tijd. Voor een bepaalde tijd, niettegenstaande de drank, kan men zeer veel kracht hebben, men kan een succesvol persoon zijn, of een groot redenaar zoals Hitler bijvoorbeeld, en dit zou lange tijd kunnen doorgaan als men niet aangetast was doop de katers. Maar al die gifstoffen hebben de mogelijkheid om te reageren. Al wat niet Goddelijk is zal op de lange duur tegenwerken. En na een zekere tijd vind je naties na naties die verdwijnen zoals het Romeinse keizerrijk. Engeland toont goed de weg. Ook Frankrijk, Zwitserland heeft nog een ander probleem: zij hebben een soort verkeerde militaire training. In Noorwegen pleegt men zelfmoord, Zweden concureert hierin met hen, Spanje, de Spanjaarden zijn een tijd zeer agressief geweest: zij zijn naar Chili en Argentinië geweest en nu worden ze verondersteld een ontwikkelingsland te zijn. Het is een arm land. En Portugal?
 
-De Portugezen zijn tot in Indië gegaan, ze hebben ons gedurende verschillende jaren gedomineerd.
+De Portugezen zijn tot in Indië gegaan, ze hebben ons gedurende verschillende jaren gedomineerd.
 
-De Engelsen hebben gedurende 300 jaar Indië gedomineerd, en nu kunnen ze met moeite een glas vasthouden zonder te beven.
+De Engelsen hebben gedurende 300 jaar Indië gedomineerd, en nu kunnen ze met moeite een glas vasthouden zonder te beven.
 
 Hoe zullen ze de kroon van hun rijk op het hoofd houden? Ze hebben overal stakingen. Dit alles om te drinken... waarom willen ze meer geld?
 
@@ -101,7 +101,7 @@ De mensen hebben geen zelfvertrouwen meer. Ze hebben alleen nog ego. Maar het ze
 
 En nu: HOE TE BEMINNEN ?
 
-Onze ideeën komen vanuit ons ego. Liefde is dat uw echtgenoot, geliefde of uw vriend u bloemen brengt, en de vrouw moet glimlachen. Of ze zin heeft om te glimlachten of niet, zij moet glimlachen. En al deze ideeën over liefde zijn romantisme... Trouwens, men "valt" in liefde,(fall in love) men moet "vallen"... Men verheft zich niet in liefde, men "valt". Veel Sahaja Yogis hebben me gezegd: "Moeder, wij zijn nog niet in liefde gevallen".
+Onze ideeën komen vanuit ons ego. Liefde is dat uw echtgenoot, geliefde of uw vriend u bloemen brengt, en de vrouw moet glimlachen. Of ze zin heeft om te glimlachten of niet, zij moet glimlachen. En al deze ideeën over liefde zijn romantisme... Trouwens, men "valt" in liefde,(fall in love) men moet "vallen"... Men verheft zich niet in liefde, men "valt". Veel Sahaja Yogis hebben me gezegd: "Moeder, wij zijn nog niet in liefde gevallen".
 
 Het lijkt wel iets heel dramatisch alsof iets neervalt opdat gij in verliefdheid zou vallen. Ze hebben drie jaar nodig om in liefde te vallen en twee dagen om te scheiden. Liefde beschrijven op de manier waarop de mensen het verstaan is onmogelijk.
 
@@ -121,7 +121,7 @@ En vervolgens doe jij hetzelfde in de andere richting en je gaat naar hem.
 
 Hij meet de hoek van uw hoofd, hij raakt met de top van zijn lippen je voorhoofd, en daarna versteent hij als een sfinx. Dit is niet de de liefde...
 
-Het is een staat van het mentale zijn (mind) die men moet bereiken, waarbij men niet oordeelt, men beoordeelt niemand. Men weet dat er een tekort is, maar men omhult het in zijn liefde. Men maakt er een parel van, zoals de zon die schijnt, zij schijnt overal, maakt geen onderscheid, zij bekijkt niet de gebreken, zij telt niet de blaadjes, zij geeft, zij geeft en zij geeft. Het is daarom dat men tot die toestand moet komen waarbij men niets anders doet dan geven, zonder "mij, mijn, van de ander..." in acht te nemen, zonder materiële en andere grove en zotte beschouwingen.
+Het is een staat van het mentale zijn (mind) die men moet bereiken, waarbij men niet oordeelt, men beoordeelt niemand. Men weet dat er een tekort is, maar men omhult het in zijn liefde. Men maakt er een parel van, zoals de zon die schijnt, zij schijnt overal, maakt geen onderscheid, zij bekijkt niet de gebreken, zij telt niet de blaadjes, zij geeft, zij geeft en zij geeft. Het is daarom dat men tot die toestand moet komen waarbij men niets anders doet dan geven, zonder "mij, mijn, van de ander..." in acht te nemen, zonder materiële en andere grove en zotte beschouwingen.
 
 Laat uw hart smelten, laat de liefde vloeien. En jij bent het die er vreugde aan beleeft, niet andere personen! Jij zal er plezier aan beleven!
 

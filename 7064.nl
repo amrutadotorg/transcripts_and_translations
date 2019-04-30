@@ -3,7 +3,7 @@ Devi Puja - De essentie van het zelfrespect - Istambul, Turkije - 27/05/89
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
-Ik heb er lang naar verlangd om naar Turkije of Tunesië te gaan, waar we een toegang zouden kunnen vinden tot de islamitische wereld. Omdat hen beloofd werd dat zij weer zullen geboren worden en die wedergeboorte moet plaatsvinden.
+Ik heb er lang naar verlangd om naar Turkije of Tunesië te gaan, waar we een toegang zouden kunnen vinden tot de islamitische wereld. Omdat hen beloofd werd dat zij weer zullen geboren worden en die wedergeboorte moet plaatsvinden.
 
 Daarom moet Ik ernaar toe gaan en hen hun wedergeboorte geven, zoals hen beloofd werd door Mohammed. Dat is Mijn plicht. Niet alleen Mijn plicht, maar Ik ben ertoe gebonden. Ik moet hen vertellen over hun wedergeboorte en hen redden. Zij verdienen het, zonder twijfel.
 
@@ -51,7 +51,7 @@ Maar sommige mensen hebben een andere stijl: deze van het meevoelen. Meevoelen b
 
 Ik vertel die persoon om aan zichzelf te werken. Als je iemand probeert te helpen, zal je eigen negativiteit toenemen. Je zult van kwaad tot erger worden. Al je sympathie zal uitgaan voor iemand die niet zuiver is..
 
-Je kan zo iemand vertellen hoe het op te lossen, uit te werken en hem zeggen: "Maar ik heb er niets mee te maken". Ofwel kan je die persoon naar iemand sturen die egoïstisch is zodat ze het kunnen delen.
+Je kan zo iemand vertellen hoe het op te lossen, uit te werken en hem zeggen: "Maar ik heb er niets mee te maken". Ofwel kan je die persoon naar iemand sturen die egoïstisch is zodat ze het kunnen delen.
 
 Het zal aanvullend werken tussen die twee. En Mij enkele zorgen besparen.
 
@@ -69,13 +69,13 @@ Alleen mediteren met je hart. Zodoende kunnen we uit deze lezing leren dat je ee
 
 Als je hart opent, vergeef je ten eerste jezelf, en je vergeeft anderen.
 
-En je bekommert je niet over je beschadigde chakra's of over anderen, alsof je bezorgd bent om één individu, maar je bekijkt het geheel als het totaal. En dan begin je te praten over Sahaja Yoga. Hoe verspreidt Sahaja Yoga zich? Hoeveel mensen zijn aan zelfrealisatie toe? Hoeveel verantwoordelijkheid heb ik gedragen? Iets gedaan hebben betekent niet je ego opsterken, maar het betekent wat moet ik doen? Welk werk kan ik verrichten? Welke fouten hebben Sahaja Yogi's begaan zodat iets mislukte! Hoe is de situatie? Hoe kan ik helpen?
+En je bekommert je niet over je beschadigde chakra's of over anderen, alsof je bezorgd bent om één individu, maar je bekijkt het geheel als het totaal. En dan begin je te praten over Sahaja Yoga. Hoe verspreidt Sahaja Yoga zich? Hoeveel mensen zijn aan zelfrealisatie toe? Hoeveel verantwoordelijkheid heb ik gedragen? Iets gedaan hebben betekent niet je ego opsterken, maar het betekent wat moet ik doen? Welk werk kan ik verrichten? Welke fouten hebben Sahaja Yogi's begaan zodat iets mislukte! Hoe is de situatie? Hoe kan ik helpen?
 
-Net alsof je licht wordt en je licht wilt geven. Wat is er aan de hand met de lamp die geen licht geeft? Denk niet aan jezelf, maar denk als "één lichaam"!
+Net alsof je licht wordt en je licht wilt geven. Wat is er aan de hand met de lamp die geen licht geeft? Denk niet aan jezelf, maar denk als "één lichaam"!
 
 Je moet eerst je hart openen. Zodra je hart opent, zul je jezelf groter maken!
 
-Je zal groeien! Hiervoor moet je jezelf niet vervloeken! Maar als je je hart opent…,kijk naar de oceaan, die alle kusten aanraakt, maar altijd in zichzelf blijft, binnen de eigen maryada's. Als je zou proberen om de oceaan langs een kant in te drukken, dan zou je dat aan de andere kant zien. We kunnen het niet indrukken. Zij heeft haar hoogte en haar beperkingen. Ze blijft binnen haar grenzen. Mensen met een open hart zijn net als de zee, raken elke kust aan, maar blijven binnen zichzelf, binnen hun eigen maryada's.
+Je zal groeien! Hiervoor moet je jezelf niet vervloeken! Maar als je je hart opent...,kijk naar de oceaan, die alle kusten aanraakt, maar altijd in zichzelf blijft, binnen de eigen maryada's. Als je zou proberen om de oceaan langs een kant in te drukken, dan zou je dat aan de andere kant zien. We kunnen het niet indrukken. Zij heeft haar hoogte en haar beperkingen. Ze blijft binnen haar grenzen. Mensen met een open hart zijn net als de zee, raken elke kust aan, maar blijven binnen zichzelf, binnen hun eigen maryada's.
 
 Zodoende, als het op de expansie aankomt, is het zo dat het op zo'n manier gebeurt, dat je je niet begeeft op individuele hoeken en individuele plaatsen. Je blijft op jezelf en raakt iedereen aan.
 
@@ -91,7 +91,7 @@ Dit is een zeer goede manier om Sahaja Yoga te benaderen.
 
 Voor jezelf en voor anderen. Als je wil, zal Ik het zo zeggen, eerder verlegen, maar als jullie Mij in jullie hart plaatsen, moet jullie hart groter worden wegens mijn omvang. Het moet groeien! Het is de beste en eenvoudigste manier. Jullie zijn zo'n gelukkige Sahaja Yogi's dat Ik bij jullie ben! Jullie hoeven niets te doen. Plaats Mij in jullie hart! Punt! Jullie zullen in orde zijn!
 
-Niet:  "Ik hou van U, Moeder" is de kern, maar "Ik plaats U in mijn hart"!
+Niet:  "Ik hou van U, Moeder" is de kern, maar "Ik plaats U in mijn hart"!
 
 Denk nooit: Moeder houdt van mij, omdat ik voor Haar mag koken, omdat ik Haar sari mag strijken. Op die manier wordt het onmiddellijk ego! Ik zeg het u, Ik wist het niet, maar het gebeurt. Direct wordt het ego. Maar als je zegt: "Hoeveel hou ik van Moeder!
 
@@ -105,7 +105,7 @@ De mensen zullen zien dat je dat licht hebt.
 
 Nu zijn jullie overtuigd van Mij. Jullie hebben de foto's gezien, de tekens en de reacties. Alles hebben jullie gezien. Nu kunnen jullie zo'n Persoon liefhebben. Het is zo'n grote ontwikkeling: "Vooreerst dat we Moeder kunnen liefhebben". Wanneer je denkt dat Ik nog niet goedendag tegen je heb gezegd, of -wanneer Ik je niet zou aankijken. Maar Ik ben het niet, jij bent het. In elk geval, hou Ik van de ganse wereld. Zonder twijfel! Ik hou van niemand meer of minder. Maar in hoeverre je me meer nabij komt, hangt helemaal van jezelf af! Omdat Ik een vast gegeven ben. In hoeverre je Me dichter nadert, dat is de essentie! Ik ben een vast gegeven (fixed quantity) en soms zijn mensen verbaasd en vragen zich af waarom Moeder deze keer niet lief was tegen ons. Feitelijk blijf Ik altijd waar Ik ben, maar jullie verwijderen je (van Mij).
 
-Allerhande meningen komen op. Zelfs wanneer jullie overtuigd zijn dat Ik de Adi Shakti ben en ook al zijn er zovele overtuigende feiten zoals foto's, gebeurtenissen, mirakels, enz... Toch blijven jullie wegdrijven, wegdrijven op die ideeën. Zoals "Oh, kijk hier! Dit is Moeders foto, dit is gebeurd" en toch drijf je weg.
+Allerhande meningen komen op. Zelfs wanneer jullie overtuigd zijn dat Ik de Adi Shakti ben en ook al zijn er zovele overtuigende feiten zoals foto's, gebeurtenissen, mirakels, enz... Toch blijven jullie wegdrijven, wegdrijven op die ideeën. Zoals "Oh, kijk hier! Dit is Moeders foto, dit is gebeurd" en toch drijf je weg.
 
 Als je echt heel diep wil gaan, dan moet je je hart voelen. Daar zal je het mirakel vinden. Al die wereldse mirakels zijn er om je naar binnenin te duwen. En daar zal je groeien. Groeien op een betere manier. Dit is het enige wat we moeten onderzoeken en ontdekken. Dit zal werkelijk de nieuwe Sahaja Yogi's helpen. Als ze zullen zien hoe je van Moeder houdt.
 
@@ -123,7 +123,7 @@ Zij weten het, op dezelfde manier, als jullie het kunnen integreren, dan krijg j
 
 De essentie van alles is dat we bij het principe van alles stilstaan, de Tattwa. De essentie van alles. Bijvoorbeeld als iets je blokkeert. Wat is de essentie ervan? Je moet proberen tot de kern te komen en de rest opzij te zetten. Zodoende is de essentie van zelfrespect, het feit dat ik een Sahaja Yogi ben. Omdat ik zelfrealisatie heb gekregen en omdat ik van mijn Moeder hou!
 
-Als je kunt doordringen tot de essentie van bloemen, waarom zijn er zovele variëteiten? De verscheidenheid aan bloemen lijkt Mij zo enorm! Waarom? Omdat de essentie van schoonheid, de esthetica van schoonheid de verscheidenheid is. Elk blad! Als je elk blad zou bekijken, dan kan het niet vergeleken worden met gelijk welk op de ganse wereld. Het identieke kan je nooit vinden!
+Als je kunt doordringen tot de essentie van bloemen, waarom zijn er zovele variëteiten? De verscheidenheid aan bloemen lijkt Mij zo enorm! Waarom? Omdat de essentie van schoonheid, de esthetica van schoonheid de verscheidenheid is. Elk blad! Als je elk blad zou bekijken, dan kan het niet vergeleken worden met gelijk welk op de ganse wereld. Het identieke kan je nooit vinden!
 
 De essentie van esthetica is verscheidenheid! Zodoende moeten we onder ons Sahaja Yogi's hebben van verschillende oorsprong, van verschillende humor. We kunnen niet allen gelijk zijn. Maar in essentie moet iedereen Moeder liefhebben!
 

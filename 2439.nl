@@ -3,7 +3,7 @@ Guru Puja - Jij moet het voorbeeld zijn - Leysin, Zwitserland - 14/07/1984
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
-Ik buig voor alle Sahaja Yogi's in de wereld. Het is zeer hartverwarmend zovelen van jullie hier samen te zien om de Guru puja te houden. Je Guru in persoon te aanbidden wordt aanzien als de grootste zegening. Maar wat Mij betreft, is het een heel andere combinatie, omdat Ik én jullie Moeder én jullie Guru ben. Dus kunnen jullie begrijpen hoe Shri Ganesha zijn Moeder aanbad. Jullie zijn allen geschapen naar de beeltenis van Shri Ganesha, die zijn Moeder aanbad en aldus de Adi Guru werd, de eerste Guru.
+Ik buig voor alle Sahaja Yogi's in de wereld. Het is zeer hartverwarmend zovelen van jullie hier samen te zien om de Guru puja te houden. Je Guru in persoon te aanbidden wordt aanzien als de grootste zegening. Maar wat Mij betreft, is het een heel andere combinatie, omdat Ik én jullie Moeder én jullie Guru ben. Dus kunnen jullie begrijpen hoe Shri Ganesha zijn Moeder aanbad. Jullie zijn allen geschapen naar de beeltenis van Shri Ganesha, die zijn Moeder aanbad en aldus de Adi Guru werd, de eerste Guru.
 
 Hij is de oorspronkelijke essentie (eerste = oudste, wezenlijke) van het meesterschap. Alleen de moeder kan van het kind een meester maken. En enkel het moederschap in iedere guru, of het nu een man of een vrouw is, kan van de discipel een guru maken. Jullie moeten dus eerst profeten worden en dat moederschap in jezelf ontwikkelen; dan kun je ook van anderen profeten maken.
 
@@ -27,7 +27,7 @@ Dus op dit punt moeten jullie een negatie van inspanningen betrachten. Alle insp
 
 Dus hoe maak je je ogen onschuldig? In Sahaja Yoga hebben we een methode waardoor we onze ogen trachten te onttrekken aan de inspanning die hen overspelig maakt. Zo bijvoorbeeld proberen we onze aandacht, onze ogen te vestigen op Moeder Aarde, op het gras, op de bomen. Dus deze mensen die er slechts onlangs bijgekomen zijn, moeten ook begrijpen dat zij er allerlei inspanningen moeten doen, om de inspanningen te stoppen. Bijvoorbeeld, sommigen mensen zijn een erg comfortabel leven gewoon. Zij kunnen over allerlei soorten verzakingen praten, maar als het op komfort aankomt willen ze komfort hebben. Zulke mensen moeten trachten van deze gewoonten van komfort af te geraken. Slaap op de grond! Slaap op Moeder Aarde!
 
-De aandacht van sommige mensen gaat voortdurend deze kant op, dan die kant op, ze kan niet op één punt blijven. Dus vestig je aandacht!
+De aandacht van sommige mensen gaat voortdurend deze kant op, dan die kant op, ze kan niet op één punt blijven. Dus vestig je aandacht!
 
 Dus geleidelijk aan zul je zien dat je jezelf disciplineert.
 
@@ -41,7 +41,7 @@ Dus de eerste inspanning moet gedaan worden om jezelf te beschermen tegen gedach
 
 Maar soms moet je voorzichtig zijn, moet je onderscheid kunnen maken. En de beste manier om veilig te zijn in je onderscheidingsvermogen is in het centrum te blijven.
 
-Ga nooit naar enig extreem van iets! Bijvoorbeeld, sommige mensen zijn dol op muziek, dus gaan ze de hele tijd achter muziek aan. Sommige mensen zijn dol op poëzie dan gaan ze achter de gedichten aan.
+Ga nooit naar enig extreem van iets! Bijvoorbeeld, sommige mensen zijn dol op muziek, dus gaan ze de hele tijd achter muziek aan. Sommige mensen zijn dol op poëzie dan gaan ze achter de gedichten aan.
 
 Er is niets verkeerd met deze dingen, maar wat je ook bereikt in al deze dingen, het moet teruggebracht worden naar het collectieve en iedereen moet ervan genieten en jij zou ook moeten genieten van wat anderen gevonden hebben. Bijvoorbeeld iemand is een erg geleerd man en een erg droge persoon, hij moet een inspanning doen om zichzelf lief te maken. Dus tracht je extreme kanten te neutraliseren door in het centrum te komen. En de beste manier is door te zeggen "Ik hou van alles". De manier waarop je me behandelt, in die toestand ben ik gelukkig. En om jezelf voor te stellen "Ik ben de vrede". Suggereer! Gebruik de kracht van het voorstellingsvermogen.
 
@@ -53,7 +53,7 @@ En je weet wat er verkeerd is met je. Want wat heeft het voor zin te weten wat e
 
 Maar ook hierin heeft het menselijk brein een uitweg gevonden. Wanneer ze zichzelf willen bekritiseren, vinden ze een zak, de linker Vishuddhi genoemd en vestigen zich daar. Hoe listiger je bent, hoe intelligenter je bent, des te slechter is de linker Vishuddhi.
 
-Dan zet je daar alles neer, alle soorten vuiligheid om te stagneren, en erg tevreden met jezelf te zijn. Het is zoals met iedere slechte huisvrouw. Ze neemt al het vuil in het huis en stapelt het op in een kamer en sluit deze af, en denkt dat ze erg efficiënt is geweest. Je moet het onder ogen zien, je moet het corrigeren en er erover waken.
+Dan zet je daar alles neer, alle soorten vuiligheid om te stagneren, en erg tevreden met jezelf te zijn. Het is zoals met iedere slechte huisvrouw. Ze neemt al het vuil in het huis en stapelt het op in een kamer en sluit deze af, en denkt dat ze erg efficiënt is geweest. Je moet het onder ogen zien, je moet het corrigeren en er erover waken.
 
 En zo is het dat je sterk wordt. Want als jouw machine uitgeschakeld is, wat heeft het dan voor zin iemand anders machine te verbeteren? En als jouw machine uitgeschakeld is, doe je het op slot, berg je het op en zegt, nu is het in orde. Of je beschuldigt iemand omwille van dit of omwille van dat, iets anders dan jezelf.
 
@@ -65,7 +65,7 @@ Dat is niet de houding van een Guru. Wat een Guru doet, is zichzelf en anderen z
 
 Je kan hen niet-spirituele Guru's noemen. Ook zij, wanneer ze een mondaine levenswijze willen volgen, niet iets buitengewoons, dan verliezen hun volgelingen het vertrouwen in hen. Zelfs politieke leiders. Bijvoorbeeld een politiek leider is losbandig, hij heeft zwakheden, dan hebben de mensen die hem trachten te volgen geen respect.
 
-Dus ook zij moeten een persoonlijk karakter, een persoonlijk waardesysteem hebben. Dus wat dan met de spirituele Guru's? Zij moeten uitmuntende mensen zijn. Er zouden geen twee verschillende manieren van leven mogen zijn, één naar buiten toe, één naar binnen toe. Als de buitenzijde en binnenzijde één worden, dan gebeurt het moeiteloos. En dat is wat men moet zijn, de binnenzijde en de buitenzijde, men moet het uitwerken vanuit de binnenzijde.
+Dus ook zij moeten een persoonlijk karakter, een persoonlijk waardesysteem hebben. Dus wat dan met de spirituele Guru's? Zij moeten uitmuntende mensen zijn. Er zouden geen twee verschillende manieren van leven mogen zijn, één naar buiten toe, één naar binnen toe. Als de buitenzijde en binnenzijde één worden, dan gebeurt het moeiteloos. En dat is wat men moet zijn, de binnenzijde en de buitenzijde, men moet het uitwerken vanuit de binnenzijde.
 
 Daarvoor kun je de buitenkant niet naar binnen brengen, maar de binnenkant moet naar buiten komen. Dus dit is het begin van Antar Yoga, de innerlijke Yoga.
 
@@ -79,13 +79,13 @@ En ze houden ervan dat vergif naar buiten te brengen. Soms komt het er uit als s
 
 Deze vuile taal is erg geraffineerd. Zoals mensen die geen bad nemen, kunnen door wat kunstmatige zaken een geurtje verkrijgen. Van binnen moet het schoon zijn. En dat is waarom eerst inspanningen moeten geleverd worden om goede gedachten te hebben.
 
-Let op je verstand. Hoe denkt het over anderen? Ik zou zeggen, racisme is één van de ziekten van dezelfde soort. Ik heb mensen ontmoet die erg hoog geplaatst waren, fijnzinnig geraffineerd, onberispelijke kleding droegen, maar als het een persoon uit een ontwikkelingsland betrof, of van een andere huidskleur, maakten ze er een aanmerking op.
+Let op je verstand. Hoe denkt het over anderen? Ik zou zeggen, racisme is één van de ziekten van dezelfde soort. Ik heb mensen ontmoet die erg hoog geplaatst waren, fijnzinnig geraffineerd, onberispelijke kleding droegen, maar als het een persoon uit een ontwikkelingsland betrof, of van een andere huidskleur, maakten ze er een aanmerking op.
 
 Zelfs als zij Sahaja Yogi's zijn, Ik heb dat gezien. Ik zeg dit voor de Sahaja Yogi's en niet voor anderen. Zodat plotseling die dode stof, hetgeen wij dood noemen, levend wordt.
 
 Dus het verstand is vuil, vol van lust, hebzucht, woede en jaloezie. Dat is waarom we erg, erg voorzichtig moeten zijn. Van deze mensen die geraffineerd geworden zijn, zijn hun zwakheden ook geraffineerd geworden. En dat is waarom jaloersheid een veel voorkomende ziekte is. Een tijdje terug vroeg Ik iemand "Waarom is de vader kwaad op de zoon en op zijn eigen broer"? Het antwoord was, omdat de broer zorgt voor de zoon in Londen. Normaal zou iedere persoon dankbaar zijn dat er iemand is die voor zijn zoon zorgt gedurende zijn afwezigheid.
 
-Maar die kerel is jaloers vanwege zijn bezitsdrang. En bezitsdrang komt voort uit onzekerheid. En onzekerheid komt in ons omdat we anderen onzeker maken. Er zijn veel oorzaken van onzekerheid, maar één ervan is dat we lelijk zijn en dat we die lelijkheid in anderen zien. Dit innerlijke vuil moet er met meer moeite uit gehaald worden dat het uiterlijke vuil. Dat innerlijke vuil kun je gadeslaan in jezelf en zien.
+Maar die kerel is jaloers vanwege zijn bezitsdrang. En bezitsdrang komt voort uit onzekerheid. En onzekerheid komt in ons omdat we anderen onzeker maken. Er zijn veel oorzaken van onzekerheid, maar één ervan is dat we lelijk zijn en dat we die lelijkheid in anderen zien. Dit innerlijke vuil moet er met meer moeite uit gehaald worden dat het uiterlijke vuil. Dat innerlijke vuil kun je gadeslaan in jezelf en zien.
 
 Sommige mensen proberen anderen te domineren, hen dingen te zeggen gewoon uit bazigheid. Let nu op, eerst en vooral: ben je bazig genoeg geweest voor jezelf? Ben je voldoende meester over jezelf? Ben je je eigen meester, of schiet je daarin tekort? Zij die geen meester zijn over zichzelf willen meester zijn. Maar hij die meester is over zichzelf, wil geen meester over iemand anders zijn, hij wordt de meester.
 
@@ -95,7 +95,7 @@ Misschien dat zo'n persoon er erg bescheiden, simpel, onschuldig uitziend is, ma
 
 Als we zo iemand hebben, probeer dan te volgen.
 
-Dus op de derde plaats moet de inspanning gedaan worden om jouw Guru te volgen, welke een Sat Guru is. Die guru wordt een toonbeeld dat jij moet volgen. Ook hierin kunnen Sahaja Yogi's zeer oppervlakkig zijn. Eén van de Sahaja Yogi's droeg gewoonlijk zijn sjaal op een bepaalde manier. Dus stuurde Ik enkele andere Sahaja Yogi's daarheen, zodat hij ze kan trachten te helpen, hij kan hun Guru zijn.
+Dus op de derde plaats moet de inspanning gedaan worden om jouw Guru te volgen, welke een Sat Guru is. Die guru wordt een toonbeeld dat jij moet volgen. Ook hierin kunnen Sahaja Yogi's zeer oppervlakkig zijn. Eén van de Sahaja Yogi's droeg gewoonlijk zijn sjaal op een bepaalde manier. Dus stuurde Ik enkele andere Sahaja Yogi's daarheen, zodat hij ze kan trachten te helpen, hij kan hun Guru zijn.
 
 Allen begonnen ze hun sjaals op dezelfde manier te dragen. Niet het uiterlijk vertoon, maar het innerlijke moeten jullie volgen. Dus als jullie een Guru worden, "wordt" dan de Guru, je wordt het. Het is zo'n korte methode, gewoon te worden. Nu als je jezelf bekijkt, moet je weten dat er nog enkele stappen genomen moeten worden voor je het wordt.
 
@@ -115,13 +115,13 @@ Dus Brahmadeva wordt het symbool van de Guru en zoals jullie weten is Shri Ganes
 
 Dus vandaag heb Ik getracht jullie de verschillende stadia van gurupada uit te leggen, het stadium van guru. En men zou moeten begrijpen dat wat we vandaag ook zijn, we uitermate gezegend zijn en geluk hebben. Dat in deze korte tijd, jullie begonnen van een beestje (insect) in de modder en dat jullie de lotussen geworden zijn.
 
-De lotus zal veel insecten aantrekken, madhukar, door haar honing, nectar en zal hen omvormen tot lotussen. Wanneer ze de nectar krijgen, worden zijzelf de lotussen. De hele vuile, vieze vijver is bedekt met lotusbloemen en één lotus, welke de Guru is, groeit hoger en deze wordt aan de Godin gegeven welke erop vertoeft.
+De lotus zal veel insecten aantrekken, madhukar, door haar honing, nectar en zal hen omvormen tot lotussen. Wanneer ze de nectar krijgen, worden zijzelf de lotussen. De hele vuile, vieze vijver is bedekt met lotusbloemen en één lotus, welke de Guru is, groeit hoger en deze wordt aan de Godin gegeven welke erop vertoeft.
 
-Zij verblijft in het hart op het platvorm, een prachtig platvorm dat deze lotus gecreëerd heeft. Maar om a Haar in je hart te dragen, moet je een hart hebben. Er zijn zovele eigenschappen van een Guru, waarover Ik jullie verteld heb. Al de beste eigenschappen, de twaalf eigenschappen van alle tekens, zouden volledig in een Guru moeten tot uiting komen. En de bezitter van deze eigenschappen is Shri Shiva.
+Zij verblijft in het hart op het platvorm, een prachtig platvorm dat deze lotus gecreëerd heeft. Maar om a Haar in je hart te dragen, moet je een hart hebben. Er zijn zovele eigenschappen van een Guru, waarover Ik jullie verteld heb. Al de beste eigenschappen, de twaalf eigenschappen van alle tekens, zouden volledig in een Guru moeten tot uiting komen. En de bezitter van deze eigenschappen is Shri Shiva.
 
 Dat is hoe het wezenlijke van Shiva, vanuit Brahma, Vishnu, Mahesha, de Mahesha's eigenschappen doorheen jullie moeten uitstralen. De Vishnu eigenschap van Dharma. Allereerst moeten jullie een inspanning doen om dharmisch te leven, om evenwichtig te zijn.
 
-Dan gaan jullie vooruit. Dan worden jullie één met de Virata.
+Dan gaan jullie vooruit. Dan worden jullie één met de Virata.
 
 En dan kunnen jullie het Dharma doorgeven aan anderen. Dus moet je weten dat dit stap voor stap ook met jou gebeurt, zodat je geen hypocriet werd. Maar je wordt echt. En de werkelijkheid toont zich door zijn eigen "zijn". Dat is hoe je wordt. Begrijp de werkelijkheid binnenin jezelf, zie het onder ogen, los het op.
 

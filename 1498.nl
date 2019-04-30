@@ -1,15 +1,15 @@
-Adi Shakti Puja, Het werk van de Adi Shakti - Cabella Ligure (Italië), 3 Juni 2001
+Adi Shakti Puja, Het werk van de Adi Shakti - Cabella Ligure (Italië), 3 Juni 2001
 
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Vandaag vereren we Adi Shakti. Ik denk dat het de meest belangrijke puja is, omdat het de kracht van de Adi Shakti is die je je zelfrealisatie gegeven heeft, de waarheid en de kracht van mededogen en liefde.
 
-Dat is de kracht die zich van Sadashiva heeft afgescheiden en die vrouwelijke kracht zelf verlangde om dit volledige universum te creëren.
+Dat is de kracht die zich van Sadashiva heeft afgescheiden en die vrouwelijke kracht zelf verlangde om dit volledige universum te creëren.
 
 Universum na universum. Zij schept en ze heeft lief. En met Haar liefde volbracht Zij deze grootse creatie en ook de creatie van deze wereld.
 
-Dit is een speciaal uitgekozen planeet, die mooi geplaatst werd tussen de zon en de maan om, uiteindelijk, de menselijke wezens te creëren.
+Dit is een speciaal uitgekozen planeet, die mooi geplaatst werd tussen de zon en de maan om, uiteindelijk, de menselijke wezens te creëren.
 
 Dit is Haar grote werk, gedaan met zo’n grote liefde en genegenheid en met die grote hoop dat Haar kinderen de waarheid zullen kennen en de ultieme kennis over henzelf en alle andere zaken.
 
@@ -25,21 +25,20 @@ Alleen de dieren, omdat ze niet rechtop staan is het in orde, zijn zich daar nie
 
 Alleen met deze zelfkennis wordt je krachtig. De werkelijke kracht is die van liefde en mededogen.
 
-Vandaag zie je dat de hele wereld aan het vechten is tegelijkertijd proberen ze mensen te beschermen tegen oorlogen door grote, enorme toestellen te creëren. De hele wereld schijnt in een waanzinnige wedloop verwikkelt te zijn om elkaar te doden, te vernietigen, in competities en ambities die leiden tot nog grotere oorlogen. Ze vechten voor een stuk land, zo onwetend zijn ze. Kan je zelfs maar een miniem stukje land meenemen wanneer je sterft?
+Vandaag zie je dat de hele wereld aan het vechten is tegelijkertijd proberen ze mensen te beschermen tegen oorlogen door grote, enorme toestellen te creëren. De hele wereld schijnt in een waanzinnige wedloop verwikkelt te zijn om elkaar te doden, te vernietigen, in competities en ambities die leiden tot nog grotere oorlogen. Ze vechten voor een stuk land, zo onwetend zijn ze. Kan je zelfs maar een miniem stukje land meenemen wanneer je sterft?
 
-Wanneer je wordt geboren kom je met gesloten vuistjes. Wanneer je sterft vertrek je met open handen. Wat neem je met je mee? Je mag dan misschien niets meenemen, maar geniet je van hetgeen je denkt dat zo groots is om voor te vechten OK misschien doe je het niet om iets mee te nemen na de dood; maar geniet je dan van gelijk wat waar je voor vecht omdat je het zo belangrijk vindt? Waarom blijft het vechten duren tussen deze onzinnige mensen? Het is verrassend hoe mensen hun vrede opgeven, hun begrip opgeven wanneer het gaat om een stuk land. En het hele zaakje is de verkeerde richting uitgegaan en stevent af op complete vernietiging.
+Wanneer je wordt geboren kom je met gesloten vuistjes. Wanneer je sterft vertrek je met open handen. Wat neem je met je mee? Je mag dan misschien niets meenemen, maar geniet je van hetgeen je denkt dat zo groots is om voor te vechten OK misschien doe je het niet om iets mee te nemen na de dood; maar geniet je dan van gelijk wat waar je voor vecht omdat je het zo belangrijk vindt? Waarom blijft het vechten duren tussen deze onzinnige mensen? Het is verrassend hoe mensen hun vrede opgeven, hun begrip opgeven wanneer het gaat om een stuk land. En het hele zaakje is de verkeerde richting uitgegaan en stevent af op complete vernietiging.
 
-De reden die ervoor heeft gezorgd dat mensen zoveel lijden is hun onwetendheid, waardoor ze al die gewoonten hebben, al die verleidingen, al die identificaties, waarvoor we ons verkopen, en die ons allen zal ruïneren, ieder één voor één - ze moeten hun verstand beginnen gebruiken en hun zelfkennis ontwikkelen.
+De reden die ervoor heeft gezorgd dat mensen zoveel lijden is hun onwetendheid, waardoor ze al die gewoonten hebben, al die verleidingen, al die identificaties, waarvoor we ons verkopen, en die ons allen zal ruïneren, ieder één voor één - ze moeten hun verstand beginnen gebruiken en hun zelfkennis ontwikkelen.
 
-Zelfkennis is de sleutel die een redder aan de mensen geeft. We hebben zoveel heiligen gehad. We hebben zoveel Sufis gehad. We hadden mensen van Tao. We hadden mensen van Zen. Allerlei gerealiseerde zielen kwamen op aarde. Ze leden allemaal. Ze werden gefolterd. Niemand verstond hen. Maar nu is voor jullie de tijd gekomen om de waarheid te kennen, maar waarheid die niet droog is, waarheid die mededogend is, waarheid die voor iedereen geldt, dat het complete uitzicht geeft op ons bestaan. Waarom zijn we hier op deze aarde? Wat is ons doel? Wat moeten we doen? Adi Shakti's krachten zijn dusdanig, van liefde en mededogen, dat je eerst jezelf gaat begrijpen.
+Zelfkennis is de sleutel die een redder aan de mensen geeft. We hebben zoveel heiligen gehad. We hebben zoveel Sufis gehad. We hadden mensen van Tao. We hadden mensen van Zen. Allerlei gerealiseerde zielen kwamen op aarde. Ze leden allemaal. Ze werden gefolterd. Niemand verstond hen. Maar nu is voor jullie de tijd gekomen om de waarheid te kennen, maar waarheid die niet droog is, waarheid die mededogend is, waarheid die voor iedereen geldt, dat het complete uitzicht geeft op ons bestaan. Waarom zijn we hier op deze aarde? Wat is ons doel? Wat moeten we doen? Adi Shakti's krachten zijn dusdanig, van liefde en mededogen, dat je eerst jezelf gaat begrijpen.
 
-Liefde, voor jullie, is heel, heel beperkt. Er is geen bewustzijn van je eigen wezen. Beeld je eens in wat een grote opdracht het is voor jullie, om je in de eerste plaats serieus bewust te worden van je zelf.
+Liefde, voor jullie, is heel, heel beperkt. Er is geen bewustzijn van je eigen wezen. Beeld je eens in wat een grote opdracht het is voor jullie, om je in de eerste plaats serieus bewust te worden van je zelf.
 
-Dat is buitengewoon belangrijk. Eerst moet je bewust zijn van je zelf. En nu hebben jullie het licht van je spirit. In het licht van die spirit, kan je zien wat je bent en hoe ver je gaat, hoe je verkeerde dingen doet, hoe je jezelf schade toebrengt en hoe je bij machte bent om het te genezen, hoe je kan verbeteren en hoe je tot bezinning kan komen. Dit zijn de meest belangrijke tijden. Jullie krijgen deze tijden nooit weer. Nooit in het verleden waren ze er en nooit in de toekomst kome ze weer. 
+Dat is buitengewoon belangrijk. Eerst moet je bewust zijn van je zelf. En nu hebben jullie het licht van je spirit. In het licht van die spirit, kan je zien wat je bent en hoe ver je gaat, hoe je verkeerde dingen doet, hoe je jezelf schade toebrengt en hoe je bij machte bent om het te genezen, hoe je kan verbeteren en hoe je tot bezinning kan komen. Dit zijn de meest belangrijke tijden. Jullie krijgen deze tijden nooit weer. Nooit in het verleden waren ze er en nooit in de toekomst kome ze weer. 
+ Dit is de tijd die jullie hebben, niet enkel het bewustzijn, niet enkel de zelfkennis, maar jullie weten hoe het te doen. Anderzijds, voor de heiligen, voor deze mensen, mensen van Zen en Tao, deze hebben enkel omschreven wat een persoon met zelfkennis is, hoe hij zich gedraagt, de stijl die hij heeft, in wat hij zo verschilt van anderen. Maar geen van hen heeft gezegd hoe je dit kan worden. Niemand was in staat dat te zeggen. Niemand was evenmin in staat dat te doen, want de meesten van hen wisten wellicht niet van kundalini, en zij die het wel wisten konden er wellicht niet over spreken met de mensen.
 
- Dit is de tijd die jullie hebben, niet enkel het bewustzijn, niet enkel de zelfkennis, maar jullie weten hoe het te doen. Anderzijds, voor de heiligen, voor deze mensen, mensen van Zen en Tao, deze hebben enkel omschreven wat een persoon met zelfkennis is, hoe hij zich gedraagt, de stijl die hij heeft, in wat hij zo verschilt van anderen. Maar geen van hen heeft gezegd hoe je dit kan worden. Niemand was in staat dat te zeggen. Niemand was evenmin in staat dat te doen, want de meesten van hen wisten wellicht niet van kundalini, en zij die het wel wisten konden er wellicht niet over spreken met de mensen.
-
-Zodus is het grootste werk van de Adi Shakti de kundalini in jullie heiligbeen te plaatsen. Deze kundalini is niet de Adi Shakti. De Adi Shakti is een veel voornamer iets, een veel groter iets, een veel wijdser iets, veel dieper, veel sterker, veel krachtiger. Kundalini is de weerspiegeling van de kracht van Adi Shakti, en wanneer ze stijgt weet je wat er met jou gebeurten hoe je je realisatie krijgt. Maar je moet erg goed uitkijken. Ben je werkelijk een mededogend persoon?
+Zodus is het grootste werk van de Adi Shakti de kundalini in jullie heiligbeen te plaatsen. Deze kundalini is niet de Adi Shakti. De Adi Shakti is een veel voornamer iets, een veel groter iets, een veel wijdser iets, veel dieper, veel sterker, veel krachtiger. Kundalini is de weerspiegeling van de kracht van Adi Shakti, en wanneer ze stijgt weet je wat er met jou gebeurten hoe je je realisatie krijgt. Maar je moet erg goed uitkijken. Ben je werkelijk een mededogend persoon?
 
 Zijn jullie werkelijk medevoelend ? Als jullie medevoelend zijn, zullen jullie eerst en vooral anderen willen helpen, zullen jullie anderen willen vooruithelpen. Je zal niet tevreden zijn met je eigen verwezenlijkingen en met je eigen zelfrealisatie.
 
@@ -51,7 +50,7 @@ Enkel je eigen persoonlijke inspanningen om anderen zelfrealisatie te geven en h
 
 Het is uitgesloten dat sommige Sahaja yogi’s hoger staan dan anderen. Jullie weten allemaal dat er met jullie iets heel speciaals gebeurd is. Zelfs door naar de Himalaya’s te trekken, door te vasten, door jarenlang God te loven, door alle mogelijke rituelen te volbrengen of boete te doen, had je je realisatie nooit kunnen bereiken. Dat is onmogelijk.
 
-Dat wist Ik. Daarom moet Ik zo hard werken en daarom word Ik met alle mogelijke problemen geconfronteerd, met zoveel tumult, met zoveel spanningen. Waarom ? Om jullie mogelijk te maken. Jullie zijn mijn handen. Jullie moeten nu aan het werk. Elke vinger moet aan het werk. Daarom zei Ik jullie dat niet enkel wijzélf [goede] Sahaja yogi’s moeten worden, maar het is bloesemtijd en we hebben vele Sahaja yogi’s nodig.
+Dat wist Ik. Daarom moet Ik zo hard werken en daarom word Ik met alle mogelijke problemen geconfronteerd, met zoveel tumult, met zoveel spanningen. Waarom ? Om jullie mogelijk te maken. Jullie zijn mijn handen. Jullie moeten nu aan het werk. Elke vinger moet aan het werk. Daarom zei Ik jullie dat niet enkel wijzélf [goede] Sahaja yogi’s moeten worden, maar het is bloesemtijd en we hebben vele Sahaja yogi’s nodig.
 
 Dit is het werk van de Adi Shakti. Probeer dit te begrijpen. Het is niet de opdracht van een of andere heilige, van een incarnatie, van een politicus of van een grote leider, maar van de Adi Shakti, [ dat werk] waarvan de resultaten zo zichtbaar aanwezig zijn in jullie.
 
@@ -69,4 +68,4 @@ Dat is het werk van Adi Shakti, niet het werk van enige heilige of incarnatie. Z
 
 Ik ben de hele tijd door moeilijke en gevaarlijke tijden gegaan, en ik heb me soms afgevraagd of Ik geen andere geboorte zou nemen, omdat alles zo moeilijk was voor Mij. Maar nu, voor jullie, is het zeer gemakkelijk. Zoals degene die de weg maakt moet zeer hard werken, maar degenen die nadien op deze weg lopen beseffen niet hoe gemakkelijk zij het hebben. En als ze het zich realiseren, zullen zij beseffen ‘Laat velen deze weg bewandelen, die is gemaakt met zulk geduld, begripsverogen en liefde’. Ik moet werkelijk zien dat jullie allen (Sahaja yogi’s) , jullie uiterste best doen om deze wereld te veranderen, hij moet veranderen. Het is zo dat deze mensheid moet gered worden door jullie, en door niemand anders. Geen president, geen minister, geen van deze mensen kan deze wereld redden en er zich bewust van zijn. Het zijn jullie die dat recht hebben. Jullie hebben deze kracht.
 
-Ben je je bewust van je eigen status, je eigen wezen, dat zo hoog geëvolueerd is? Het is er niet. Moest dat besef er zijn, zouden jullie allen er op uit trekken om je liefde en mededogen te uiten aan andere mensen, en hen te laten beseffen wie zij zijn.
+Ben je je bewust van je eigen status, je eigen wezen, dat zo hoog geëvolueerd is? Het is er niet. Moest dat besef er zijn, zouden jullie allen er op uit trekken om je liefde en mededogen te uiten aan andere mensen, en hen te laten beseffen wie zij zijn.

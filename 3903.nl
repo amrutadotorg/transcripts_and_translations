@@ -7,7 +7,7 @@ Vandaag hebben we besloten om een Hamsa Puja te houden in Duitsland. Tot hiertoe
 
 Deze Hamsa Chakra reikt niet tot de Agnya, maar houdt bepaalde draden of delen van de Ida en Pingala vast; deze vloeien naar je neus toe en drukken zich uit door je ogen, door je mond en door je voorhoofd.
 
-Jullie weten dat de Vishuddhi Chakra 16 bloemblaadjes heeft die voor de ogen, neus, keel, tong en tanden zorgen, maar het zich manifesterende gedeelte van al deze organen gebeurt via de Hamsa Chakra. Het is dus voor een westers brein zeer belangrijk om de Hamsa Chakra te begrijpen. Hierover bestaat in het Sanskriet een mooi vers:         "Hamsa shvetaha, bakaha shvetaha, ko vedo, Hamsa bakayaha; Nirkshir viveketu, hansa hansha, baka bakaha."
+Jullie weten dat de Vishuddhi Chakra 16 bloemblaadjes heeft die voor de ogen, neus, keel, tong en tanden zorgen, maar het zich manifesterende gedeelte van al deze organen gebeurt via de Hamsa Chakra. Het is dus voor een westers brein zeer belangrijk om de Hamsa Chakra te begrijpen. Hierover bestaat in het Sanskriet een mooi vers:         "Hamsa shvetaha, bakaha shvetaha, ko vedo, Hamsa bakayaha; Nirkshir viveketu, hansa hansha, baka bakaha."
 
 Dit betekent: zowel de kraanvogel als de zwaan zijn wit. Wat is het verschil tussen beiden. Als je water en melk mengt zal de Hamsa (de zwaan) enkel de melk opslorpen. Zij kan dus een onderscheid maken tussen het water en de melk. Terwijl de bakaha d.w.z. de kraanvogel, dit niet kan. Dit is voor Sahaja Yogi's een zeer belangrijk iets om te begrijpen. Onderscheidingsvermogen moet diep binnenin onszelf begrepen worden, en de manier waarop we onderscheidingsvermogen ontwikkelen is in Sahaja Yoga zeer belangrijk. Maar alvorens we daar verder op ingaan zullen we eens zien welke grote rol dit onderscheidingsvermogen speelt in de manifestatie van onze uiterlijke verschijning.
 
@@ -31,7 +31,7 @@ Laten we nu de Ida nadi bekijken. De Ida nadi is zeer belangrijk omdat het onder
 
 Eerst missen we dus de grootste steun, de grootste hulp, de grootste voeding van heiligheid en voorspoed bij de Muladhara, als we geen onderscheidingsvermogen hebben. We nemen altijd datgene wat nadelig is voor onze groei, en altijd datgene wat ons kan vernietigen, niet enkel onszelf, maar het gehele land. Als we geen onderscheidingsvermogen hebben dan vinden we negatief ingestelde mensen sympathiek.
 
-Onderscheidingsvermogen wil zeggen dat je die dingen moet kiezen die goed voor je zijn, die weldadig voor je zijn, die goed zijn voor het collectieve, die goed zijn voor je spirituele groei. In tegenstelling hiermee vallen mensen die geen onderscheidingsvermogen hebben, in de valstrikken van het verkeerde type van mensen. Zoals bijvoorbeeld Freud. Ik bedoel Freud, voor de Indiërs kan niemand geloven dat je tot zo een onzinnige ideeën kunt komen. Maar de mensen aanvaardden Freud zelfs meer dan zij Christus aanvaardden, omdat het onderscheidingsvermogen volledig ontbrak.
+Onderscheidingsvermogen wil zeggen dat je die dingen moet kiezen die goed voor je zijn, die weldadig voor je zijn, die goed zijn voor het collectieve, die goed zijn voor je spirituele groei. In tegenstelling hiermee vallen mensen die geen onderscheidingsvermogen hebben, in de valstrikken van het verkeerde type van mensen. Zoals bijvoorbeeld Freud. Ik bedoel Freud, voor de Indiërs kan niemand geloven dat je tot zo een onzinnige ideeën kunt komen. Maar de mensen aanvaardden Freud zelfs meer dan zij Christus aanvaardden, omdat het onderscheidingsvermogen volledig ontbrak.
 
 Als zij dat traditioneel onderscheidingsvermogen in zich hadden gehad zouden zij gered geweest zijn.
 
@@ -39,19 +39,19 @@ Het is dit traditioneel onderscheidingsvermogen in de dingen dat via de Ida nadi
 
 Welke conditionering goed is om over te nemen en welke niet. Nu, omdat er wat betreft conditionering ook geen onderscheidingsvermogen is, worden alle tradities verworpen, alles wat tot ons komt door de ervaringen van onze voorouders, alles wordt verworpen, de geschiedenis wordt verworpen, we zeggen: "O nee, dit hebben we achter ons gelaten, we voelen ons vrij".
 
-Zo was Ik gisteren in het vliegtuig verbaasd toen iemand me zei: "Ik voel me heel vrij als ik geen kleding aan heb". Ik bedoel, als kleding je kan gevangen houden, wat gebeurt er dan in een echte gevangenis, wat zal dat voor jou zijn? Zo'n soort gekke ideeën komen in het hoofd van de mensen, en zij denken dat zij al deze onzin, die ze volgen, kunnen rechtvaardigen omdat ze geen onderscheidingsvermogen hebben.
+Zo was Ik gisteren in het vliegtuig verbaasd toen iemand me zei: "Ik voel me heel vrij als ik geen kleding aan heb". Ik bedoel, als kleding je kan gevangen houden, wat gebeurt er dan in een echte gevangenis, wat zal dat voor jou zijn? Zo'n soort gekke ideeën komen in het hoofd van de mensen, en zij denken dat zij al deze onzin, die ze volgen, kunnen rechtvaardigen omdat ze geen onderscheidingsvermogen hebben.
 
 Verstand kan je geen onderscheidingsvermogen geven. Het kan je geen onderscheidingsvermogen geven toch niet wat betreft de conditioneringen. Voor Sahaja Yogi's is het belangrijk te begrijpen hoe je onderscheidings vermogen ontwikkelt. Gisteren nog, gaf Ik een heel mooie toespraak aan de dames van Parijs, of moet Ik zeggen aan de dames van Frankrijk, in verband met het onderscheidingsvermogen van vrouwen.
 
-Het onderscheidingsvermogen van de Ida nadi is intuïtie. Als je deze onderscheidingskracht, via de meditatieve krachten, in je ontwikkelt, dan ontwikkel je intuïtie. En intuïtie is niets anders dan de hulp van de Gana's die je omringen. Als je leert hulp aan te nemen van de Gana's dan kan je heel intuïtief worden, en zonder veel verstandelijke inbreng van jouw kant, kan je de juiste dingen zien. Heel Sahaja Yoga, Ik zou zelfs zeggen minstens 50%, is gebaseerd op intuïtie. Daarvoor moet je wel een goed begrip van Shri Ganesha ontwikkelen. De essentie van Shri Ganesha moet je begrijpen. Vandaar start het want Hij is Ganapati, Hij is degene die de meester is, Hij is de baas van al de Gana's. De Gana's geven je dus de intuïtie.
+Het onderscheidingsvermogen van de Ida nadi is intuïtie. Als je deze onderscheidingskracht, via de meditatieve krachten, in je ontwikkelt, dan ontwikkel je intuïtie. En intuïtie is niets anders dan de hulp van de Gana's die je omringen. Als je leert hulp aan te nemen van de Gana's dan kan je heel intuïtief worden, en zonder veel verstandelijke inbreng van jouw kant, kan je de juiste dingen zien. Heel Sahaja Yoga, Ik zou zelfs zeggen minstens 50%, is gebaseerd op intuïtie. Daarvoor moet je wel een goed begrip van Shri Ganesha ontwikkelen. De essentie van Shri Ganesha moet je begrijpen. Vandaar start het want Hij is Ganapati, Hij is degene die de meester is, Hij is de baas van al de Gana's. De Gana's geven je dus de intuïtie.
 
-Bvb. Ik moet ergens naartoe gaan, en dan zeg ik "Nee, ik zal niet in staat zijn om daar morgen naartoe te gaan". En dus om de een of andere reden zal ik niet kunnen gaan. Dan reageren de mensen: "Moeder hoe wist U dat?" Ik wist het door de Gana's en wat zij zeggen is de waarheid; zij weten er alles van. Of alles wat Ik zeg over iemand komt uit. Dan beginnen ze me te vragen: "Hoe bent U dat te weten gekomen Moeder?". Ik leef op intuïtie. Zoals wanneer Ik een vliegtuig moet halen, dan weet Ik intuïtief wat er gaat gebeuren. Dit deel moet zich ontwikkelen door Shri Ganesha te aanbidden.
+Bvb. Ik moet ergens naartoe gaan, en dan zeg ik "Nee, ik zal niet in staat zijn om daar morgen naartoe te gaan". En dus om de een of andere reden zal ik niet kunnen gaan. Dan reageren de mensen: "Moeder hoe wist U dat?" Ik wist het door de Gana's en wat zij zeggen is de waarheid; zij weten er alles van. Of alles wat Ik zeg over iemand komt uit. Dan beginnen ze me te vragen: "Hoe bent U dat te weten gekomen Moeder?". Ik leef op intuïtie. Zoals wanneer Ik een vliegtuig moet halen, dan weet Ik intuïtief wat er gaat gebeuren. Dit deel moet zich ontwikkelen door Shri Ganesha te aanbidden.
 
 Tracht je nu voor te stellen: Shri Ganesha beheert ook een deel van de Hamsa Chakra.
 
 Als we dus Ham en Sa zeggen, zijn deze twee eigenlijk de Beeja mantras van de Agnya. Maar als de Agnya de Hamsa raakt start het hier. Daarom is de Hamsa aan de basis, aan de wortel ervan. Ham betekent "ik ben".
 
-Als je onderscheidingsvermogen hebt zal je geen modetrends volgen, zal je geen gekke ideeën aanvaarden. Je hebt je eigen persoonlijkheid, je bent een Sahaja Yogi. Je luistert niet naar mensen die geen Sahaja Yogi's zijn. Dat is het Ham gedeelte, ik ben. Niet het ego gedeelte, maar het Ham om dat te begrijpen "Ik ben een yogi, en ik weet zoveel dingen die mensen normaal niet weten en dus heb ik niets met hen te maken.
+Als je onderscheidingsvermogen hebt zal je geen modetrends volgen, zal je geen gekke ideeën aanvaarden. Je hebt je eigen persoonlijkheid, je bent een Sahaja Yogi. Je luistert niet naar mensen die geen Sahaja Yogi's zijn. Dat is het Ham gedeelte, ik ben. Niet het ego gedeelte, maar het Ham om dat te begrijpen "Ik ben een yogi, en ik weet zoveel dingen die mensen normaal niet weten en dus heb ik niets met hen te maken.
 
 Ik moet geen enkele les van hen krijgen. Ze moeten me niets leren.
 
@@ -99,13 +99,13 @@ Dit is het eerste inzicht. Het tweede inzicht is die geschriften te lezen en te 
 
 Wat er ook geschreven is dit is de essentie van de hele zaak". Dat is het derde stadium als je je inzicht hebt gebruikt i.v.m. godsdienst of nationaliteit.
 
-Veronderstel nu dat Ik in het Westen ben, dan moet Ik het Westen bespreken. Maar je moet me horen als Ik in India ben. Het is maar goed dat je de taal niet begrijpt. Je zou alle respect voor de Indiërs verliezen, Ik geef hen ervan langs en zeg hen wat er fout met hen is.
+Veronderstel nu dat Ik in het Westen ben, dan moet Ik het Westen bespreken. Maar je moet me horen als Ik in India ben. Het is maar goed dat je de taal niet begrijpt. Je zou alle respect voor de Indiërs verliezen, Ik geef hen ervan langs en zeg hen wat er fout met hen is.
 
 Maar hier is het belangrijk te zien dat er veel met ons in het Westen fout is. Dus het inzicht is te zien wat er fout gelopen is met ons.
 
 Waar zitten we fout? Hebben we enige moed of niet?
 
-Bvb. dames hebben de moed niet om buitenshuis een sari te dragen. Waarom? Soms doet dat er niet toe. Als Indiërs jullie Westerse kleding kunnen dragen, dan kunnen jullie ook sari's dragen.
+Bvb. dames hebben de moed niet om buitenshuis een sari te dragen. Waarom? Soms doet dat er niet toe. Als Indiërs jullie Westerse kleding kunnen dragen, dan kunnen jullie ook sari's dragen.
 
 Of de mannen dragen geen Indische kleding buitenshuis, dan is een kleine Ham nodig. Ze genieten ervan, maar ze zullen het niet dragen.
 
@@ -145,7 +145,7 @@ Zie het onderscheid. Dat is Jezus. Hetzelfde geldt voor Shri Krishna die met zij
 
 Het contrast in hun gedragingen is het mooie verhaal van hun inzicht.
 
-Nu is het voor een Sahaja Yogi belangrijk om te begrijpen dat zij hun inzicht moeten verbeteren op zo'n manier dat ze hun intuïtie volledig ontwikkelen. Ik bedoel: de eerste gedachte die opkomt de intuïtie zou kunnen zijn. Het zou kunnen dat dit intuïtie is. Probeer dit. Experimenteer hiermee.
+Nu is het voor een Sahaja Yogi belangrijk om te begrijpen dat zij hun inzicht moeten verbeteren op zo'n manier dat ze hun intuïtie volledig ontwikkelen. Ik bedoel: de eerste gedachte die opkomt de intuïtie zou kunnen zijn. Het zou kunnen dat dit intuïtie is. Probeer dit. Experimenteer hiermee.
 
 Maar in alles tot uitersten gaan is fout in Sahaja Yoga, je moet alles met mate doen. Neem nu bvb. toen Ik hen vertelde om alles te testen met vibraties, toen richtten zij hun handen naar zowat alles. "Zou ik deze sari kopen of niet?" Zij gaan zelfs verder dan dat "Zou ik deze make-up kopen of niet?" Dat is zo belachelijk! Het is zo slecht dat je uiteindelijk een bhoot zal worden, en iedereen zal vertellen "je vibraties zijn slecht".
 
@@ -165,11 +165,11 @@ Als je de Sahasrara mocht missen dan is dit nog niet erg, maar de Guru Puja is z
 
 Nu is Sahaja Yoga zo gemakkelijk dat we niet willen dat er een verandering van vlucht is. Onmiddellijk zitten we op een Hamsa en bereiken de plaats in Andorra. Dat doe je. Dat zul je zien. Maar als je een denkgewoonte ontwikkelt "O, dat zal moeilijk zijn" dan zal het dat ook zijn.
 
-Als je daarentegen denkt "Moeder heeft het gezegd, zo zal het het gemakkelijkst zijn, zal alles zich oplossen". Eens je zo denkt zal 't uitwerken. Alles zal uitwerken. Maar eens zou het zuivere verlangen om het zo te doen er moeten zijn. Telkens er zo'n ideeën bij je opkomen, opnieuw, gebruik steeds onderscheidingsvermogen. "We gaan naar een Guru Puja om onszelf te helpen". Als je je herinnert kwam je iedere Guru Puja veel hoger. Iedere Guru Puja heeft je geholpen. Natuurlijk zal je zeggen dat een Maharashtra-tour heel goed is. En daar ben ik het mee eens.
+Als je daarentegen denkt "Moeder heeft het gezegd, zo zal het het gemakkelijkst zijn, zal alles zich oplossen". Eens je zo denkt zal 't uitwerken. Alles zal uitwerken. Maar eens zou het zuivere verlangen om het zo te doen er moeten zijn. Telkens er zo'n ideeën bij je opkomen, opnieuw, gebruik steeds onderscheidingsvermogen. "We gaan naar een Guru Puja om onszelf te helpen". Als je je herinnert kwam je iedere Guru Puja veel hoger. Iedere Guru Puja heeft je geholpen. Natuurlijk zal je zeggen dat een Maharashtra-tour heel goed is. En daar ben ik het mee eens.
 
-Een Maharashtra-tour helpt je enorm. Maar die duurt 30 dagen, zo intensief. De Guru Puja is maar één dag. Hoeveel Puja's heb je in Maharashtra? Minstens 8 of 9, soms zelfs 10. Daarom moet het natuurlijk zoveel effectiever zijn. Maar een Guru Puja zelf is bijzonder effectief.
+Een Maharashtra-tour helpt je enorm. Maar die duurt 30 dagen, zo intensief. De Guru Puja is maar één dag. Hoeveel Puja's heb je in Maharashtra? Minstens 8 of 9, soms zelfs 10. Daarom moet het natuurlijk zoveel effectiever zijn. Maar een Guru Puja zelf is bijzonder effectief.
 
-Indiërs hebben me gevraagd "Moeder, nog één keer, geef ons tenminste nog één keer de Guru Puja. We hebben er alles voor over om nog één Guru Puja te hebben. Kom asjeblieft". Deze keer wilden ze een Guru Puja hebben. Stel je voor dat je de Guru Puja in India niet zou kunnen bijwonen. Maar Andorra, daar heb ik een speciaal doel voor. Ik heb een speciale bedoeling. Begrijp dus asjeblieft dat ik geen doelloze persoonlijkheid ben. Leer geleidelijk aan hoe ik jullie het doel, het mijne en dat van Sahaja Yoga tezamen vervul. Hoe mooi ik dit verwezenlijk. Je zal het begrijpen.
+Indiërs hebben me gevraagd "Moeder, nog één keer, geef ons tenminste nog één keer de Guru Puja. We hebben er alles voor over om nog één Guru Puja te hebben. Kom asjeblieft". Deze keer wilden ze een Guru Puja hebben. Stel je voor dat je de Guru Puja in India niet zou kunnen bijwonen. Maar Andorra, daar heb ik een speciaal doel voor. Ik heb een speciale bedoeling. Begrijp dus asjeblieft dat ik geen doelloze persoonlijkheid ben. Leer geleidelijk aan hoe ik jullie het doel, het mijne en dat van Sahaja Yoga tezamen vervul. Hoe mooi ik dit verwezenlijk. Je zal het begrijpen.
 
 En ik hoop dat op een dag je ook al deze mooie manieren en methoden tot inzicht ontwikkelt, waardoor je gewoon de juiste dingen doet en nooit de verkeerde. Nu, wat betreft de behandeling van de Hamsa Chakra die meer op het lichamelijk vlak ligt, hij ligt aan de buitenkant, en daarom moet het ook veel meer lichamelijk zijn. Zo hebben we de ghee en zomeer gebruikt om de Hamsa Chakra uit te zuiveren. Wat ook belangrijk is voor de Hamsa Chakra is dat je geen mensen kust. Ik denk dat kussen opgegeven moet worden, je laat hiermee immers de ziektekiemen van andere mensen toe.
 
@@ -183,11 +183,11 @@ Zij spreken gewoonweg niet. Je reist met hen dagelijks 25 km, je zit samen, maar
 
 Dat is kunstmatig.
 
-Het tweede punt waartoe we moeten komen is dat we niet kunstmatig mogen zijn. Het is in orde als iemand me gewoon uit spontaneïteit wil knuffelen, omdat hij van mij houdt. Dat vind Ik niet erg. Omdat het niet onnatuurlijk is, het gebeurt gewoon. Kinderen zijn het meest spontaan.
+Het tweede punt waartoe we moeten komen is dat we niet kunstmatig mogen zijn. Het is in orde als iemand me gewoon uit spontaneïteit wil knuffelen, omdat hij van mij houdt. Dat vind Ik niet erg. Omdat het niet onnatuurlijk is, het gebeurt gewoon. Kinderen zijn het meest spontaan.
 
 Zij zijn niet kunstmatig. Zij zijn helemaal niet kunstmatig. Op dezelfde manier moeten wij in alles natuurlijk zijn. Het is in orde als een man een man een schouderklopje geeft als zij met elkaar aan het praten zijn, dat is niet erg. Zij zijn niet beledigd, het is een teken van liefde, een uitdrukking van liefde, het is in orde. Maar het zou spontaan moeten gebeuren, het zou niet kunstmatig mogen zijn. We zouden ons in Sahaja Yoga niet mogen laten verleiden tot kunstmatigheid, helemaal niet, op geen enkele wijze. Maar kleding dragen is niet kunstmatig. Fatsoenlijk zijn is niet kunstmatig. Waardig zijn is niet kunstmatig. Kunstmatig zijn is datgene zeggen wat je niet van binnen voelt. Dat is onnatuurlijk en een Sahaja Yoga voelt dat hij deze bedeesdheid heeft, deze verlegenheid, dit protocol en hij respecteert zijn lichaam. Uit respect voor zijn lichaam wil hij niets doen dat zijn lichaam beledigt en zo is het als je begrijpt hoe ver je kan gaan en wanneer je moet stoppen.
 
-Dan is er nog een andere manier van onbezonnen zijn in Sahaja Yoga, zoals Ik gezien heb, namelijk dat mensen Me beginnen te gebruiken voor vele doeleinden. Zoals bvb. als er iemand is die een gedicht schrijft zal hij naar Mij komen en zeggen "verbeter a.u.b. mijn gedicht". Ik verbeter één gedicht, twee gedichten, drie gedichten, tien gedichten en dan verliest hij zijn vermogen om gedichten te schrijven. Je zou Me niet op die manier mogen gebruiken voor je eigen doeleinden, maar in ieder geval gebruik je Me.
+Dan is er nog een andere manier van onbezonnen zijn in Sahaja Yoga, zoals Ik gezien heb, namelijk dat mensen Me beginnen te gebruiken voor vele doeleinden. Zoals bvb. als er iemand is die een gedicht schrijft zal hij naar Mij komen en zeggen "verbeter a.u.b. mijn gedicht". Ik verbeter één gedicht, twee gedichten, drie gedichten, tien gedichten en dan verliest hij zijn vermogen om gedichten te schrijven. Je zou Me niet op die manier mogen gebruiken voor je eigen doeleinden, maar in ieder geval gebruik je Me.
 
 Maar met het begrip van "Moeder is de hele tijd bij me, en helpt me".
 
@@ -203,6 +203,6 @@ Zoals wanneer Ik aan het praten ben, dan praten zij er doorheen.
 
 Als Ik iets zeg dan komen ze naar voren. Dan speel Ik een spelletje met hen. Ik ben goed in spelletjes spelen maar Ik ben heel discreet, Ik speel met inzicht. Het is dus in orde. Mijn onderscheidingsvermogen speelt het spel want als Ik recht op de man af ben zou je het niet leuk vinden.
 
-Het is dus beter om met inzicht te handelen, spelletjes te spelen. In alles wat we doen drukt het onderscheidingsvermogen zich uit. En als je een sterke Sahaja Yogi of een Sahaja Yogini bent, is je inzicht duidelijk en ziet en weet iedereen dat het er is. Het is dus voor jullie allemaal belangrijk om jullie onderscheidingsvermogen vandaag te ontwikkelen en Me te vragen om in jullie Hamsa Chakra te verblijven, zodat jullie de hele tijd gevestigd zijn in de kracht van het onderscheidingsvermogen. Met onderscheidingsvermogen zijn we geëvolueerd tot mensen en om verder te evolueren moeten we ons aangeboren inzicht ontwikkelen dat naar Ik meen de essentie is van alle godsdiensten, van alle avonturen die we gehad hebben, van alle levens die we meegemaakt hebben. Het is het onderscheidingsvermogen waarrond alles beweegt.
+Het is dus beter om met inzicht te handelen, spelletjes te spelen. In alles wat we doen drukt het onderscheidingsvermogen zich uit. En als je een sterke Sahaja Yogi of een Sahaja Yogini bent, is je inzicht duidelijk en ziet en weet iedereen dat het er is. Het is dus voor jullie allemaal belangrijk om jullie onderscheidingsvermogen vandaag te ontwikkelen en Me te vragen om in jullie Hamsa Chakra te verblijven, zodat jullie de hele tijd gevestigd zijn in de kracht van het onderscheidingsvermogen. Met onderscheidingsvermogen zijn we geëvolueerd tot mensen en om verder te evolueren moeten we ons aangeboren inzicht ontwikkelen dat naar Ik meen de essentie is van alle godsdiensten, van alle avonturen die we gehad hebben, van alle levens die we meegemaakt hebben. Het is het onderscheidingsvermogen waarrond alles beweegt.
 
 Moge God jullie allen zegenen.

@@ -1,11 +1,11 @@
-Shri Krishna Puja - Eèn worden met de Virata - Cabelle Ligure, Italië - 01/09/1991
+Shri Krishna Puja - Eèn worden met de Virata - Cabelle Ligure, Italië - 01/09/1991
 
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Vandaag besloten we de Yogeshwara te vereren.
 
-Ik denk dat dit voor ons de belangrijkste naam is van Shri Krishna. Dit betekent dat hij de Ishwara is van de yoga. Zoals jullie weten, betekent yoga vereniging met het Goddelijke. Maar Yoga heeft ook nog een andere betekenis, namelijk yukti. Het woord yukti is onmogelijk precies te vertalen in het Engels. We kunnen het vertalen als "truc" (handigheid), maar "truc" wordt altijd geassocieerd met iets grappigs en slecht. Deze yukti betekent techniek, maar "techniek" is mechanisch. Ik kon geen ander woord vinden voor yukti. We kunnen ook zeggen dat het betekent: het kennen van de techniek, of dat de truc van de techniek een andere betekenis is van yoga, yukti. Zelfs al ben je verbonden en je kent de techniek van de vereniging niet, dan is dat nutteloos, het levert niets op. Na de realisatie moet je dus én de techniek én de truc van (het meesterschap over) de techniek leren. Wanneer we het Krishna-niveau bereiken, gaat het om een incarnatie die na Shri Rama komt.
+Ik denk dat dit voor ons de belangrijkste naam is van Shri Krishna. Dit betekent dat hij de Ishwara is van de yoga. Zoals jullie weten, betekent yoga vereniging met het Goddelijke. Maar Yoga heeft ook nog een andere betekenis, namelijk yukti. Het woord yukti is onmogelijk precies te vertalen in het Engels. We kunnen het vertalen als "truc" (handigheid), maar "truc" wordt altijd geassocieerd met iets grappigs en slecht. Deze yukti betekent techniek, maar "techniek" is mechanisch. Ik kon geen ander woord vinden voor yukti. We kunnen ook zeggen dat het betekent: het kennen van de techniek, of dat de truc van de techniek een andere betekenis is van yoga, yukti. Zelfs al ben je verbonden en je kent de techniek van de vereniging niet, dan is dat nutteloos, het levert niets op. Na de realisatie moet je dus én de techniek én de truc van (het meesterschap over) de techniek leren. Wanneer we het Krishna-niveau bereiken, gaat het om een incarnatie die na Shri Rama komt.
 
 Shri Rama kwam (incarneerde) als een Maryada Purushotama.
 
@@ -29,7 +29,7 @@ Zij is aladha dayini, de gever van aladha. Met haar kracht kon Hij deze aladha l
 
 Al de gopa's en gopi's die bij Hem waren, moesten rasa doen. Ra is "energie", sa betekent "met". Dansen met de energie is Radhaji.
 
-Hij speelde fluit en Zij danste. De energie stroomde door haar handen naar de mensen en de Kundalini kon ontwaken. Dit was één van zijn spelletjes. Enkel al spelend bracht Hij de Kundalini omhoog.
+Hij speelde fluit en Zij danste. De energie stroomde door haar handen naar de mensen en de Kundalini kon ontwaken. Dit was één van zijn spelletjes. Enkel al spelend bracht Hij de Kundalini omhoog.
 
 Maar in deze moderne tijd is het heel moeilijk om op die manier de Kundalini te laten ontwaken. Ik bedoel: niemand zou het begrijpen.
 
@@ -43,9 +43,9 @@ Als Hij met iemand praatte, als Hij met iemand in contact kwam, was het met zach
 
 Alles is voor hem madhuri: zijn praten, zijn handelingen, zijn gezicht. Alles is madhuri. Als we over communicatie praten, dan is het hoogste de communicatie tussen mensen. En als we het hebben over communicatie tussen mensen, dan denken veel mensen dat je een betere communicatie bereikt door agressie. Dit is niet waar.
 
-Als je iets wil van iemand, dan ga je naar hem toe en je praat met hem: "Ik wil dit hebben. Hoe kan ik het doen? Zus en zo!" Het resultaat is "nee!" Maar als je zacht bent, als je zacht praat, dan zal negenennegentig procent opgelost geraken. Hoe je met lieflijkheid mensen zachter kunt maken, hoe je dat kunt doen, is een techniek die je moet leren, hoe je met zachtheid de hardheid van de mensen kunt wegnemen. Dat is één van zijn speciale kwaliteiten. Praat met iemand anders op een zachte en natuurlijke manier en het probleem tussen die persoon en jou zal zeker opgelost geraken. Absoluut!
+Als je iets wil van iemand, dan ga je naar hem toe en je praat met hem: "Ik wil dit hebben. Hoe kan ik het doen? Zus en zo!" Het resultaat is "nee!" Maar als je zacht bent, als je zacht praat, dan zal negenennegentig procent opgelost geraken. Hoe je met lieflijkheid mensen zachter kunt maken, hoe je dat kunt doen, is een techniek die je moet leren, hoe je met zachtheid de hardheid van de mensen kunt wegnemen. Dat is één van zijn speciale kwaliteiten. Praat met iemand anders op een zachte en natuurlijke manier en het probleem tussen die persoon en jou zal zeker opgelost geraken. Absoluut!
 
-Er zijn zoveel technieken, maar hoe je precies met iemand moet praten, is één van de belangrijkste dingen die je moet leren. Eerst en vooral moet je laten blijken dat je minder intelligent bent dan iemand anders. Als Ik met wetenschapslui praat, zeg Ik: "Sorry, maar Ik weet niets van wetenschap. In die wetenschap ben Ik niet thuis."
+Er zijn zoveel technieken, maar hoe je precies met iemand moet praten, is één van de belangrijkste dingen die je moet leren. Eerst en vooral moet je laten blijken dat je minder intelligent bent dan iemand anders. Als Ik met wetenschapslui praat, zeg Ik: "Sorry, maar Ik weet niets van wetenschap. In die wetenschap ben Ik niet thuis."
 
 Op die manier voelen zij: "O, heel goed ..." Als je met een muzikant praat, dan zeg je dat je niet veel van muziek kent, dat je maar een klein beetje geleerd hebt, niet veel, een klein beetje maar ...
 
@@ -63,11 +63,11 @@ Ze schrok. "Hij is jouw echtgenoot? O God, waarom vertelde je me dat niet?" Onmi
 
 Ik weet dat sommige Sahaja Yogi's zeggen: "Moeder heeft mij zoveel krachten gegeven. Ik kan dit doen. Ik kan dat doen." Dit opschepperig gedoe is niet nodig: "Ik heb geen krachten, zie je. I
 
-k ben maar een Sahaja Yogi. Maar als je wil, kan ik proberen." Je moet nederig zijn, zoveel je kan. Oefen dit thuis. Eerst moet je oefenen en dan toepassen. Dit is één van de grootste kwaliteiten in de communicatie met anderen.
+k ben maar een Sahaja Yogi. Maar als je wil, kan ik proberen." Je moet nederig zijn, zoveel je kan. Oefen dit thuis. Eerst moet je oefenen en dan toepassen. Dit is één van de grootste kwaliteiten in de communicatie met anderen.
 
-Het tweede punt als je de hele Gita leest, is een heel belangrijk punt (krodh ath vijaya ti samodh?). Tussen al de erge dingen hebben we volgens de Gita zes vijanden. In de Gita is de eerste krodh, het begint met krodh, met boosheid. Als je binnen boosheid koestert, ben je helemaal geen meester. Het is voor een meester niet nodig om boos te worden, omdat hij ermee kan spelen. Hij kan je zo laten dansen. Waarom is het dan nog nodig om boos te worden? Heb je niet dit meesterschap om met mensen om te gaan, dan begin je je stem te verheffen na vijf à zes minuten praten.
+Het tweede punt als je de hele Gita leest, is een heel belangrijk punt (krodh ath vijaya ti samodh?). Tussen al de erge dingen hebben we volgens de Gita zes vijanden. In de Gita is de eerste krodh, het begint met krodh, met boosheid. Als je binnen boosheid koestert, ben je helemaal geen meester. Het is voor een meester niet nodig om boos te worden, omdat hij ermee kan spelen. Hij kan je zo laten dansen. Waarom is het dan nog nodig om boos te worden? Heb je niet dit meesterschap om met mensen om te gaan, dan begin je je stem te verheffen na vijf à zes minuten praten.
 
-Iets in je begint te blaffen, omdat deze woede nog in je aan het branden is. Maar als je een meester bent, mag er geen woede zijn. Dat is nutteloos. Het begint met krodha. Met krodha beginnen alle problemen, van het éne naar het andere, naar het andere, naar het andere...
+Iets in je begint te blaffen, omdat deze woede nog in je aan het branden is. Maar als je een meester bent, mag er geen woede zijn. Dat is nutteloos. Het begint met krodha. Met krodha beginnen alle problemen, van het éne naar het andere, naar het andere, naar het andere...
 
 We moeten dus goed uitkijken als we agressieve mensen zijn. Boosheid komt van de Vishuddhi. Boosheid begint in de lever, Vishnu, en wordt geuit door de Vishuddhi. Het gezicht wordt rood, de ogen worden rood. En met je mond begin je allerlei afschuwelijke dingen te zeggen.
 
@@ -87,9 +87,9 @@ Al je boosheid, je woede, al wat je hebt, begint zich op te stapelen zoals in ee
 
 Je kent de problemen van de linker Vishuddhi.
 
-Als je dus boos wordt op iemand, voel je dan niet schuldig, maar ga voor de spiegel staan en sla jezelf eens goed, één, twee, drie keer.
+Als je dus boos wordt op iemand, voel je dan niet schuldig, maar ga voor de spiegel staan en sla jezelf eens goed, één, twee, drie keer.
 
-Word nu boos op jezelf. Dus: boos worden, voor de spiegel staan en slaan...zó. Probeer te acteren dat je boos bent. Je zal je niet meer schuldig voelen. Misschien zou nog kwader worden beter zijn. Op die manier ontlast je je linker Vishuddhi.
+Word nu boos op jezelf. Dus: boos worden, voor de spiegel staan en slaan...zó. Probeer te acteren dat je boos bent. Je zal je niet meer schuldig voelen. Misschien zou nog kwader worden beter zijn. Op die manier ontlast je je linker Vishuddhi.
 
 De volgende keer gebeurt het niet meer. Als je je schuldig voelt, dan wil dat zeggen dat je steeds weer in herhaling zult vallen. Mannen worden anders kwaad dan vrouwen. Soms ben Ik erg bezorgd in verband met de vrouwen: zij doen beroep op waterkracht(tranen) en dan ben Ik verloren. Degenen die een groot ego hebben, beginnen vlugger te huilen. Dat is een teken.
 
@@ -159,7 +159,7 @@ Ik zal geen wapens gebruiken." Maar Hij was wel een meester in trucs. Hij heeft 
 
 Glimlach erom, glimlach op een zachte manier: "Ah, dat is het, natuurlijk, natuurlijk, ongetwijfeld is dit waar." Je zal verbaasd zijn. Je zal zien dat je communicatie met anderen sterk zal verbeteren."
 
-Sommige mensen in de Sahaja Yoga zijn heel gewoon. Heel gewoon. Ze kwamen naar Mij en vertelden Me dat hun leider gezegd had dat ze bhootish waren. Wat is bhootish? Een ander zei: "Hij zei me dat ik een bhoot ben." Een ander repliceerde: "Neen, Moeder hij zei me dat ik een bhoot in me heb. Wat zijn deze drie categorieën? Vertel het ons." Waarom iemand vertellen dat hij bhootish is? Dat is niet nodig.
+Sommige mensen in de Sahaja Yoga zijn heel gewoon. Heel gewoon. Ze kwamen naar Mij en vertelden Me dat hun leider gezegd had dat ze bhootish waren. Wat is bhootish? Een ander zei: "Hij zei me dat ik een bhoot ben." Een ander repliceerde: "Neen, Moeder hij zei me dat ik een bhoot in me heb. Wat zijn deze drie categorieën? Vertel het ons." Waarom iemand vertellen dat hij bhootish is? Dat is niet nodig.
 
 Als je weet wat je er moet aan doen, zeg dan alleen: linker Swadisthana." Corrigeer het, neem het weg. Vraag hem of hij een guru of zo had. Als het iemand is met een goed karakter, een goede persoon, dan is het zelfs nog belangrijker. Je zou hem niets moeten zeggen.
 
@@ -177,7 +177,7 @@ Ze houden niet van werken. Als je hen bijvoorbeeld vraagt om naar iemand te tele
 
 Maar je moet leren waarom je geen oplossing kan vinden: ik moet iets doen. Zoals Ik jullie verteld heb van het uiteinde van de wortel.
 
-Het draait (groeit) rond en rond, gaat op zoek naar de bron van het water. Wat doen wij ervoor? Als iets niet voor je geschikt is, doe dan iets anders. Als je dit ook niet kunt, nog iets anders. Vanuit niets kan je zoveel doen, maar als je altijd denkt: dit kan niet gedaan worden, dat kan niet gedaan worden... Niét met Shri Krishna. Hij was immers een incarnatie van de Virata. Hij was de meester van de meesters.
+Het draait (groeit) rond en rond, gaat op zoek naar de bron van het water. Wat doen wij ervoor? Als iets niet voor je geschikt is, doe dan iets anders. Als je dit ook niet kunt, nog iets anders. Vanuit niets kan je zoveel doen, maar als je altijd denkt: dit kan niet gedaan worden, dat kan niet gedaan worden... Niét met Shri Krishna. Hij was immers een incarnatie van de Virata. Hij was de meester van de meesters.
 
 Zoals wanneer Draupadi -Draupadi was eigenlijk zijn zuster Vishnumaya- in moeilijkheden was, dacht ze aan Shri Krishna. Ze wilde haar sari niet loslaten toen Duryodhana eraan trok. Ze hield haar sari in haar mond en zei "Kri". Ze wilde Krishna zeggen, maar de sari zou vallen als ze "shna" zei. Daarom hield ze hem vast. Zo vlug ze "shna" zei, viel haar sari. Dan wordt de reactie van Shri Krishna beschreven, Deze klank ging naar Dwarika. Waar is Dwarika en waar is Hastinapur? Op z'n minst op een afstand van tweeduizend mijl. Maar de klank ging door de Chaitanya en veroorzaakte daar een groot geluid: shankar chakra gadhapad. Shankar, chakra, gadhapad zijn de wapens zoals je weet. Hij nam ze en kwam op zijn Garuda om de kuisheid van zijn zuster te redden. Direct. Spontaan, op dat moment.
 
@@ -185,9 +185,9 @@ Hij kon gezegd hebben: "In orde, laat maar, Ik stuur haar een sari, Ik ga dan la
 
 Zo voel Ik het. Waar haalde Hij al die sari's om ze aan haar te geven? Moet van mijn eigen verzameling zijn! Ik ben er zeker van.
 
-Daarom hebben jullie Mij zoveel sari's geschonken, opdat Hij de kuisheid van vele vrouwen zou kunnen beschermen. Dit alles is sterk met elkaar verweven, staat zo met elkaar in verbinding, is zo één, zo verenigd.
+Daarom hebben jullie Mij zoveel sari's geschonken, opdat Hij de kuisheid van vele vrouwen zou kunnen beschermen. Dit alles is sterk met elkaar verweven, staat zo met elkaar in verbinding, is zo één, zo verenigd.
 
-Het is één groot spel, maar jullie kunnen het niet zien. Maar als jullie in jezelf geloven, als jullie echt geloven dat jullie Sahaja Yogi's zijn, in wat jullie kwaliteiten zijn, in wat jullie zelf zijn, in wat jullie waarde is, dan ben Ik zeker dat jullie meesters kunnen worden. Maar eerst en vooral hechten we te weinig waarde aan onze zelfrealisatie.
+Het is één groot spel, maar jullie kunnen het niet zien. Maar als jullie in jezelf geloven, als jullie echt geloven dat jullie Sahaja Yogi's zijn, in wat jullie kwaliteiten zijn, in wat jullie zelf zijn, in wat jullie waarde is, dan ben Ik zeker dat jullie meesters kunnen worden. Maar eerst en vooral hechten we te weinig waarde aan onze zelfrealisatie.
 
 We weten niet waartoe we in staat zijn, wat we kunnen doen. Nog altijd denk je: "Ik ben maar een heel gewoon mens. Moeder heeft me zelfrealisatie gegeven, maar ik ben nooit naar de universiteit geweest." Niemand is naar de universiteit geweest. Christus is nooit naar de universiteit geweest, Rama ging niet naar de universiteit, Krishna ging nooit naar de universiteit, Christus ging nooit naar de universiteit.
 
@@ -199,7 +199,7 @@ Dat versta Ik niet. Waarom? Je probeert meester te zijn over iemand anders, waar
 
 Je Zelf heb je altijd bij je. Jij bent met je Zelf samen. Het is van jou, het is jouw eigendom. Als je het eigendom van iemand anders kan corrigeren, waarom dan niet je eigen eigendom? Dat zou zeer gemakkelijk moeten zijn. Maar je bent er niet zeker van dat het van jou is en je weet niet of je het wel kunt. Maar je kunt het. Je hebt (voldoende) zelfkennis. Waarom zou je het dan niet doen?
 
-Waarom zou je niet proberen jezelf kritisch te bekijken, dan zal je zien dat je alle technieken kent, de yukti. Ik moet je niet vertellen dat je dit moet doen, dat moet doen, niets van dat alles. Jijzelf zal het weten. Kom toch. We weten zoveel over kleine, kleine dingen, over gewone materiële dingen. Iets valt, goed, ondersteun het.
+Waarom zou je niet proberen jezelf kritisch te bekijken, dan zal je zien dat je alle technieken kent, de yukti. Ik moet je niet vertellen dat je dit moet doen, dat moet doen, niets van dat alles. Jijzelf zal het weten. Kom toch. We weten zoveel over kleine, kleine dingen, over gewone materiële dingen. Iets valt, goed, ondersteun het.
 
 Dit gebeurt, zet het op een andere manier. Maar in het spirituele leven is het zeer gemakkelijk, omdat je je in de oceaan van kennis bevindt.
 
@@ -215,7 +215,7 @@ Dit is het woord dat ik meepikte van die persoon."
 
 Als je jezelf kritisch bekijkt, zal je merken dat je de realiteit probeert te ontlopen en dat je enkel je brein gebruikt. Je brein liegt je van alles voor en vertelt je: OK, haal het.
 
-Het laatste, niet het minst belangrijkste, is dat Shri Krishna een expert is in drama. Hij creëert het drama, Hij acteert in het drama, maar is ook toeschouwer. In deze drie gedaanten zou je jezelf moeten bekijken.
+Het laatste, niet het minst belangrijkste, is dat Shri Krishna een expert is in drama. Hij creëert het drama, Hij acteert in het drama, maar is ook toeschouwer. In deze drie gedaanten zou je jezelf moeten bekijken.
 
 Je maakt een drama van jezelf: "Aha, dit is't. Kijk eens, hoe ik hier acteer!" Dan word je automatisch ook toeschouwer.
 
@@ -229,21 +229,21 @@ Ik weet dat ik slecht ben? Ik weet dat het dom was? Ik weet dat ik het niet had 
 
 Dit is een nieuwe vluchtroute, die in de tijd van Shri Krishna nog niet bestond. Het is een moderne manier van reageren, waarbij mensen zeggen: "Ik weet het, in orde, en dan? Ik ben een zondaar, wat dan nog?" Dit is de keerzijde. Eerst komt het besef dat ik verkeerd deed en daarop volgt: en dan? Wat is daar verkeerd aan?
 
-Dit is het punt waarop je begint te ontsporen en dan leidt het je van het één naar het ander. Als ik dit inzie, waarom corrigeer ik mezelf dan niet? Zo moet het zijn. Ik weet dat ik zo ben. Ik weet het.
+Dit is het punt waarop je begint te ontsporen en dan leidt het je van het één naar het ander. Als ik dit inzie, waarom corrigeer ik mezelf dan niet? Zo moet het zijn. Ik weet dat ik zo ben. Ik weet het.
 
-Als je dat weet, dan ken je ook de techniek om ervan af te geraken, omdat je onthecht bent van deze persoonlijkheid, waarvan je weet dat je ze kan veranderen. Dat is yoga: als je aandacht één is met het Goddelijke, als je zo onthecht bent van jezelf zodat je het kunt zién, dan zijn al je gehechtheden aan andere dingen weg. En de kracht die je ontvangt, werkt ook doorheen je en werkt evenzeer op deze gehechtheden. De situatie verandert in Sahaja Yoga absoluut in iets totaal verschillends en als een slechte yogi bij Sahaja Yoga wil komen, is het meestal zo dat hij buitengezet wordt of zich moet aanpassen.
+Als je dat weet, dan ken je ook de techniek om ervan af te geraken, omdat je onthecht bent van deze persoonlijkheid, waarvan je weet dat je ze kan veranderen. Dat is yoga: als je aandacht één is met het Goddelijke, als je zo onthecht bent van jezelf zodat je het kunt zién, dan zijn al je gehechtheden aan andere dingen weg. En de kracht die je ontvangt, werkt ook doorheen je en werkt evenzeer op deze gehechtheden. De situatie verandert in Sahaja Yoga absoluut in iets totaal verschillends en als een slechte yogi bij Sahaja Yoga wil komen, is het meestal zo dat hij buitengezet wordt of zich moet aanpassen.
 
 Het zou omgekeerd moeten zijn. Als een slechte yogi zich aanmeldt, moet hij gecorrigeerd worden, anders wordt hij buitengezet.
 
-Ik denk dat we nu in een meer geëvolueerde situatie zitten in vergelijking met de tijd van Shri Krishna, omdat hij alleen tegen Arjuna praatte en Ik praat over deze kennis tegen duizenden mensen. Hij praatte erover in oorlogstijd, Ik praat in vredestijd. Het is zelfs nog veel verder geëvolueerd, want Shri Krishna gaf geen zelfrealisatie.
+Ik denk dat we nu in een meer geëvolueerde situatie zitten in vergelijking met de tijd van Shri Krishna, omdat hij alleen tegen Arjuna praatte en Ik praat over deze kennis tegen duizenden mensen. Hij praatte erover in oorlogstijd, Ik praat in vredestijd. Het is zelfs nog veel verder geëvolueerd, want Shri Krishna gaf geen zelfrealisatie.
 
 Jullie zijn gerealiseerd. Jullie hebben de kennis.
 
-Jullie weten alles. Jullie hebben (kennen) al de subtiele ideeën.
+Jullie weten alles. Jullie hebben (kennen) al de subtiele ideeën.
 
 Zo is de situatie vandaag: jullie zijn al een deel van de Virata.
 
-Jullie hebben de Virata nog niet gezien, maar jullie zijn er een onderdeel van. Jullie kunnen de Virata niet zien, want je zit er binnenin. Diegenen die zichzelf niet observeren, worden uit Sahaja Yoga gezet. Je moet jezelf observeren en corrigeren en één worden met het lichaam van de Virata. Dat is het teken van een Yogeshwara, namelijk dat je in een gemoedstoestand bent die maakt dat je altijd glimlacht, dat je alles weet, niet met een sarcastische maar met een vriendelijke glimlach, een liefdevolle glimlach voor alle andere mensen en zij zullen het meteen herkennen. Ik heb kleine kinderen gezien die zo zijn.
+Jullie hebben de Virata nog niet gezien, maar jullie zijn er een onderdeel van. Jullie kunnen de Virata niet zien, want je zit er binnenin. Diegenen die zichzelf niet observeren, worden uit Sahaja Yoga gezet. Je moet jezelf observeren en corrigeren en één worden met het lichaam van de Virata. Dat is het teken van een Yogeshwara, namelijk dat je in een gemoedstoestand bent die maakt dat je altijd glimlacht, dat je alles weet, niet met een sarcastische maar met een vriendelijke glimlach, een liefdevolle glimlach voor alle andere mensen en zij zullen het meteen herkennen. Ik heb kleine kinderen gezien die zo zijn.
 
 Zij zijn soms erg beschermend. Zij zien hun ouders en zo.
 
@@ -257,7 +257,7 @@ Ik vraag jullie dus jezelf goed te observeren. Haat jezelf niet, maar corrigeer 
 
 Moge God jullie zegenen.
 
-Al de subtiele ideeën. Zo is de situatie vandaag: jullie zijn al een deel van de Virata. Jullie hebben de Virata nog niet gezien, maar jullie zijn er een onderdeel van. Jullie kunnen de Virata niet zien, want je zit er binnenin. Diegenen die zichzelf niet observeren, worden uit Sahaja Yoga gezet. Je moet jezelf observeren en corrigeren en één worden met het lichaam van de Virata. Dat is het teken van een Yogeshwara, namelijk dat je in een gemoedstoestand bent die maakt dat je altijd glimlacht, dat je alles weet, niet met een sarcastische maar met een vriendelijke glimlach, een liefdevolle glimlach voor alle andere mensen en zij zullen het meteen herkennen. Ik heb kleine kinderen gezien die zo zijn. Zij zijn soms erg beschermend. Zij zien hun ouders en zo.
+Al de subtiele ideeën. Zo is de situatie vandaag: jullie zijn al een deel van de Virata. Jullie hebben de Virata nog niet gezien, maar jullie zijn er een onderdeel van. Jullie kunnen de Virata niet zien, want je zit er binnenin. Diegenen die zichzelf niet observeren, worden uit Sahaja Yoga gezet. Je moet jezelf observeren en corrigeren en één worden met het lichaam van de Virata. Dat is het teken van een Yogeshwara, namelijk dat je in een gemoedstoestand bent die maakt dat je altijd glimlacht, dat je alles weet, niet met een sarcastische maar met een vriendelijke glimlach, een liefdevolle glimlach voor alle andere mensen en zij zullen het meteen herkennen. Ik heb kleine kinderen gezien die zo zijn. Zij zijn soms erg beschermend. Zij zien hun ouders en zo.
 
 Zij komen naar je toe en vertellen je dat je je niet bezorgd moet maken, alles zal in orde komen. Waarover zou je je zorgen moeten maken?
 

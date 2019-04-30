@@ -4,23 +4,21 @@ Shri Mataji Nirmala Devi
 
 Praag, Tsjechische Republiek
 17 augustus 1991
-
-Engelse transcriptie: ISDP verified
-Nederlands: eindversie 08/07/2013
+Engelse transcriptie: ISDP verified Nederlands: eindversie 08/07/2013
 
 Ik buig voor alle zoekers naar de waarheid. Eerst en vooral moet ik jullie zeggen dat de waarheid is wat ze is. We kunnen er geen theorie rond opbouwen en we kunnen haar ook niet veranderen. Helaas kunnen we haar ook niet kennen met behulp van dit menselijke bewustzijn. We moeten een subtieler wezen worden om de waarheid te kunnen ontdekken; met andere woorden, we moeten de Spirit[1] zijn. Daarvoor moet je begrijpen dat dit een evolutionair, levend proces is. Het is een levende gebeurtenis in ons die je verandert in de Spirit, waar je niet voor kunt betalen. Je kunt er ook geen inspanningen voor leveren, maar het werkt gewoon omdat jullie zoekers naar de waarheid zijn.
 
 Wat ik jullie nu allemaal vertel, daar moet je naar luisteren met de open geest van een wetenschapper. Als het de waarheid blijkt te zijn, dan moeten jullie dit als eerlijke mensen accepteren, want het is ten gunste van jullie en ten gunste van de hele wereld. We zien hier deze prachtige bloemen, maar we beschouwen ze als vanzelfsprekend. We denken zelfs niet aan het feit dat ze gewoon uit piepkleine zaadjes zijn ontstaan. Kijk naar onze ogen, wat voor minicamera's het zijn, maar we beschouwen ze als vanzelfsprekend. Je moet dus begrijpen dat er een zekere kracht is die dit levende werk verricht.
 
-De eerste waarheid is dus dat je niet dit lichaam bent, niet deze geest, dit ego of deze conditioneringen, maar je bent de zuivere Spirit. De tweede waarheid is dat er een subtiele kracht bestaat van goddelijke liefde, die al het levende werk doet. Alleen met behulp van deze kracht zijn we van amoebe tot dit niveau gekomen, en nu is er maar een heel kleine doorbraak die we moeten ondergaan om de waarheid te leren kennen. We kennen de absolute waarheid niet. Dat is de reden waarom we ruziemaken met elkaar, waarom we met elkaar vechten en oorlogvoeren. Maar als we allemaal de waarheid kennen, dan is er maar één mogelijkheid. Jullie kunnen bijvoorbeeld allemaal zien dat ik hier zit, jullie weten allemaal dat ik hier zit, er bestaat geen twijfel over. Maar als je de Spirit wordt, dan kun je deze allesdoordringende kracht voelen, die je nog nooit hebt gevoeld. Je voelt het op je vingertoppen, en je kunt ook de koele bries van de Heilige Geest uit je hoofd voelen stromen.
+De eerste waarheid is dus dat je niet dit lichaam bent, niet deze geest, dit ego of deze conditioneringen, maar je bent de zuivere Spirit. De tweede waarheid is dat er een subtiele kracht bestaat van goddelijke liefde, die al het levende werk doet. Alleen met behulp van deze kracht zijn we van amoebe tot dit niveau gekomen, en nu is er maar een heel kleine doorbraak die we moeten ondergaan om de waarheid te leren kennen. We kennen de absolute waarheid niet. Dat is de reden waarom we ruziemaken met elkaar, waarom we met elkaar vechten en oorlogvoeren. Maar als we allemaal de waarheid kennen, dan is er maar één mogelijkheid. Jullie kunnen bijvoorbeeld allemaal zien dat ik hier zit, jullie weten allemaal dat ik hier zit, er bestaat geen twijfel over. Maar als je de Spirit wordt, dan kun je deze allesdoordringende kracht voelen, die je nog nooit hebt gevoeld. Je voelt het op je vingertoppen, en je kunt ook de koele bries van de Heilige Geest uit je hoofd voelen stromen.
 
 In de Bijbel kennen we God Almachtig als God de Vader, en we hebben ook de Zoon van God. En van de Drie-eenheid is de derde de Heilige Geest. Maar hoe kun je vader en zoon hebben zonder een moeder? Vrouwen worden soms ook wel 'tweederangsburgers' genoemd, omdat men zegt dat er geen vrouw aan de tafel van de twaalf apostelen zat, tijdens het Laatste Avondmaal. Maar hoe kun je dan wel Paulus vernoemen, terwijl hij evenmin bij hen aan tafel zat? Maar de mensen voelden dat de moeder van Christus een godin was, daarom noemden ze haar ook wel de Madonna. En ik kan niet begrijpen dat zij die haar niet als godin wilden zien, haar in Polen als de ‘Zwarte Madonna’ begonnen te vereren.
 
-Zo heeft men in elke religie problemen gecreëerd, omdat ze het wilden organiseren naargelang hun eigen wensen. De mensen concludeerden dus dat God niet bestaat, want ongeacht welke religie ze volgden konden ze alle mogelijke zonden begaan. Ze verloren dus hun vertrouwen in God. Maar zodra je de Spirit wordt zul je weten dat God Almachtig bestaat en zijn liefde, zijn allesdoordringende levende kracht. Met behulp van Sahaja Yoga kan er bewezen worden dat God bestaat, en dat zijn kracht van de liefde bestaat. In feite maakt het geen verschil of je blindelings in God gelooft of niet in hem gelooft. Veel mensen komen bij mij en zeggen me: "Moeder, we bidden tot God, maar er verandert helemaal niets. Er is geen verschil tussen ons en mensen die niet in God geloven." De reden hiervoor is dat je niet verbonden bent met God. Als dit apparaat niet met het hoofdnetwerk verbonden is, dan werkt het niet. Als je telefoon niet verbonden is, dan werkt hij ook niet.
+Zo heeft men in elke religie problemen gecreëerd, omdat ze het wilden organiseren naargelang hun eigen wensen. De mensen concludeerden dus dat God niet bestaat, want ongeacht welke religie ze volgden konden ze alle mogelijke zonden begaan. Ze verloren dus hun vertrouwen in God. Maar zodra je de Spirit wordt zul je weten dat God Almachtig bestaat en zijn liefde, zijn allesdoordringende levende kracht. Met behulp van Sahaja Yoga kan er bewezen worden dat God bestaat, en dat zijn kracht van de liefde bestaat. In feite maakt het geen verschil of je blindelings in God gelooft of niet in hem gelooft. Veel mensen komen bij mij en zeggen me: "Moeder, we bidden tot God, maar er verandert helemaal niets. Er is geen verschil tussen ons en mensen die niet in God geloven." De reden hiervoor is dat je niet verbonden bent met God. Als dit apparaat niet met het hoofdnetwerk verbonden is, dan werkt het niet. Als je telefoon niet verbonden is, dan werkt hij ook niet.
 
-Het eerste wat er dus moet gebeuren, is dat je verbonden moet worden met deze allesdoordringende kracht. En jullie hebben allemaal deze goddelijkheid in je. Jullie kunnen allemaal je zelfrealisatie krijgen en verbonden worden met deze allesdoordringende kracht. Je hoeft er geen schroom over te voelen. Het is zo eenvoudig. 'Sahaja' betekent dat het met je geboren is, en dat jullie allemaal het recht hebben om deze verbinding te krijgen, yoga, zonder enige moeite. Als gevolg daarvan kunnen al je lichamelijke, mentale en emotionele problemen opgelost worden. Zelfs je materiële problemen worden opgelost. Maar bovenal treed je binnen in het Koninkrijk van God, dat de oceaan van vreugde is. Dit is wat er met je zal gebeuren. En dit is ontzettend eenvoudig, je kunt het niet bereiken door te lezen, door te studeren of door wat dan ook te doen. Het is geen mentale handeling, maar een levende gebeurtenis.
+Het eerste wat er dus moet gebeuren, is dat je verbonden moet worden met deze allesdoordringende kracht. En jullie hebben allemaal deze goddelijkheid in je. Jullie kunnen allemaal je zelfrealisatie krijgen en verbonden worden met deze allesdoordringende kracht. Je hoeft er geen schroom over te voelen. Het is zo eenvoudig. 'Sahaja' betekent dat het met je geboren is, en dat jullie allemaal het recht hebben om deze verbinding te krijgen, yoga, zonder enige moeite. Als gevolg daarvan kunnen al je lichamelijke, mentale en emotionele problemen opgelost worden. Zelfs je materiële problemen worden opgelost. Maar bovenal treed je binnen in het Koninkrijk van God, dat de oceaan van vreugde is. Dit is wat er met je zal gebeuren. En dit is ontzettend eenvoudig, je kunt het niet bereiken door te lezen, door te studeren of door wat dan ook te doen. Het is geen mentale handeling, maar een levende gebeurtenis.
 
-Ik denk dat jullie vandaag hebben gehoord over de Kundalini en over de kracht die in jullie aanwezig is. Morgen zal ik jullie vertellen over de aard van de Spirit. Het is moeilijk om jullie in zo'n korte tijd een volledig idee te geven van deze basiskennis. Ik moet al minstens vierduizend lezingen over dit onderwerp hebben gegeven, alleen al in het Engels. Er zijn hier bijvoorbeeld zoveel lampen, die we allemaal met één knop kunnen verlichten, maar als ik jullie over de elektriciteit moet vertellen en de geschiedenis ervan, en hoe het hier in Praag is terechtgekomen, dan zullen jullie verveeld raken. Er is maar één knop nodig om het licht aan te doen, want het is allemaal ingebouwd. Op dezelfde manier is het allemaal in jullie ingebouwd. Het is dus beter om eerst deze verlichting te krijgen en daarna meer te leren over de subtielere onderwerpen.
+Ik denk dat jullie vandaag hebben gehoord over de Kundalini en over de kracht die in jullie aanwezig is. Morgen zal ik jullie vertellen over de aard van de Spirit. Het is moeilijk om jullie in zo'n korte tijd een volledig idee te geven van deze basiskennis. Ik moet al minstens vierduizend lezingen over dit onderwerp hebben gegeven, alleen al in het Engels. Er zijn hier bijvoorbeeld zoveel lampen, die we allemaal met één knop kunnen verlichten, maar als ik jullie over de elektriciteit moet vertellen en de geschiedenis ervan, en hoe het hier in Praag is terechtgekomen, dan zullen jullie verveeld raken. Er is maar één knop nodig om het licht aan te doen, want het is allemaal ingebouwd. Op dezelfde manier is het allemaal in jullie ingebouwd. Het is dus beter om eerst deze verlichting te krijgen en daarna meer te leren over de subtielere onderwerpen.
 
 Maar in ieder geval zou ik graag hebben dat jullie me even vragen stellen. Mijn enige verzoek is om me geen vragen te stellen die niets met het onderwerp te maken hebben. Probeer alsjeblieft te begrijpen dat ik niet hier ben gekomen om iets van jullie af te nemen. Ik ben hier gekomen om jullie te geven wat je toebehoort. Je mag me vragen stellen.
 
@@ -28,7 +26,7 @@ Maar in ieder geval zou ik graag hebben dat jullie me even vragen stellen. Mijn 
 
 (Luid genoeg.) "U hebt me in Wenen geholpen - met mijn oren." Maar ze hoort niet meer zo goed.
 
-Oké, dat is iets anders. Ik zal er nog eens naar kijken. Heb je gemediteerd? Goed, we zullen er nog eens naar kijken. Goed, ga maar zitten en we zullen het nog eens bekijken. We zullen je morgen ontvangen.
+Oké, dat is iets anders. Ik zal er nog eens naar kijken. Heb je gemediteerd? Goed, we zullen er nog eens naar kijken. Goed, ga maar zitten en we zullen het nog eens bekijken. We zullen je morgen ontvangen.
 
 Hebben zij geen vragen? Geweldige mensen!
 
@@ -56,7 +54,7 @@ Heel goed!
 
 [Er woeden vandaag de dag veel oorlogen in de wereld, met ontzettend veel geweld. En mijn vraag is: wat moet er gebeuren om vreugde te laten ontstaan?]
 
-Zie je, deze oorlogen zijn er door de problemen van de mensen die hen hebben gecreëerd. Als je mensen kunt transformeren, dan zullen deze problemen automatisch opgelost worden. Als er een bepaald aantal mensen getransformeerd is, dan zullen zij dit mogelijk maken. Er zijn nu al duizenden mensen die getransformeerd zijn, en als je zelf getransformeerd bent kun je anderen transformeren.
+Zie je, deze oorlogen zijn er door de problemen van de mensen die hen hebben gecreëerd. Als je mensen kunt transformeren, dan zullen deze problemen automatisch opgelost worden. Als er een bepaald aantal mensen getransformeerd is, dan zullen zij dit mogelijk maken. Er zijn nu al duizenden mensen die getransformeerd zijn, en als je zelf getransformeerd bent kun je anderen transformeren.
 
 [Onhoorbare vraag over zigeuners.]
 
@@ -64,7 +62,7 @@ Het maakt niet uit welk ras, of het nu zigeuners zijn of een ander ras, ze kunne
 
 [Onhoorbare vraag over Christus.]
 
-Natuurlijk, natuurlijk. Maar Christus heeft gezegd dat zij die niet tegen ons zijn, met ons zijn. Al deze incarnaties en al deze profeten staan allemaal met elkaar in verband. Alleen zien wij hen als afgescheiden, en dit creëert haat onder de mensen.
+Natuurlijk, natuurlijk. Maar Christus heeft gezegd dat zij die niet tegen ons zijn, met ons zijn. Al deze incarnaties en al deze profeten staan allemaal met elkaar in verband. Alleen zien wij hen als afgescheiden, en dit creëert haat onder de mensen.
 
 Daar is nog een vraag.
 
@@ -80,7 +78,7 @@ Nu, deze man heeft nog een vraag.
 
 [Onhoorbare vraag]
 
-Oké, dat is een goede vraag: door de Kundalini van anderen te laten opstijgen en ook door jezelf te vestigen word je een rechtschapen persoon, en wordt de ander ook een rechtschapen persoon. Het worden echt heilige mensen. Ze zijn vredig, zonder lust en hebzucht. Uiteindelijk werd deze wereld zo gemaakt door mensen, dus als de mensen getransformeerd worden, zal de wereld ook getransformeerd worden.
+Oké, dat is een goede vraag: door de Kundalini van anderen te laten opstijgen en ook door jezelf te vestigen word je een rechtschapen persoon, en wordt de ander ook een rechtschapen persoon. Het worden echt heilige mensen. Ze zijn vredig, zonder lust en hebzucht. Uiteindelijk werd deze wereld zo gemaakt door mensen, dus als de mensen getransformeerd worden, zal de wereld ook getransformeerd worden.
 
 [Onhoorbare vraag]
 
@@ -120,7 +118,7 @@ Breng je handen nu alsjeblieft weer naar beneden. Richt je beide handen alsjebli
 
 Richt nu je linkerhand naar mij, maar houd je hoofd gebogen, houd je hoofd gebogen. Voel nu alsjeblieft met je rechterhand of er een koele bries uit je hoofd komt of een warme bries. Leg je hand niet bovenop je hoofd - maar houd het er een eindje vanaf. Soms voel je het wat verder weg. Leg nu alsjeblieft je rechterhand weer op je knie. En buig je hoofd en voel nu opnieuw zelf met je linkerhand.
 
-Breng nu je beide handen omhoog, naar de hemel gericht, zo. Luid, luid. En breng je hoofd naar achteren. En stel één van deze vragen drie keer: "Moeder, is dit de koele bries van de Heilige Geest?" of "Moeder, is dit de kracht van de goddelijke liefde?" of "Moeder, is dit de Paramchaitanya[5]?" Stel één van deze vragen, één van deze vragen drie keer.
+Breng nu je beide handen omhoog, naar de hemel gericht, zo. Luid, luid. En breng je hoofd naar achteren. En stel één van deze vragen drie keer: "Moeder, is dit de koele bries van de Heilige Geest?" of "Moeder, is dit de kracht van de goddelijke liefde?" of "Moeder, is dit de Paramchaitanya[5]?" Stel één van deze vragen, één van deze vragen drie keer.
 
 Breng nu je handen naar beneden. Richt nu je handen zo naar mij. Open je ogen. Kijk naar mij zonder te denken. Degenen die een koele of warme bries hebben gevoeld op hun vingertoppen of in hun handen, of in het fontanelgebied, breng alsjeblieft jullie beide handen omhoog.
 
@@ -130,19 +128,13 @@ Moge God jullie allemaal zegenen.
 
 Zeg hen ook er niet over te spreken. Het gaat je verstand voorbij. Wees stil. Discussieer er niet over.
 
-
-
 [1] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-
 
 [2] karma: de gevolgen van onze vroegere daden, die vaak generaties lang blijven doorwerken
 
+[3]  Angina (pectoris): drukkend, zwaar of pijnlijk gevoel midden op de borst (angineuze pijn); hartprobleem dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen (vernauwde kransslagader in combinatie met grote lichamelijke inspanning of emoties)
 
-[3]  Angina (pectoris): drukkend, zwaar of pijnlijk gevoel midden op de borst (angineuze pijn); hartprobleem dat ontstaat als de hartspier niet voldoende bloed toegevoerd krijgt om het hart zijn werk te laten doen (vernauwde kransslagader in combinatie met grote lichamelijke inspanning of emoties)
-
-
-[4]  spondylitis: de ziekte van Bechterew, haken vormende ontsteking van de wervelkolom
-
+[4]  spondylitis: de ziekte van Bechterew, haken vormende ontsteking van de wervelkolom
 
 [5] Paramchaitanya: de allesdoordringende kracht van God
 

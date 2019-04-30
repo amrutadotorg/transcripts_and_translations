@@ -7,7 +7,7 @@ Vandaag zijn we hier om de verrijzenis van Christus te vieren. De verrijzenis va
 
 Maar dit hele drama is er om jezelf en anderen te misleiden. Het heeft geen enkele zin om zulke waardeloze dingen te spelen, om te laten zien hoe Christus leed. Christus leed niet om je te doen wenen en je aan het huilen te brengen. Hij leed opdat jullie zouden genieten, opdat jullie gelukkig zouden zijn, zodat jullie een leven van volledige zegen en dankbaarheid aan de Almachtige, die jullie geschapen heeft, zouden leiden. Hij zou jullie nooit ongelukkig willen zien. Welke vader zou willen dat zijn zoon ongelukkig is?
 
-Daarom moeten we Zijn boodschap van Zijn leven begrijpen. Waarom Hij op aarde kwam om het grootste werk, dat van de verrijzenis, te doen. Als Hij zichzelf niet verrezen had, zou Ik Sahaja Yoga niet hebben kunnen uitwerken. Wij moeten Hem en Zijn leven dus eeuwig dankbaar zijn. De manier waarop Hij al deze moeilijke taken op Zich nam. Dat kunnen wij niet doen, wij menselijke wezens kunnen dat niet doen. Alleen Hij, die het Goddelijke was. Hij die de Om was. Hij die de Logos (geïncarneerde woord van God, Christus) was, Hij die de Brahma was, kon het doen.
+Daarom moeten we Zijn boodschap van Zijn leven begrijpen. Waarom Hij op aarde kwam om het grootste werk, dat van de verrijzenis, te doen. Als Hij zichzelf niet verrezen had, zou Ik Sahaja Yoga niet hebben kunnen uitwerken. Wij moeten Hem en Zijn leven dus eeuwig dankbaar zijn. De manier waarop Hij al deze moeilijke taken op Zich nam. Dat kunnen wij niet doen, wij menselijke wezens kunnen dat niet doen. Alleen Hij, die het Goddelijke was. Hij die de Om was. Hij die de Logos (geïncarneerde woord van God, Christus) was, Hij die de Brahma was, kon het doen.
 
 Maar nu zijn jullie allen spiritueel gegroeid. Ik kan op jullie gezichten in het groot, Christus geschreven zien, het prachtige schitteren en fonkelen in jullie ogen. Hij is daar, binnenin ons, in onze harten, in onze ogen. Hij heeft Zichzelf verrezen en Hij heeft jullie ook doen verrijzen. Maar nu is het aan jullie om andere mensen te doen verrijzen.
 
@@ -17,15 +17,15 @@ Misschien via Hem, of via jullie Kundalini, maar jullie hebben deze kracht om an
 
 Maar eerst en vooral moeten jullie zo sterk zijn als Christus.
 
-De manier waarop Hij Zijn Moeder gehoorzaamde en hoe Hij alle eisen van Zijn leven gehoorzaamde. Hoe Hij ermee verbonden was en hoe Hij Zichzelf hierop toelegde op één enkele taak.
+De manier waarop Hij Zijn Moeder gehoorzaamde en hoe Hij alle eisen van Zijn leven gehoorzaamde. Hoe Hij ermee verbonden was en hoe Hij Zichzelf hierop toelegde op één enkele taak.
 
-Het maakte Hem niet uit zijn financiële kant te ontwikkelen of om een soort grote officier te worden of om een grote ruiter te worden of een zwemmer of de Alpen te beklimmen of zoiets als dat.
+Het maakte Hem niet uit zijn financiële kant te ontwikkelen of om een soort grote officier te worden of om een grote ruiter te worden of een zwemmer of de Alpen te beklimmen of zoiets als dat.
 
 Hij probeerde al deze trucks niet uit en Hij probeerde niet te hunkeren naar al deze dingen die ons soms behoorlijk gek maken.
 
 Wat Hij deed, was Zijn identiteit als de Brahma zelf vestigen, als de heilige vibraties zelf, die Hij vestigde.
 
-Wat jullie moeten doen is jezelf vestigen als de verrezen mensen, als de gerealiseerde zielen, als de Sahaja Yogi's. En dit zal erg gemakkelijk gaan, nu alles voor jullie gemakkelijk gemaakt is. Jullie realisatie, jullie krachten, alles heeft zich prachtig in jullie geïnstalleerd. Het heeft zich zo mooi uitgewerkt, langzaam maar zeker. Ik denk niet dat Ik jullie ooit gedwongen heb iets te doen of jullie verplicht heb iets te doen.
+Wat jullie moeten doen is jezelf vestigen als de verrezen mensen, als de gerealiseerde zielen, als de Sahaja Yogi's. En dit zal erg gemakkelijk gaan, nu alles voor jullie gemakkelijk gemaakt is. Jullie realisatie, jullie krachten, alles heeft zich prachtig in jullie geïnstalleerd. Het heeft zich zo mooi uitgewerkt, langzaam maar zeker. Ik denk niet dat Ik jullie ooit gedwongen heb iets te doen of jullie verplicht heb iets te doen.
 
 Maar via je eigen spirituele groei kan je zien wat er verkeerd met je is of met de mensen waarover we praten.
 
@@ -41,7 +41,7 @@ En plotseling moest Ik hier naar toe komen, gelukkig was Ik hier.
 
 Verder hebben ze op de televisie de afgelopen week steeds verteld dat het hevig zou gaan regenen, dat het erg bewolkt zou zijn en de temperatuur wordt erg slecht, en er zullen hevige regens vallen... Steeds weer, elke avond, iedere keer kondigden ze aan, dat het weer er weer slechter uitzag. Dus dacht Ik, wat nu? Als je de wolken vraagt opzij te gaan, dan heb je een geweldige wind nodig en hij zou jullie tent kunnen vernielen.
 
-Op de één of andere manier, zie je, vertelde Ik de wolken dus dat ze beter naar New Foundland konden gaan, langzaam, gestadig, niet met grote snelheid en ze deden het.
+Op de één of andere manier, zie je, vertelde Ik de wolken dus dat ze beter naar New Foundland konden gaan, langzaam, gestadig, niet met grote snelheid en ze deden het.
 
 En dan kwam de zon erg helder te voorschijn. Vroeg in de morgen zag Ik haar, rood als mijn sari, zo mooi was het. Jullie lagen allen te slapen, maar Ik was wakker, erg vroeg. En Ik keek hoe de zon opkwam net als mijn bindi kwam zij op. Ik zag het en zei, kijk naar de zon, hoe gehoorzaam, hoe toegewijd, hoe schoon. Wat er ook is, vandaag is het Moeders Puja, je moet goed licht geven en de juiste temperatuur.
 
@@ -57,17 +57,17 @@ Maar Hij was volledig medevoelen in de aard van de vibraties.
 
 Vibraties werden een volledig medevoelen. In die mate, dat Hij zelfs toen Hij verrezen was en zelfs daarvoor toen Hij gekruisigd werd, zei: "Oh God, Vader, alstublieft vergeef deze mensen, want zij weten niet wat ze doen". Zo'n vergeving, zo'n medevoelen, en de Moeder moest dat alles aanzien, zich stil houdend, want dat was het spel, dat was het wat moest gedaan worden. Hij moest Zijn spel spelen en Hij speelde het zo goed.
 
-Nu we het over Christus hebben, moeten we ons één ding herinneren, namelijk dat Hij dit alles voor ons gedaan heeft.
+Nu we het over Christus hebben, moeten we ons één ding herinneren, namelijk dat Hij dit alles voor ons gedaan heeft.
 
-Wat gaan we nu voor Hem doen? Hij is het voorbeeld dat we moeten volgen. Veronderstel dat dàt het voorbeeld is dat wij moeten volgen, dan betekent het niet dat we het kruis op onze schouders moeten dragen, dat is niet het voorbeeld dat jullie moeten volgen. Veel mensen denken dat, omdat Hij het kruis droeg, wij het kruis ook moeten dragen. Iedereen kan het kruis dragen. Als je, in India, een drager ongeveer vijf roepies geeft kan hij een kruis dragen.
+Wat gaan we nu voor Hem doen? Hij is het voorbeeld dat we moeten volgen. Veronderstel dat dàt het voorbeeld is dat wij moeten volgen, dan betekent het niet dat we het kruis op onze schouders moeten dragen, dat is niet het voorbeeld dat jullie moeten volgen. Veel mensen denken dat, omdat Hij het kruis droeg, wij het kruis ook moeten dragen. Iedereen kan het kruis dragen. Als je, in India, een drager ongeveer vijf roepies geeft kan hij een kruis dragen.
 
 Wat is er zo geweldig aan? Wat is zo geweldig aan het dragen van een kruis op je schouder? Het is niet zo geweldig. Elke worstelaar kan het doen, iedereen kan het doen, dat is niet het belangrijkste. Het punt is dat we het werk van Christus moeten voortdragen, de verrijzenis. Dat is wat we moeten beseffen. We moeten dus het belang van ons wezen, van ons leven begrijpen, zoals Christus begreep dat Hij was gekomen voor dit grootse werk hier. En ofschoon Hij als een menselijk wezen kwam, ofschoon Hij kwam als een gewone zoon van een gewone timmerman, ofschoon Hij op deze aarde een lichaam had en leefde zoals andere menselijke wezens, steeds wist Hij wat Hij moest doen.
 
-Hij wist wat Hij moest bereiken en Hij bereikte het. Ik denk dat Zijn taak de moeilijkste was, de taak die Hij volbracht en goed beëindigde dat we er vandaag alle voordelen van hebben. Laat ons nu zien of we iets voor Sahaja Yoga gedaan hebben of niet. We moeten onszelf allemaal onderzoeken. Wat hebben we gedaan voor Sahaja Yoga? Ik bedoel niet het dragen van het kruis. Wanneer ze in India reizen •denken sommige mensen dat zij het kruis van Christus dragen als ze de bagage van mensen naar beneden dragen. Dat is de manier niet.
+Hij wist wat Hij moest bereiken en Hij bereikte het. Ik denk dat Zijn taak de moeilijkste was, de taak die Hij volbracht en goed beëindigde dat we er vandaag alle voordelen van hebben. Laat ons nu zien of we iets voor Sahaja Yoga gedaan hebben of niet. We moeten onszelf allemaal onderzoeken. Wat hebben we gedaan voor Sahaja Yoga? Ik bedoel niet het dragen van het kruis. Wanneer ze in India reizen •denken sommige mensen dat zij het kruis van Christus dragen als ze de bagage van mensen naar beneden dragen. Dat is de manier niet.
 
 Het is iets heel ernstig, waarover men moet nadenken. En die ernst geeft aan in hoeverre we die staat bereikt hebben, wat we daarvoor gedaan hebben. Een eenvoudige zaak, dat Ik jullie allen gevraagd heb, is dat jullie elke dag moeten mediteren.
 
-Jullie moeten allen elke dag mediteren. Maar op de één of andere manier heeft niemand de tijd om te mediteren. We hebben deze horloges alleen om te weten dat we moeten mediteren. Voor niets anders.
+Jullie moeten allen elke dag mediteren. Maar op de één of andere manier heeft niemand de tijd om te mediteren. We hebben deze horloges alleen om te weten dat we moeten mediteren. Voor niets anders.
 
 Onze levens zijn voor meditatie. Jullie hoeven er niet vierentwintig uur aan te besteden, maar jullie moeten elke dag mediteren. Jullie moeten mediteren. Als jullie mediteren zullen jullie kinderen mediteren.
 
@@ -79,19 +79,19 @@ Maar als jullie zelfs niet dit kleine beetje willen mediteren, dan is het erg, e
 
 Het is een enorme taak die Ik opgenomen heb. Ik weet dat. Maar Ik weet hoe het te doen en jullie weten ook hoe het te doen, maar het probleem is dat jullie verward raken in jullie verschillende conditioneringen.
 
-Nu moeten jullie ondertussen beseft hebben dat al deze zogenaamde religies in de naam van wie ook, of het in de naam is van de islam, in de naam van het christendom, in de naam van het hindoeïsme, in de naam van het sikhisme, dat dit alles bedrog is. Het heeft geen waarheid in zich.
+Nu moeten jullie ondertussen beseft hebben dat al deze zogenaamde religies in de naam van wie ook, of het in de naam is van de islam, in de naam van het christendom, in de naam van het hindoeïsme, in de naam van het sikhisme, dat dit alles bedrog is. Het heeft geen waarheid in zich.
 
 Ze hebben allemaal geprobeerd het te gebruiken voor hun eigen doelen.
 
-Er is slechts één waarheid en die is dat al deze grote profeten en al deze grote incarnaties op deze aarde kwamen voor jullie verrijzenis en niet om deze religies te vestigen die alleen maar geïnteresseerd zijn in geld. In deze religies zal je ook zien dat er mensen zijn die ofwel links of rechts zijn.
+Er is slechts één waarheid en die is dat al deze grote profeten en al deze grote incarnaties op deze aarde kwamen voor jullie verrijzenis en niet om deze religies te vestigen die alleen maar geïnteresseerd zijn in geld. In deze religies zal je ook zien dat er mensen zijn die ofwel links of rechts zijn.
 
 Er zijn sommige religies die preken dat je heel erg strikt moet zijn. Je mag dit niet doen, je mag dat niet doen, je mag niet drinken, je mag niet roken.
 
 Er zijn er enkele die zeggen dat je niet mag trouwen, je mag niet naar vrouwen kijken, je mag niet naar mannen kijken.
 
-Alle soorten beperkingen. Zelfs in het hindoeïsme zal je verbaasd staan dat er zoveel beperkingen zijn.
+Alle soorten beperkingen. Zelfs in het hindoeïsme zal je verbaasd staan dat er zoveel beperkingen zijn.
 
-Als je weet hoeveel bijgeloof er bestaat dat gecreëerd werd door brahmanen in India, zal je geschokt zijn. Voor alles is er bijgeloof.
+Als je weet hoeveel bijgeloof er bestaat dat gecreëerd werd door brahmanen in India, zal je geschokt zijn. Voor alles is er bijgeloof.
 
 Als je met de linkerhand naar voren loopt, betekent het dit, als je met de rechterhand loopt betekent het dat. Als je op een bepaalde manier zit, betekent het dat. En zo met alles. Ze hebben van een menselijk wezen een machine gemaakt en het is niet meer spontaan. In de islam zijn er ook alle soorten absurditeiten. Maar als we ze in een vrij land als Engeland vinden, waar complete links gerichtheid is, waar je kan doen wat je wil, hoewel je een christen bent. Je drinkt, het is in orde, je hebt tien vrouwen, het is in orde, je hebt vijftien bijzitten, het is in orde.
 
@@ -113,7 +113,7 @@ We werden verondersteld V.I.P.'s te zijn, zie je.
 
 Hij verloor zichzelf gewoon in drinken. Daarom dachten we, we kunnen ons beter eervol terugtrekken, we stonden op en liepen die plaats uit en die kerel kwam zelfs niet om ons gedag te zeggen, en deze ambtenaren, de Russische ambtenaren dronken niet, zij deden niets en ze lachten en lachten maar. Hij zei: "Kijk nu, dit is christendom, daarom willen wij geen christenen worden". Ik zei dus: "Maar kijk, dat is Christus niet". Zij zeiden: "Dat is waar, maar wat is het waarover deze mensen praten, is het het christendom?" Ik zei: "Dat is het niet". Nu, deze heer werd verondersteld de hoogste persoon van het spirituele leven in Rusland te zijn.
 
-Ze hebben Me een verhaal verteld over de tsaren. Zie je, de tsaar wilde een religie hebben, want zij dachten, iedereen heeft een religie en wij hebben geen religie, we moeten de één of andere religie hebben. Daarom zonden ze enige mensen uit en de mensen die naar voren kwamen waren om te beginnen katholieken. De katholieken zeiden dus; "In orde, in de katholieke religie kan je drinken". Ik weet niet hoe ze aan dit idee kwamen, maar dat was in orde. In het katholieke geloof kan je drinken, maar je kan niet meer dan één vrouw hebben.
+Ze hebben Me een verhaal verteld over de tsaren. Zie je, de tsaar wilde een religie hebben, want zij dachten, iedereen heeft een religie en wij hebben geen religie, we moeten de één of andere religie hebben. Daarom zonden ze enige mensen uit en de mensen die naar voren kwamen waren om te beginnen katholieken. De katholieken zeiden dus; "In orde, in de katholieke religie kan je drinken". Ik weet niet hoe ze aan dit idee kwamen, maar dat was in orde. In het katholieke geloof kan je drinken, maar je kan niet meer dan één vrouw hebben.
 
 De tsaar zei; "Nee, dat is niet mogelijk, je moet nu eenmaal vele tsarina's hebben, zie je, voor verschillende doeleinden, daarom kunnen we die religie niet hebben. Daarom zegden zij het af.
 
@@ -129,15 +129,15 @@ Dit is dus de situatie van de religie vandaag. Al deze religies zijn als vermink
 
 Ze noemden hem dus Alexander maar zijn naam was Blondie, zie je: zijn echte Indische naam was Bhoora, daarom noemden zij hem Alexander Bhoora. Mijnheer Alexander Bhoora kwam dus naar Allahabad en ging naar de Ganges rivier om zijn bad te nemen. De priester, de pastoor zei: "Dat kan je niet doen". Alexander Hora zei dus; "als ik sahib geworden ben, en ik ben Engelsman geworden, dat betekent niet dat ik mijn religie heb opgegeven." Zie je, dat is precies wat er met ons gebeurt als we proberen welke religie dan ook te volgen.
 
-Nu hebben we ons allemaal geïdentificeerd met de zogenaamde religies, waarin we geboren zijn. Als Ik bijvoorbeeld aan Indiërs zou zeggen, ga niet naar tempels, ga naar geen enkele tempel, zelfs niet als het een swayambhu tempel is, tenzij en totdat jullie het Mij verteld hebben, ga op geen enkele voorwaarde naar een swayambhu tempel.
+Nu hebben we ons allemaal geïdentificeerd met de zogenaamde religies, waarin we geboren zijn. Als Ik bijvoorbeeld aan Indiërs zou zeggen, ga niet naar tempels, ga naar geen enkele tempel, zelfs niet als het een swayambhu tempel is, tenzij en totdat jullie het Mij verteld hebben, ga op geen enkele voorwaarde naar een swayambhu tempel.
 
 Er zijn ook vele kerken waar erg goede beelden staan, of waarvan we kunnen zeggen dat ze iets hebben dat echt swayambhu’s is, maar er zijn er zeer weinig. Je zegt het mij eerst en dan ga je. Maar ze willen niet naar Mij luisteren, ze willen niet luisteren en als ze daar naar toe gaan verstoren ze hun Agnya chakra's.
 
 Op een keer ging Ik een tempel bezichtigen die natuurlijk een swayambhu tempel was, zonder twijfel. Enige Sahaja yogi's besloten daar heen te gaan, maar Ik vroeg het hen niet, en zij vertelden het Mij niet. Toen ze terug kwamen, kregen ze allemaal een flauwte zodra ze Mij zagen. Ik zei: "Wat is er gebeurd?" Waar zijn jullie heen gegaan?" "Oh, we zijn naar die tempel gegaan". Ik zei, "Waarom? Jullie hebben Mij dat nooit vertelt.
 
-Wat heb je daar?" Kijk, de Brahmin bracht een tika aan en het was afgelopen. Het kostte hen één maand om uit te klaren. Nu gaan ze niet meer. Ze hadden er genoeg van. Hetzelfde met de christenen.
+Wat heb je daar?" Kijk, de Brahmin bracht een tika aan en het was afgelopen. Het kostte hen één maand om uit te klaren. Nu gaan ze niet meer. Ze hadden er genoeg van. Hetzelfde met de christenen.
 
-Gisteren hoorde Ik van het verhaal van Parijs, waar mensen trouwpartijen in de kerk in Parijs wilden hebben. Ze moesten dus speciale jurken hebben. Iemand kwam hier om enkele speciale jurken te kopen van de één of andere grote naam.
+Gisteren hoorde Ik van het verhaal van Parijs, waar mensen trouwpartijen in de kerk in Parijs wilden hebben. Ze moesten dus speciale jurken hebben. Iemand kwam hier om enkele speciale jurken te kopen van de één of andere grote naam.
 
 De speciale jurken moeten gedragen worden omdat ze naar de kerk moeten gaan. En toen ze uit de kerk kwamen met deze jurken, waren ze bhoots geworden. Ik was verbaasd.
 
@@ -153,7 +153,7 @@ En vandaag moet Ik jullie vertellen dat Christus tot geen enkele religie behoord
 
 Hij volgde geen enkele religie. Hij volgde Zijn eigen spirituele religie.
 
-Toen Hij naar een kerk ging waar mensen waren die aan het discussiëren waren, waren het Joden. Hij ging er heen en Hij sprak met hen. Gisteren zag Ik een prachtig schilderij in de krant afgedrukt staan, een erg mooi beroemd schilderij, waar Christus spreekt met de dokters en Hij houdt en wrijft Zijn linker Swadisthan erg fijntjes en al de dokters, zie je, één van hen luistert naar Hem, één kijkt naar Hem, staart naar Hem, een ander toont een beetje belangstelling voor Hem.
+Toen Hij naar een kerk ging waar mensen waren die aan het discussiëren waren, waren het Joden. Hij ging er heen en Hij sprak met hen. Gisteren zag Ik een prachtig schilderij in de krant afgedrukt staan, een erg mooi beroemd schilderij, waar Christus spreekt met de dokters en Hij houdt en wrijft Zijn linker Swadisthan erg fijntjes en al de dokters, zie je, één van hen luistert naar Hem, één kijkt naar Hem, staart naar Hem, een ander toont een beetje belangstelling voor Hem.
 
 Hij wrijft alleen Zijn linker Swadisthan.
 
@@ -181,9 +181,9 @@ Nu hebben jullie dat stadium nog niet bereikt. Als jullie dat stadium bereiken e
 
 Zelfs als ze een diner met kaarslicht houden, ben Ik verbaasd over de manier waarop iedere kaars begint te flikkeren. En mensen beginnen te kijken, want de bhoots zitten voor hen. De kaarsen laten dus onmiddellijk zien dat dit de bhoots zijn die hier zitten.
 
-Met al deze kennis dat jullie het licht binnenin jullie zelf hebben, waardoor jullie verlicht zijn, als jullie dan nog steeds naar deze links en rechts georiënteerde dingen gaan, dan is het erg, erg gevaar lijk.
+Met al deze kennis dat jullie het licht binnenin jullie zelf hebben, waardoor jullie verlicht zijn, als jullie dan nog steeds naar deze links en rechts georiënteerde dingen gaan, dan is het erg, erg gevaar lijk.
 
-We zien dat ook vandaag de dag. Ik moet jullie vertellen over het politieke gedeelte. In de politiek hebben deze mensen ook twee types van theorieën ontwikkeld. De ene is links, de andere rechts georiënteerd. De theorieën van de linkerkant zijn democratisch... waarbij je aan alles waar je zin in hebt kan toegeven. Het is het individu dat belangrijk is. Het individu geeft overal aan toe en je zou hem niet mogen tegenhouden te doen wat hij graag doet. Het is een individu en dus heeft hij het recht zijn neus af te snijden, het recht in zijn ogen te snijden, te doen wat hij wil. Men staat het individu toe te doen wat hij wil en wat gebeurt er dan? We zien dan dat deze democratie een demonocratie wordt. Iedereen is een demon (duivel). Iedereen is druk bezig kelen door te snijden, de gehele basis en de wortels van het leven af te snijden, want iedereen is Brahman.
+We zien dat ook vandaag de dag. Ik moet jullie vertellen over het politieke gedeelte. In de politiek hebben deze mensen ook twee types van theorieën ontwikkeld. De ene is links, de andere rechts georiënteerd. De theorieën van de linkerkant zijn democratisch... waarbij je aan alles waar je zin in hebt kan toegeven. Het is het individu dat belangrijk is. Het individu geeft overal aan toe en je zou hem niet mogen tegenhouden te doen wat hij graag doet. Het is een individu en dus heeft hij het recht zijn neus af te snijden, het recht in zijn ogen te snijden, te doen wat hij wil. Men staat het individu toe te doen wat hij wil en wat gebeurt er dan? We zien dan dat deze democratie een demonocratie wordt. Iedereen is een demon (duivel). Iedereen is druk bezig kelen door te snijden, de gehele basis en de wortels van het leven af te snijden, want iedereen is Brahman.
 
 Iedereen wordt een grote persoonlijkheid, omdat het individu zo groots is en het collectieve is verloren, volledig verloren.
 
@@ -201,9 +201,9 @@ Decadentie treedt in omdat een individu aan wie jullie al deze krachten gegeven 
 
 Hij kan geen liefde dragen. Hij kan geen vriendelijkheid dragen. Hij kan vrede niet begrijpen omdat hij nog steeds een individu is.
 
-Maar als een individu het collectieve wordt is dit de spirituele groei via het centrale pad. Wanneer hij het collectieve wordt, versterkt hij het collectieve met zijn kracht, en het collectieve verzorgt, beschermt en begeleidt het individu ook. Dit is wat Sahaja Yoga is. De politiek van Sahaja Yoga is dus, dat je de collectieve persoonlijkheid moet worden en als we nog steeds voelen dat we iets groots zijn, dat we verschillend zijn, dat we Indiërs zijn of uit Engeland of Frankrijk komen, als we ons nog steeds identificeren dan ben je niet collectief.
+Maar als een individu het collectieve wordt is dit de spirituele groei via het centrale pad. Wanneer hij het collectieve wordt, versterkt hij het collectieve met zijn kracht, en het collectieve verzorgt, beschermt en begeleidt het individu ook. Dit is wat Sahaja Yoga is. De politiek van Sahaja Yoga is dus, dat je de collectieve persoonlijkheid moet worden en als we nog steeds voelen dat we iets groots zijn, dat we verschillend zijn, dat we Indiërs zijn of uit Engeland of Frankrijk komen, als we ons nog steeds identificeren dan ben je niet collectief.
 
-In de collectieve zin zijn we allemaal één, een essentieel deel van één wezen. Dan handel je echt als collectief wezen en ben je één met het Goddelijke. Waar de zon voor je zorgt, de maan voor je zorgt, de winden voor je zorgen, en de moeder aarde en al deze elementen... Zij werken. Ether, alles werkt voor jou en je bent zo goed beschermd en gezegend door deze speciale kwaliteit dat. Je geniet van de vreugde. Dan word je echt gevoelig voor die vreugde, als je één bent met het geheel. Veronderstel bijvoorbeeld dat deze vinger of deze vinger niet één is met het geheel, dat hij uitgeteld is zoals het gebeurt in lepra. Wat gebeurt, is dat deze vinger uitgeschakeld wordt. Zelfs als een rat hem afbijt, weten we het niet want er is geen connectie, geen zenuwen die handelen, het is ongevoelig. Op dezelfde manier val je eruit wanneer je niet collectief bent en je je niets aantrekt van het collectieve. Je zal daar niet zijn, om van de schoonheid van je eigen glorie en die van het collectieve te genieten.
+In de collectieve zin zijn we allemaal één, een essentieel deel van één wezen. Dan handel je echt als collectief wezen en ben je één met het Goddelijke. Waar de zon voor je zorgt, de maan voor je zorgt, de winden voor je zorgen, en de moeder aarde en al deze elementen... Zij werken. Ether, alles werkt voor jou en je bent zo goed beschermd en gezegend door deze speciale kwaliteit dat. Je geniet van de vreugde. Dan word je echt gevoelig voor die vreugde, als je één bent met het geheel. Veronderstel bijvoorbeeld dat deze vinger of deze vinger niet één is met het geheel, dat hij uitgeteld is zoals het gebeurt in lepra. Wat gebeurt, is dat deze vinger uitgeschakeld wordt. Zelfs als een rat hem afbijt, weten we het niet want er is geen connectie, geen zenuwen die handelen, het is ongevoelig. Op dezelfde manier val je eruit wanneer je niet collectief bent en je je niets aantrekt van het collectieve. Je zal daar niet zijn, om van de schoonheid van je eigen glorie en die van het collectieve te genieten.
 
 Men moet dus begrijpen dat we zelf sterk moeten zijn. Me moeten spiritueel groeien en we moeten collectief zijn. Het is erg gemakkelijk om fouten bij anderen te vinden, erg gemakkelijk om fouten te vinden bij de leiders, erg gemakkelijk om ook fouten te vinden in Sahaja Yoga, soms met Mij. Het is beter fouten bij jezelf te vinden. Voor de rest zorg Ik. Vind eerst fouten bij jezelf en probeer anderen te begrijpen en lief te hebben en te genieten van de aanwezigheid van anderen. Zodra je dit beslist, dat we moeten genieten, is het zo spontaan, laat Ik jullie dat zeggen. Alleen deze beslissing, dit vertrouwen binnenin jullie, dat: nu ik van mijn Spirit ga genieten, ik ga van het collectieve binnenin mij, wat de Spirit is, genieten. Alleen al dit besluit op zichzelf zal jullie de kracht geven om te genieten, maar het besluit moet krachtig zijn, geen huichelarij, geen spelletjes spelen, geen ego, geen conditionering, niets.
 
@@ -219,13 +219,13 @@ Wat wordt van ons verwacht? Waarom worden ons al deze zegeningen gegeven. Er is 
 
 Niemand wil dat je iets prijsgeeft of iets doet of lid wordt of wat dan ook.
 
-Ik denk dat het Mijn verplichting is, zoals Ik zei dat God de verplichting heeft, maar jullie hebben ook één verplichting, dat jullie verlangen zuiver moet zijn. Dat is het enige: laat mijn verlangen zuiver zijn, geen onzuiverheden van elke aard ook. Dat zou het moeten uitwerken.
+Ik denk dat het Mijn verplichting is, zoals Ik zei dat God de verplichting heeft, maar jullie hebben ook één verplichting, dat jullie verlangen zuiver moet zijn. Dat is het enige: laat mijn verlangen zuiver zijn, geen onzuiverheden van elke aard ook. Dat zou het moeten uitwerken.
 
 Zoals Christus Zijn verlangen had, zo zuiver en dat is wat Hij volbracht.
 
 Ik ben er zeker van dat jullie allen in jullie leven veel kunnen volbrengen.
 
-Vandaag is het Mijn vijfenzestigste verjaardag. Nu stel je voor. Ik ben vijfenzestig jaar oud en op deze leeftijd doen de meeste dames gewoon... Ik weet niet wat ze doen. Nu moeten jullie dus opkomen en alles zo ver als het mogelijk is uitwerken, denkende dat we allen op moeten staan. Nu komen de kinderen op. Zij gaan óók opstaan. Jullie zien er voor Mij allemaal jonger en jonger uit. ledere dag, telkens Ik jullie zie, zien jullie er jonger uit. Soms herken Ik jullie zelfs niet, omdat je er jonger uit ziet en Ik denk dan, is het de zoon of de vader? De situatie is zo, dat jullie allen gezegend zijn. Jullie hebben werk gekregen, jullie hebben alles. En iedereen zegt Mij, Moeder dit is gebeurd en dat is gebeurd, alles. Nu, wat dan nog? Dit zijn verleidingen, wees voorzichtig. Dit is niet wat jullie wilden. Wat jullie wilden is de staat van volledig geloof binnen in jezelf, waar je niet hebt te vragen, niets. Alles zal uitwerken. Het werkt uit. Dat is het punt. Als we elkaar dus de volgende keer ontmoeten, zal Ik zelfs nog jongere mensen zien dan wat Ik vandaag zie en Ik zal in staat zijn jullie te herkennen. Christus stierf op een erg, erg jonge leeftijd, erg jonge leeftijd. Hij was erg jong, moet Ik zeggen. Maar hoeveel heeft Hij niet voor de mensheid gedaan. Niemand had op zo'n jonge leeftijd zoveel kunnen volbrengen als Hij heeft gedaan. Het is merkwaardig. Het is echt merkwaardig. Ik verwacht van jullie dat jullie dat volgen. Zijn voetstappen, door opmerkelijke dingen te doen. En laat Mij ieder van jullie zien, ieder van jullie moet iets groots doen. En vandaag is het de dag voor bepaalde beloften.
+Vandaag is het Mijn vijfenzestigste verjaardag. Nu stel je voor. Ik ben vijfenzestig jaar oud en op deze leeftijd doen de meeste dames gewoon... Ik weet niet wat ze doen. Nu moeten jullie dus opkomen en alles zo ver als het mogelijk is uitwerken, denkende dat we allen op moeten staan. Nu komen de kinderen op. Zij gaan óók opstaan. Jullie zien er voor Mij allemaal jonger en jonger uit. ledere dag, telkens Ik jullie zie, zien jullie er jonger uit. Soms herken Ik jullie zelfs niet, omdat je er jonger uit ziet en Ik denk dan, is het de zoon of de vader? De situatie is zo, dat jullie allen gezegend zijn. Jullie hebben werk gekregen, jullie hebben alles. En iedereen zegt Mij, Moeder dit is gebeurd en dat is gebeurd, alles. Nu, wat dan nog? Dit zijn verleidingen, wees voorzichtig. Dit is niet wat jullie wilden. Wat jullie wilden is de staat van volledig geloof binnen in jezelf, waar je niet hebt te vragen, niets. Alles zal uitwerken. Het werkt uit. Dat is het punt. Als we elkaar dus de volgende keer ontmoeten, zal Ik zelfs nog jongere mensen zien dan wat Ik vandaag zie en Ik zal in staat zijn jullie te herkennen. Christus stierf op een erg, erg jonge leeftijd, erg jonge leeftijd. Hij was erg jong, moet Ik zeggen. Maar hoeveel heeft Hij niet voor de mensheid gedaan. Niemand had op zo'n jonge leeftijd zoveel kunnen volbrengen als Hij heeft gedaan. Het is merkwaardig. Het is echt merkwaardig. Ik verwacht van jullie dat jullie dat volgen. Zijn voetstappen, door opmerkelijke dingen te doen. En laat Mij ieder van jullie zien, ieder van jullie moet iets groots doen. En vandaag is het de dag voor bepaalde beloften.
 
 Moge God jullie daarvoor zegenen.
 
@@ -239,9 +239,9 @@ Ik denk dat de liefde in Mijn hart van Mijn gezicht uitstraalt, misschien.
 
 Ik hoop dat de Spaanse vrouwen liefdevol en hartelijk zullen worden tegenover anderen.
 
-Eén ding dat we mesten beseffen is dat Sahaja yoga liefde is. Goddelijke liefde. Het is geen gehechtheid. Het is geen bezit. Maar het is een liefde die geeft. Het is geen vleselijke liefde.
+Eén ding dat we mesten beseffen is dat Sahaja yoga liefde is. Goddelijke liefde. Het is geen gehechtheid. Het is geen bezit. Maar het is een liefde die geeft. Het is geen vleselijke liefde.
 
-Het is geen liefde voor welke materiële zaak ook, noch de liefde voor je roem. Maar het is de liefde van het Goddelijke.
+Het is geen liefde voor welke materiële zaak ook, noch de liefde voor je roem. Maar het is de liefde van het Goddelijke.
 
 Deze transformatie vindt werkelijk plaats als je echt probeert alles gade te slaan in zijn werkelijkheid en voor jezelf te zien hoe en waarom je aan iets gehecht bent.
 
@@ -261,7 +261,7 @@ Niemand houdt van een persoon die namaak is, die onrein is, die onrechtvaardig o
 
 Het enige wat moet gebeuren is, dat ze de werkelijkheid in jullie moeten zien, of jullie moeten jullie werkelijkheid naar buiten toe manifesteren. Het eerste hebben wij niet in handen... Hun de realiteit te laten begrijpen. Het tweede... de realiteit te manifesteren... hebben we in onze handen.
 
-Nu, als voorbeeld, hebben jullie gezien dat, wanneer Ik ook reis en een programma regel er overal duizenden mensen zijn. In Italië zagen ze alleen maar mijn foto en zij kwamen naar Mijn programma. Ik leg geen verklaringen af. Ik beloof niets, maar ze kwamen allemaal. De reden is dat ze gevoelig zijn en ze kunnen zien dat er oprechtheid van dit gezicht straalt. Wat er ook van binnen is, het wordt naar buiten toe uitgedrukt. Als je niet oprecht bent, toont het zich aan de buitenkant.
+Nu, als voorbeeld, hebben jullie gezien dat, wanneer Ik ook reis en een programma regel er overal duizenden mensen zijn. In Italië zagen ze alleen maar mijn foto en zij kwamen naar Mijn programma. Ik leg geen verklaringen af. Ik beloof niets, maar ze kwamen allemaal. De reden is dat ze gevoelig zijn en ze kunnen zien dat er oprechtheid van dit gezicht straalt. Wat er ook van binnen is, het wordt naar buiten toe uitgedrukt. Als je niet oprecht bent, toont het zich aan de buitenkant.
 
 Daarom moet het innerlijke licht, tot een groot, groot, briljant licht uitgebreid worden, zodat we mensen de werkelijkheid kunnen laten zien, in zovele lichten. Ik ben er zeker van dat zij dat kunnen zien, de schoonheid op jullie gezichten.
 

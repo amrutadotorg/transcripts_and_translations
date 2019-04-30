@@ -4,15 +4,13 @@ Mahaganesha Puja
 
 Ganapatipule, India
 1 januari 1986
-
-Engelse transcriptie: ISDP verified
-Nederlands: eindversie 03/09/2010
+Engelse transcriptie: ISDP verified Nederlands: eindversie 03/09/2010
 
 Vandaag zijn we hier allen samengekomen om ons respect te betuigen aan Shri Ganesha.
 
 Ganapatipule heeft een speciale betekenis omdat hij Mahaganesha is. De Ganesha in de Muladhara wordt Mahaganesha in de Virata[1], dat is het brein. Dat wil zeggen dat dit de zetel is van Shri Ganesha. Dat betekent dat Shri Ganesha vanuit die zetel het principe van de onschuld aanstuurt. Zoals jullie zeer goed weten is dit gelegen aan de achterkant in het gebied van de optische thalamus, of de optische kwab zoals men het ook wel noemt, en dit is hetgene dat de ogen onschuld geeft.
 
-Toen hij incarneerde als Christus die zich hier aan de voorkant bevindt, in de Agnya, zei hij heel duidelijk: "Gij zult geen overspelige ogen hebben." Het is een zeer subtiele uitdrukking, waarbij mensen de betekenis van het woord 'overspeligheid' niet begrijpen. ‘Overspeligheid' betekent kort samengevat 'onzuiverheid'. En onzuiverheid in de ogen “zult gij niet hebben”, dit is erg moeilijk. In plaats van te zeggen: "zorg dat je je realisatie krijgt en zuiver dan je back Agnya," zei hij dit in een heel korte vorm: "Gij zult geen overspelige ogen hebben." En de mensen vonden dat dit een onmogelijke opdracht was. Want hij was niet voorbestemd lang te leven; eigenlijk was zijn openbare leven beperkt tot slechts drieënhalf jaar. Dus alles wat hij gezegd heeft is van zeer groot belang, dat je ogen niet overspelig zouden mogen zijn. Als er onschuld is dan is er geen overspeligheid: dit betekent dat er geen onzuiverheid is.
+Toen hij incarneerde als Christus die zich hier aan de voorkant bevindt, in de Agnya, zei hij heel duidelijk: "Gij zult geen overspelige ogen hebben." Het is een zeer subtiele uitdrukking, waarbij mensen de betekenis van het woord 'overspeligheid' niet begrijpen. ‘Overspeligheid' betekent kort samengevat 'onzuiverheid'. En onzuiverheid in de ogen “zult gij niet hebben”, dit is erg moeilijk. In plaats van te zeggen: "zorg dat je je realisatie krijgt en zuiver dan je back Agnya," zei hij dit in een heel korte vorm: "Gij zult geen overspelige ogen hebben." En de mensen vonden dat dit een onmogelijke opdracht was. Want hij was niet voorbestemd lang te leven; eigenlijk was zijn openbare leven beperkt tot slechts drieënhalf jaar. Dus alles wat hij gezegd heeft is van zeer groot belang, dat je ogen niet overspelig zouden mogen zijn. Als er onschuld is dan is er geen overspeligheid: dit betekent dat er geen onzuiverheid is.
 
 Bijvoorbeeld, met onze ogen zien we iets en we willen het bezitten. We beginnen erover na te denken. De gedachten volgen elkaar op als een ketting, de ene na de andere. En dan komen we terecht in een web van vreselijke gedachten, en vervolgens worden we slaaf van deze gedachten. Zelfs zonder het te weten worden onze ogen gericht naar dingen die heel oppervlakkig zijn en je neerwaarts trekken.
 
@@ -34,9 +32,9 @@ Deze staat kan bereikt worden door kinderen, klein of groot, oudere mensen, vrou
 
 Alleen hij wiens aandacht altijd op de goddelijke kracht gericht is, kan een echte guru worden. De aandacht van gewone mensen is vervormd, ze is niet zuiver. Daarom heeft Christus gezegd, dat er geen overspeligheid in je ogen zou mogen zijn, wat betekent dat, als we onze aandacht ergens op richten, we veel beginnen te denken en er komen vreemde gedachten in ons op, over hoe ik dit voorwerp kan bemachtigen, en waarom kreeg ik dit ding niet, en andere gedachten over waarom en waarom niet. Als we iets zien en beginnen te denken, dan ben je de Agnya chakra nog niet overgestoken. Welk voorwerp je ook ziet, je zou gedachteloos moeten worden, vooral in de hemelse verblijfplaats van weelde en voorspoed waar talloze goden en godinnen zijn, enkel door hen te zien zou je gedachteloos moeten worden.
 
-Eens we de staat van gedachteloos bewustzijn bereiken zal er geen verdorvenheid meer in onze aandacht zijn. De gedachten die de geest aantasten zullen niet meer opkomen, dus hoe zal verdorvenheid je nog langer beïnvloeden? Dat betekent, zoals Christus zei: “Gij zult geen overspelige ogen hebben.” Ze zouden zo zuiver moeten zijn als de stralen van de zon, wanneer ze op de bomen vallen nemen ze het vuil niet op, maar ze koesteren en voeden hen, niet enkel dat maar ze geven hen ook kracht.
+Eens we de staat van gedachteloos bewustzijn bereiken zal er geen verdorvenheid meer in onze aandacht zijn. De gedachten die de geest aantasten zullen niet meer opkomen, dus hoe zal verdorvenheid je nog langer beïnvloeden? Dat betekent, zoals Christus zei: “Gij zult geen overspelige ogen hebben.” Ze zouden zo zuiver moeten zijn als de stralen van de zon, wanneer ze op de bomen vallen nemen ze het vuil niet op, maar ze koesteren en voeden hen, niet enkel dat maar ze geven hen ook kracht.
 
-Op dezelfde manier zouden de Sahaja yogi's zo'n schittering in hun ogen moeten hebben, dat zij een zeer zuivere atmosfeer kunnen creëren in de hele wereld. Zuiverheid in de atmosfeer is wat we nodig hebben tegenwoordig, overal, zodat vrede, vreugde en goddelijke kracht kunnen zegevieren in deze wereld. Alleen de glorie van Shri Ganesha bezingen zal niet genoeg zijn, Shri Ganesha moet ontwaakt zijn binnenin ons en hij zou moeten evolueren tot de staat van Mahaganesha.
+Op dezelfde manier zouden de Sahaja yogi's zo'n schittering in hun ogen moeten hebben, dat zij een zeer zuivere atmosfeer kunnen creëren in de hele wereld. Zuiverheid in de atmosfeer is wat we nodig hebben tegenwoordig, overal, zodat vrede, vreugde en goddelijke kracht kunnen zegevieren in deze wereld. Alleen de glorie van Shri Ganesha bezingen zal niet genoeg zijn, Shri Ganesha moet ontwaakt zijn binnenin ons en hij zou moeten evolueren tot de staat van Mahaganesha.
 
 Enkel na het verwerven van de staat van Mahaganesha kan ons land er voordeel van hebben en via ons land kunnen ook andere landen voordeel hebben van deze staat. Wij zullen de anderen leiden, maar als we deze verantwoordelijkheid niet op ons nemen, dan kan ik niet zeggen wat er terecht zal komen van deze wereld.
 
@@ -50,48 +48,33 @@ Eerst zullen ze de vierentwintig namen van Shri Vishnu nemen zodat de Sushumna n
 
 [Even iets in Hindi]
 
-We hebben elf kunda's, en we zullen de havan doen voor de elf kunda's. Want de Mahaganesha is de heerser, hij is de heerser van de Ekadesha Rudra[14]. Dus dat moet gebeuren met veel devotie en toewijding. Ik zou voorstellen dat jullie na afloop van deze puja eerst eten, en daarna zullen we neerzitten voor de havan.
-
-
+We hebben elf kunda's, en we zullen de havan doen voor de elf kunda's. Want de Mahaganesha is de heerser, hij is de heerser van de Ekadasha Rudra[14]. Dus dat moet gebeuren met veel devotie en toewijding. Ik zou voorstellen dat jullie na afloop van deze puja eerst eten, en daarna zullen we neerzitten voor de havan.
 
 [1] Virata: het kosmische lichaam, het grote Universele Wezen, de manifestatie van God
 
-
 [2] satguru: werkelijke guru; ook: Adi Guru of oorspronkelijke meester
-
 
 [3] Gyaneshwara: grote heilige en dichter die leefde in de 13de eeuw (1275-97) in Maharashtra, India. Hij vertaalde o.a. oude spirituele Sanskriet teksten in het Marathi zodat deze kennis toegankelijker werd.
 
-
 [4] Gyaneshwari: boek, ook gekend als de Bhavarthadpika, waarin Gyaneshwara de Bhagavad Gita vertaalde in het Marathi en van commentaar voorzag. In het zesde hoofdstuk beschrijft hij de aard van de Kundalini.
 
-
-[5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
-
+[5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,...)
 
 [6] pitha of peetha: plaats, ‘zetel’ van een chakra
 
-
 [7] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
 
 [8] Ganapati: Shri Ganesha als leider van de gana’s (engelen in de hemelse legers)
 
-
 [9] Ganesha Stuthi: lied waarin de kwaliteiten van Shri Ganesha vereerd en geprezen worden.
-
 
 [10] Mahalakshmi Tattwa: Mahalakshmi principe; essentie van de kracht van evolutie
 
-
-[11]  nirvichara: gedachteloos bewustzijn
-
+[11]  nirvichara: gedachteloos bewustzijn
 
 [12] Tukaram: Indische dichter (1598-c.1649), bekend voor het componeren van ‘abhanga’s’ of gezongen versen waarin het Goddelijke wordt geprezen.
 
-
 [13] Sushumna nadi: kanaal van evolutie; middenkanaal van het subtiele systeem, waarlangs de Kundalini opstijgt.
 
-
-[14] Ekadesha Rudra: de elf vernietigende krachten van Shri Kalki.
+[14] Ekadasha Rudra: de elf vernietigende krachten van Shri Kalki.
 

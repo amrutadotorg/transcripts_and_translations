@@ -1,9 +1,9 @@
-Shri Krishna Puja - Sahaj cultuur - Cabella Italië - 01/09/1996
+Shri Krishna Puja - Sahaj cultuur - Cabella Italië - 01/09/1996
 
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
-Vandaag zullen we Shri Krishna vereren. Kijk eens hoe koud het was omstreeks drie uur. De reden hiervoor is de volgende: Shri Krishna was een beetje ondeugend geweest met Indra. Indra is de godheid, of je kan hem ook een halfgod noemen, die voor de regen zorgt. Indra werd erg kwaad. Zie je, al deze halfgoden zijn erg gevoelige persoonlijkheden. Bij het minste worden zij kwaad en geïrriteerd en gebruiken zij hun krachten te om uitdrukking te geven aan hun woede. Hij liet dus de regen neerstromen over alle gopa's en Shri Krishna, die de koeien hoedden.
+Vandaag zullen we Shri Krishna vereren. Kijk eens hoe koud het was omstreeks drie uur. De reden hiervoor is de volgende: Shri Krishna was een beetje ondeugend geweest met Indra. Indra is de godheid, of je kan hem ook een halfgod noemen, die voor de regen zorgt. Indra werd erg kwaad. Zie je, al deze halfgoden zijn erg gevoelige persoonlijkheden. Bij het minste worden zij kwaad en geïrriteerd en gebruiken zij hun krachten te om uitdrukking te geven aan hun woede. Hij liet dus de regen neerstromen over alle gopa's en Shri Krishna, die de koeien hoedden.
 
 De regenval was zo hevig dat zij dachten dat al het land overstroomd zou worden.
 
@@ -23,7 +23,7 @@ Voor hem kwam Shri Ram, die Maryada Purushottama was, een man die zeer precies w
 
 Hij stuurde haar dus weg. Op dat ogenblik was het nochtans geen Kali Yuga. En zijn vader beval hem naar een woud in ballingschap te gaan; het was niet zozeer zijn vader maar zijn stiefmoeder, en hij stemde ermee in. Tenslotte was hij Maryada Purushottama. Hij stemde dus in met wat zijn vader hem ook zei, wat zijn moeder hem ook zei en hij ging naar het woud en verbleef er gedurende veertien jaar.
 
-Dit is de gehoorzaamheid tegenover de vader. En het was niet echt nodig! Zijn vader was God niet! Hijzelf was God, maar in die tijd was het belangrijk dat de mensen niet alleen de ouders zouden respecteren, maar ze ook zouden gehoorzamen. Zo was die tijd. In die tijd waren er veel dromers, heiligen en ook hatha-yogi's. En zelfs vóór zijn tijd lieten zij de mensen een zeer strikte discipline beoefenen en als zij deze discipline niet volgden, moesten zij veel boete doen.
+Dit is de gehoorzaamheid tegenover de vader. En het was niet echt nodig! Zijn vader was God niet! Hijzelf was God, maar in die tijd was het belangrijk dat de mensen niet alleen de ouders zouden respecteren, maar ze ook zouden gehoorzamen. Zo was die tijd. In die tijd waren er veel dromers, heiligen en ook hatha-yogi's. En zelfs vóór zijn tijd lieten zij de mensen een zeer strikte discipline beoefenen en als zij deze discipline niet volgden, moesten zij veel boete doen.
 
 Zo kwam het dat vele mensen die het probeerden, nooit het doel bereikten door de striktheid en totale discipline die gepaard ging met het volgen van het spirituele pad. Onlangs las ik een boek getiteld “Peaceful Warrior”, (“Vredevolle Strijder”). Daarin wordt een Amerikaan beschreven die de waarheid zoekt en zijn goeroe geeft hem zo'n verschrikkelijke, strenge taak dat mijn kleindochter zei: “Ik ben echt kwaad op zo'n goeroe”. Zij kon het niet verdragen.
 
@@ -31,9 +31,9 @@ Uiteindelijk vindt hij wat hij is: het bestaan. Dat was dus de praktijk na Shri 
 
 Ik zou zeggen dat de dag van vandaag de Islam deze vorm heeft aangenomen. Ze doen het uit angst, niet vrijwillig. Ook de Christenen en van de Hindoes weet ik het niet, half om half denk ik. Zelfs onder de Sikhs heerst er een enorme discipline, zo erg dat je als straf ieders schoenen moet poetsen. Ik weet niet of zij zichzelf moeten slaan met die schoenen, maar er wordt veel gestraft. Toen kwam Shri Krishna en hij zag hoe de situatie was, hoe de mensen aan het vasten waren.
 
-Als je werkelijk de rituelen van het Hindoeïsme wil doormaken, dan zal je op één week tenminste zes dagen vasten. Eén dag zal je misschien een of ander te eten krijgen. Je zal ook allerlei plaatsen moeten bezoeken. Zoals je weet moesten ze onlangs nog naar Ambarnath gaan en er vielen zoveel doden (ten gevolge van een treinongeval). Nu zeggen zij dat zij zo het Nirvana bereikten: zij stierven daar en daardoor verkregen zij het Nirvana. Zo’n raar idee: nu hebben wij het Nirvana, wij hebben bereikt wat wij wilden, nu zijn wij dood, zovelen zijn dood.
+Als je werkelijk de rituelen van het Hindoeïsme wil doormaken, dan zal je op één week tenminste zes dagen vasten. Eén dag zal je misschien een of ander te eten krijgen. Je zal ook allerlei plaatsen moeten bezoeken. Zoals je weet moesten ze onlangs nog naar Ambarnath gaan en er vielen zoveel doden (ten gevolge van een treinongeval). Nu zeggen zij dat zij zo het Nirvana bereikten: zij stierven daar en daardoor verkregen zij het Nirvana. Zo’n raar idee: nu hebben wij het Nirvana, wij hebben bereikt wat wij wilden, nu zijn wij dood, zovelen zijn dood.
 
-Diegenen die niet gestorven waren, bekloegen zich over het feit dat zij niet dood waren, dat was veel beter geweest, want dan hadden zij het Nirvana bereikt. Zelfs in deze Kali Yuga zijn deze ideeën gangbaar.
+Diegenen die niet gestorven waren, bekloegen zich over het feit dat zij niet dood waren, dat was veel beter geweest, want dan hadden zij het Nirvana bereikt. Zelfs in deze Kali Yuga zijn deze ideeën gangbaar.
 
 Zelfs in India hebben de mensen een zeer strikt geloof.
 
@@ -41,7 +41,7 @@ Vooral in het Zuiden doen ze allerlei nonsens doen als boetedoening, of om iets 
 
 Hij kon niet begrijpen dat zij hun leven vergooiden aan dit soort ritualistische afstraffingen. Wat zou er van hen overblijven voor Sahaja Yoga? Daarom begon hij met de Sahaj cultuur. Hij zei: laat ons genieten, wij moeten vreugde beleven, Nirmal Ananda, zuivere vreugde. Hoe komen we tot zuivere vreugde? Hij had ook deze Rakhi Bandhan, waardoor iedereen, behalve je echtgenote, je zuster of je moeder is.
 
-Ik moet zeggen dat dit wel degelijk zo is bij de Indiërs, niet zozeer in het noorden vanwege de islamitische invloed, maar wel in het zuiden, ook in Maharashtra. Dan begon hij ook met deze Holi, waarbij je met kleuren moet spelen, misschien om je vooroordelen over kleuren kwijt te raken. Het is misschien een zeer goed idee om in Amerika met kleuren te gaan spelen en wat zwart op te blanken aan te brengen en wat wit op de zwarten. Dan kunnen zij zelf zien hoe dom het is om voor een kleur te vechten. Zoals een heel gewoon iemand speelde hij met de kinderen die de koeien hoedden. Hij probeerde nooit met zijn krachten op te scheppen, nooit op te vallen, nooit op een speciale manier gekleed te gaan, nooit. Zoals een gewone koeherder.
+Ik moet zeggen dat dit wel degelijk zo is bij de Indiërs, niet zozeer in het noorden vanwege de islamitische invloed, maar wel in het zuiden, ook in Maharashtra. Dan begon hij ook met deze Holi, waarbij je met kleuren moet spelen, misschien om je vooroordelen over kleuren kwijt te raken. Het is misschien een zeer goed idee om in Amerika met kleuren te gaan spelen en wat zwart op te blanken aan te brengen en wat wit op de zwarten. Dan kunnen zij zelf zien hoe dom het is om voor een kleur te vechten. Zoals een heel gewoon iemand speelde hij met de kinderen die de koeien hoedden. Hij probeerde nooit met zijn krachten op te scheppen, nooit op te vallen, nooit op een speciale manier gekleed te gaan, nooit. Zoals een gewone koeherder.
 
 En de relatie met zijn moeder Yeshoda, die zijn echte moeder niet was, was uiterst mooi. Over zijn kindertijd zijn zoveel prachtige gedichten geschreven, namelijk dat hij verantwoordelijk is voor het gehele universum. Toen hij een kleine jongen was, stak hij verwonderd zijn vinger in de mond. Hoe kan een Goddelijke Virata dat doen?
 
@@ -95,7 +95,7 @@ Ook als je naar een begrafenis gaat. Er was een goede vriend gestorven, een fijn
 
 Hoe kan je dat doen? Er zijn geen gevoelens voor dat lichaam dat daar levenloos ligt en iedereen is zeer gelukkig. En als iemand ongelukkig kijkt vraagt men: “Wat is er? Gaat het niet?” Er is geen besef dat men hier een vriend heeft verloren. Dit is de a-sahaj stijl als het om verdriet gaat. Als het om vreugde gaat, is het a-sahaj en als het om verdriet gaat, is het on-sahaj. We moeten in die zin sahaj zijn dat we, wat we ook doen, spontaan doen en niet na wikken en wegen.
 
-In India zijn er ook zeer verengelste mensen en toen een dame stierf ging ik er naartoe. In India wordt het lichaam op de grond gelegd en zij waren dus aan het overleggen wat ze zouden doen, op welk tijdstip de rouwdienst zou beginnen en zo meer. Eén van de dames, die in India een welbekende persoon is, zei dat het niet voor twaalf uur zou mogen gebeuren. Ik vroeg waarom en zij zei: “Omdat ik wit zal moeten dragen (dat is zo) en ik zal naar de bank moeten gaan om mijn diamanten te halen om te passen bij de witte sari.” Ik zei: “Wat is dit allemaal?”
+In India zijn er ook zeer verengelste mensen en toen een dame stierf ging ik er naartoe. In India wordt het lichaam op de grond gelegd en zij waren dus aan het overleggen wat ze zouden doen, op welk tijdstip de rouwdienst zou beginnen en zo meer. Eén van de dames, die in India een welbekende persoon is, zei dat het niet voor twaalf uur zou mogen gebeuren. Ik vroeg waarom en zij zei: “Omdat ik wit zal moeten dragen (dat is zo) en ik zal naar de bank moeten gaan om mijn diamanten te halen om te passen bij de witte sari.” Ik zei: “Wat is dit allemaal?”
 
 Zo'n sterk materialisme! Zo ver gaat het. We verwijderen ons van onze gevoelens, van onze werkelijke gevoelens, die er de hele tijd zijn.
 
@@ -103,7 +103,7 @@ Je mag er niet aan denken. Zij zijn er de hele tijd, maar moet je er over nadenk
 
 Het is meer zoals een kinderlijk, eenvoudig en onschuldig gedrag.
 
-Door Shri Krishna werd het idee van de zuivere vreugde, nirmalananda, geïntroduceerd en dit bracht de mensen in Indik een hele verademing, want tot hiertoe hadden zij Shri Rama gevolgd (...)
+Door Shri Krishna werd het idee van de zuivere vreugde, nirmalananda, geïntroduceerd en dit bracht de mensen in Indik een hele verademing, want tot hiertoe hadden zij Shri Rama gevolgd (...)
 
 Maar dan kwam de losbandigheid. Het probleem is dat als je ze strikt maakt, ze als opgesteven klederen worden die je niet kan dragen. Of als je ze vrij laat en zegt: “Je moet vreugde beleven, vreugde, doe wat je wil, het is toegestaan, doe wat je wil.” Als je hen toelaat te doen wat ze willen, beginnen ze allerlei dingen te doen.
 
@@ -115,7 +115,7 @@ Ik denk dat dit gebeurde omdat de dichters en kunstenaars in die tijd leden aan 
 
 Soms voel ik aan dat de mensen Shri Krishna niet begrepen hadden. Maar er bestaat een mooi verhaal over hem en zijn vrouwen.
 
-Hij had veel vrouwen en dit is weer een controversieel element. Hij had veel vrouwen, want zij waren de zestienduizend krachten van Shri Krishna die waren geïncarneerd en door een koning waren gevangengenomen en vastgehouden. Hij moest hen dus bevrijden en dat gebeurde. Hoe moesten zij nu met Shri Krishna leven?
+Hij had veel vrouwen en dit is weer een controversieel element. Hij had veel vrouwen, want zij waren de zestienduizend krachten van Shri Krishna die waren geïncarneerd en door een koning waren gevangengenomen en vastgehouden. Hij moest hen dus bevrijden en dat gebeurde. Hoe moesten zij nu met Shri Krishna leven?
 
 Hij was een jonge man, dus huwde hij ze allemaal. Dat was ook het geval met Mohammed, hij huwde ze alle zestien, zij waren zijn krachten. Wat hadden de mensen gedacht als hij deze zestienduizend vrouwen bij zich zou houden zoals een harem? Dus huwde hij hen.
 
@@ -127,17 +127,17 @@ En de rivier zakte en zij staken over. Dan gingen zij de heilige vereren en toen
 
 Dit is tekenend voor hun persoonlijkheid, zij zijn “abhogies”.
 
-Dat zij abhogies zijn, betekent dat zij er niet bij betrokken zijn, zij eten wel degelijk maar zij geven er niet om. Zij hebben niet dat gevoel van eten en voedsel nuttigen, van te genieten van het voedsel, niets van dat alles, zij eten gewoon. En deze heer met zijn zestienduizend en vijf vrouwen wordt een Brahmacharya genoemd, omdat zij er niet bij betrokken zijn, zij zijn in zo'n toestand. Hoe is het mogelijk dat men met zo'n grootse, zuivere persoonlijkheid als Shri Krishna, op zo'n manier deze romantische nonsens heeft gecreëerd.
+Dat zij abhogies zijn, betekent dat zij er niet bij betrokken zijn, zij eten wel degelijk maar zij geven er niet om. Zij hebben niet dat gevoel van eten en voedsel nuttigen, van te genieten van het voedsel, niets van dat alles, zij eten gewoon. En deze heer met zijn zestienduizend en vijf vrouwen wordt een Brahmacharya genoemd, omdat zij er niet bij betrokken zijn, zij zijn in zo'n toestand. Hoe is het mogelijk dat men met zo'n grootse, zuivere persoonlijkheid als Shri Krishna, op zo'n manier deze romantische nonsens heeft gecreëerd.
 
 Wat Amerika betreft, denk ik dat zij te ver zijn gegaan met hun vrijheid. Als mensen die Shri Krishna's zegeningen kregen, werden wij bevrijd van alle regels en wetten en werden wij ongeremd.
 
-Maar in Amerika werd het veel erger en niet alleen dat: maar de films die zij produceren zijn zeer gevaarlijke films die werkelijk de hele wereld schade toebrengen. Zij weten niet welke zonde zij begaan, want duizenden en duizenden mensen in de wereld hebben allerlei destructieve en vreselijke ideeën overgenomen. Freud is er uitgegooid, het is gedaan met hem, hij heeft reeds veel schade aangericht, maar wat gebeurt er nu met deze films? Zij oefenen een enorme indruk uit op onze Indische zaakvoerders en ik denk dat deze zaakvoerders de Indiërs naar de hel leiden. Het geheel is zo absurd en zo smerig.
+Maar in Amerika werd het veel erger en niet alleen dat: maar de films die zij produceren zijn zeer gevaarlijke films die werkelijk de hele wereld schade toebrengen. Zij weten niet welke zonde zij begaan, want duizenden en duizenden mensen in de wereld hebben allerlei destructieve en vreselijke ideeën overgenomen. Freud is er uitgegooid, het is gedaan met hem, hij heeft reeds veel schade aangericht, maar wat gebeurt er nu met deze films? Zij oefenen een enorme indruk uit op onze Indische zaakvoerders en ik denk dat deze zaakvoerders de Indiërs naar de hel leiden. Het geheel is zo absurd en zo smerig.
 
 Voor een Indische man is het werkelijk onvoorstelbaar. Het is zelfs zo erg geworden dat ik gemerkt heb dat zelfs Amerikanen het niet kunnen verdragen.
 
 Met deze vrijheid die we krijgen, zijn ook andere zaken van start gegaan. Stel je voor dat als Shri Krishna hier was, hij nooit olie op zijn hoofd had aangebracht, nooit zijn haar had gekamd want hij had zijn krullen kort moeten houden en hij had misschien wat rare Amerikaanse klederen gedragen, want anders besta je niet. Al die rotzooi heeft zich nu over de hele wereld verspreid, wordt in Moskou verkocht, wordt in alle ontwikkelingslanden verkocht. Wel gebeurde het dat de mensen die gewoonlijk tweedehands van de toeristen kochten, ermee stopten toen bekend werd dat zij aids hadden. Zij verspreiden overal aids en drugs. Het is een vernietigende kracht, een vernietigende kracht die zeer actief is in deze Kali Yuga en dus moeten er veel sahaja yogi's zijn om deze vernietigende kracht te bevechten. En als zij destructief zijn, denken ze dat zij niet hypocriet zijn en dit vinden zij een zeer grote kwaliteit.
 
-Met de hypocrisie kan je nog zeggen dat het bij enkele mensen blijft, maar als het een publieke zaak wordt, begint iedereen het te doen. Als je dan denkt aan de tijd waarin Shri Krishna leefde, hoe zij konden genieten van zo'n zuiver leven en hoe hij al deze demonen doodde, hoe mooi en hoe energetisch is dit dan niet! Maar hoeveel demonen zijn er vandaag in deze wereld? Is het er één? Zijn het er twee?
+Met de hypocrisie kan je nog zeggen dat het bij enkele mensen blijft, maar als het een publieke zaak wordt, begint iedereen het te doen. Als je dan denkt aan de tijd waarin Shri Krishna leefde, hoe zij konden genieten van zo'n zuiver leven en hoe hij al deze demonen doodde, hoe mooi en hoe energetisch is dit dan niet! Maar hoeveel demonen zijn er vandaag in deze wereld? Is het er één? Zijn het er twee?
 
 Zijn het er tien? Als de ene vernietigd is, komt de volgende op als een paddestoel. Als deze vernietigd is, komt de derde op als een paddestoel. En het meest vruchtbare land hiervoor is Amerika.
 

@@ -1,4 +1,4 @@
-Shri Ganesha Puja, Vorm één geheel, Cabella, Italië, 06/09/1998
+Shri Ganesha Puja, Vorm één geheel, Cabella, Italië, 06/09/1998
 
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
@@ -7,7 +7,7 @@ Vandaag vereren wij Shri Ganesha. Ik heb jullie al veel over hem en over zijn aa
 
 Het is dus belangrijk dat zuiverheid gerespecteerd, begrepen en verheerlijkt wordt. Deze gewoonte om het juiste protocol van de zuiverheid niet in 't oog te houden, ontwikkelt zich al vanaf de kindertijd. We moeten erg voorzichtig zijn als we de Ganesha-staat bereikt hebben. We zouden zo'n verschrikkelijke dingen niet tot ons mogen nemen.
 
-Ik weet niet vanwaar de mensen deze ideeën krijgen. Zoals je merkt, is er vandaag in de hele wereld een crisis van de zuiverheid.
+Ik weet niet vanwaar de mensen deze ideeën krijgen. Zoals je merkt, is er vandaag in de hele wereld een crisis van de zuiverheid.
 
 Vooral in het westen hoor je veel over gevaren van kindermisbruik. In een tempel van God zouden we zelfs de naam van deze vieze verlangens die bezit nemen van de mensen, niet mogen noemen.
 
@@ -23,7 +23,7 @@ Jullie houding ten opzichte van de zuiverheid is erg belangrijk.
 
 Het allerbelangrijkste is het volgende: als je zuiverheid vernietigd wordt, dan is Sahaja Yoga heel moeilijk. Het geeft je dan niet de zegeningen die je zou moeten hebben.
 
-Je zag gisteren de mensen van Roemenië en van Oekraïne. Ze zongen zo mooi omdat ze van nature zo'n nederige mensen zijn. Ze zijn nederig geworden, zo nederig zelfs dat ze alle domme ideeën betreffende seksleven en zo hebben opgegeven.
+Je zag gisteren de mensen van Roemenië en van Oekraïne. Ze zongen zo mooi omdat ze van nature zo'n nederige mensen zijn. Ze zijn nederig geworden, zo nederig zelfs dat ze alle domme ideeën betreffende seksleven en zo hebben opgegeven.
 
 De nederigheid zal je leren dat je niet voldoende zelfrespect bezit. In de Islam hechtte men een groot belang aan zuiverheid. Dat ging zelfs zo ver dat Mohammed Sahib zei dat je vijf of vier vrouwen mocht hebben, zolang die vrouwen maar geen prostituees waren.
 
@@ -43,7 +43,7 @@ Het geeft je wijsheid. En door deze wijsheid vind je oplossingen die vredevol zi
 
 Gisteren vertelde men mij dat er een wervelwind was en dat veel mensen last hadden met die wind omdat hij de tenten wegblies. Je hebt geen tenten nodig in dit klimaat. Waarom ook? Ik begrijp het niet. Ze kunnen niet zonder een tent leven, zie je. Ik kan heel goed buiten slapen, zelfs op straat.
 
-Het is niet nodig om je druk te maken over al deze dingen en je hele huishouden hierheen te slepen. We zouden niet bang mogen zijn van een beetje te weinig comfort. Als je een comfortabel leven wil leiden en veel comfort wil, dan ben je niet geschikt voor Sahaja Yoga. Vroeger gingen de mensen naar de Himalaya, stonden op één been en baden tot God en zij konden geen zelfrealisatie krijgen. Terwijl jullie allemaal je realisatie kregen... Men moet dus niet proberen te veeleisend te worden.
+Het is niet nodig om je druk te maken over al deze dingen en je hele huishouden hierheen te slepen. We zouden niet bang mogen zijn van een beetje te weinig comfort. Als je een comfortabel leven wil leiden en veel comfort wil, dan ben je niet geschikt voor Sahaja Yoga. Vroeger gingen de mensen naar de Himalaya, stonden op één been en baden tot God en zij konden geen zelfrealisatie krijgen. Terwijl jullie allemaal je realisatie kregen... Men moet dus niet proberen te veeleisend te worden.
 
 Het is niet nodig om je bezorgd te maken over comfort. Ik kan in comfort leven. Ik kan om het even waar leven, zelfs op mijn leeftijd.
 
@@ -61,7 +61,7 @@ Op dezelfde wijze wordt er een kind binnen in je geboren. En je begint je te ged
 
 Het leger van Shri Ganesha bestaat uit Gana's. Zij zijn erg krachtig. En zij doen al het werk van de wereld. Zij leven in deze wereld, maar al hun bron van energie komt van het Goddelijke.
 
-Shri Ganesha is de Omkara. Hij is de eerste van de Goden die door de Godin werd gecreëerd omdat hij voorspoed betekent. Voorspoed werd eerst gecreëerd voor ons welzijn. Wij zijn voorspoedig dank zij Shri Ganesha. Er zijn mensen die (in het huishouden) altijd problemen creëren. Zij creëren altijd problemen uit het niets.
+Shri Ganesha is de Omkara. Hij is de eerste van de Goden die door de Godin werd gecreëerd omdat hij voorspoed betekent. Voorspoed werd eerst gecreëerd voor ons welzijn. Wij zijn voorspoedig dank zij Shri Ganesha. Er zijn mensen die (in het huishouden) altijd problemen creëren. Zij creëren altijd problemen uit het niets.
 
 Zij zijn geen voorspoedige mensen. Diegenen die vredestichters zijn, diegenen die liefde geven, dit zijn diegenen die door Shri Ganesha gezegend worden. Welke wijsheid zit er in vechten? Je zou moeten proberen na te gaan welke wijsheid er in vechten zit. Waarom vechten we? Waarom? Voor kleine, kleine dingen? Dingen die je zelf kan veranderen? Waarom zou je dan vechten? Als je veel ruzie maakt, betekent dat dat Shri Ganesha tegen je is. Je Ganesha-principe slaapt dan. Zijn kracht zit niet in je. Er is geen wijsheid.
 
@@ -71,13 +71,13 @@ Ik vertelde jullie laatst dat jullie aandacht naar binnen gericht moet zijn en n
 
 Dat geeft hem vreugde. Dat is collectiviteit. Vandaag vertel ik jullie meer omtrent dit collectief karakter dat tot jullie komt door de inspanningen van Shri Ganesha of, laten we zeggen, door zijn krachten.
 
-lemand vertelde me dat Einstein ook al zo'n verhaal vertelde. Het is de ontdekking dat als we allemaal 'cool' worden door de zegeningen van Shri Ganesha, we dan allen één worden. Dat is zijn theorie. Maar wij hebben hier ook Phil Ward die bewees dat heliumgas en al de moleculen - of je kan ze atomen noemen - beginnen te bewegen op een collectieve manier als je rustig wordt. Anders slaan ze elkaar en bewegen van hier naar daar.
+lemand vertelde me dat Einstein ook al zo'n verhaal vertelde. Het is de ontdekking dat als we allemaal 'cool' worden door de zegeningen van Shri Ganesha, we dan allen één worden. Dat is zijn theorie. Maar wij hebben hier ook Phil Ward die bewees dat heliumgas en al de moleculen - of je kan ze atomen noemen - beginnen te bewegen op een collectieve manier als je rustig wordt. Anders slaan ze elkaar en bewegen van hier naar daar.
 
 Het gaat net zo als we de zegeningen van Shri Ganesha in ons hebben,
 
-in de echte betekenis van het woord, met onze wijsheid: dan worden we sterk ontwikkelde Sahaja yogi's. Dat betekent dat ontwikkelde Sahaja yogi's één geworden zijn. Wat betekent dat 'één'? 'Eén' wil zeggen dat ze allemaal voor elkaar leven. Ze genieten van elkaar.
+in de echte betekenis van het woord, met onze wijsheid: dan worden we sterk ontwikkelde Sahaja yogi's. Dat betekent dat ontwikkelde Sahaja yogi's één geworden zijn. Wat betekent dat 'één'? 'Eén' wil zeggen dat ze allemaal voor elkaar leven. Ze genieten van elkaar.
 
-Ze zien wat goed is voor anderen. Bijvoorbeeld : mensen die heel rijk zijn, mensen die heel arm zijn, mensen die ziek zijn, die gezond zijn, allen verenigen zich samen tot één geheel. Dat wordt in het Sanskriet 'Ekakarita' genoemd. Zij worden één.
+Ze zien wat goed is voor anderen. Bijvoorbeeld : mensen die heel rijk zijn, mensen die heel arm zijn, mensen die ziek zijn, die gezond zijn, allen verenigen zich samen tot één geheel. Dat wordt in het Sanskriet 'Ekakarita' genoemd. Zij worden één.
 
 En deze eenheid uit zich in jullie vieringen.
 
@@ -85,7 +85,7 @@ Jullie zijn allen naar hier gekomen, en jullie proberen elkaar de hele tijd te h
 
 Ze willen niemand kwetsen. Integendeel, ze willen behulpzaam zijn voor mekaar. Ze zijn gevoelig met mekaar. De meeste van jullie leiders die ik gekozen heb, zijn erg wijs. Zij vermijden problemen en geraken niet in paniek. Ik zou zeggen de meesten van hen... Zelfs wanneer jullie proberen Sahaja Yoga te vernietigen, weten ze dat jullie het doen.
 
-Om deze Ekakarita te ontdekken moet je diep in jezelf gaan zodat je voelt dat je allemaal één bent. Of je nu hier bent of je bent in Japan of in Amerika, overal... Jullie denken allemaal op dezelfde manier.
+Om deze Ekakarita te ontdekken moet je diep in jezelf gaan zodat je voelt dat je allemaal één bent. Of je nu hier bent of je bent in Japan of in Amerika, overal... Jullie denken allemaal op dezelfde manier.
 
 Jullie hebben allen hetzelfde doel. Jullie proberen allemaal volgens dezelfde stijl te leven.
 
@@ -103,19 +103,19 @@ Maar ik vond dat de mensen van Jeruzalem nog collectiever waren, omdat ze naar E
 
 Ik was verrast. Hoe konden ze naar hier komen?
 
-Alleen om vriendschap te sluiten! Zij zijn moslims. Wij willen vrienden maken. Dus vrienden maken zonder terughoudendheid, zonder winstbejag is één van de tekenen van jullie Ekakarita.
+Alleen om vriendschap te sluiten! Zij zijn moslims. Wij willen vrienden maken. Dus vrienden maken zonder terughoudendheid, zonder winstbejag is één van de tekenen van jullie Ekakarita.
 
 Niet alleen voel je je goed met andere Sahaja yogi's, maar je wil ook anderen in Sahaja Yoga brengen. Zovelen hebben dat al gedaan. Dit is iets zeer voedend omdat je verlicht bent en je geeft verlichting aan iemand anders. Dat schenkt zoveel vreugde. Als je iemand zijn zelfrealisatie geeft, dan voel je je heel gelukkig. Zovelen schrijven me: nu hebben we dertig personen, twintig personen. Ze voelen zich heel gelukkig dat ze zo veel Sahaja yogi's hebben.
 
-Als je dit doet, mag je geen ego ontwikkelen, want dan ga je weer tegen Shri Ganesha in, omdat Christus daar niet van houdt. Hij houdt niet van egoïstische mensen. En hij is Shri Ganesha. Hij houdt niet van mensen die vanuit hun ego hun eigen organisatie willen creëren en anderen proberen te domineren.
+Als je dit doet, mag je geen ego ontwikkelen, want dan ga je weer tegen Shri Ganesha in, omdat Christus daar niet van houdt. Hij houdt niet van egoïstische mensen. En hij is Shri Ganesha. Hij houdt niet van mensen die vanuit hun ego hun eigen organisatie willen creëren en anderen proberen te domineren.
 
 Van dit soort mensen houden zij niet. Ze zijn beiden dezelfden.
 
 Er is een complete Ekakarita tussen hen. Op dezelfde manier ontwikkelen wij ook deze speciale kwaliteit van Ekakarita. We vergeten de zogezegde godsdiensten. We hebben gemerkt hoe vele van hen vechten. Al de godsdiensten vechten onder mekaar. Zij zijn oneerlijk.
 
-Zij doen allerlei verkeerde dingen. Jullie weten dat heel goed. Elke dag staat het in de kranten, hoor je wat ze verkeerd doen. Ze hebben een beetje succes, maar niet voor lange tijd omdat ze ontmaskerd zullen worden. Dit is de tijd van de ontmaskering. Ze zullen het grote terrein waarop ze werken, verliezen. AI deze valse ideeën over superioriteit van elke godsdienst zullen moeten verdwijnen. Hoe kan eender welke godsdienst superieur zijn ten opzichte van een andere die gecreëerd is door de voorspoed brengende kracht van Shri Ganesha?
+Zij doen allerlei verkeerde dingen. Jullie weten dat heel goed. Elke dag staat het in de kranten, hoor je wat ze verkeerd doen. Ze hebben een beetje succes, maar niet voor lange tijd omdat ze ontmaskerd zullen worden. Dit is de tijd van de ontmaskering. Ze zullen het grote terrein waarop ze werken, verliezen. AI deze valse ideeën over superioriteit van elke godsdienst zullen moeten verdwijnen. Hoe kan eender welke godsdienst superieur zijn ten opzichte van een andere die gecreëerd is door de voorspoed brengende kracht van Shri Ganesha?
 
-Het is helemaal niet voorspoedig dat je vecht met een andere religie, dat je vecht onder elkaar. Hebzucht! Of dat je zegt dat dit ras minderwaardig is of dat we een hoger ras zijn.. Deze valse ideeën verdwijnen omdat ze voor problemen zorgden. In Amerika frustreerden ze bijvoorbeeld de zwarten. Nu geven de zwarten de blanken een lesje. Er is daar heel wat opschudding gaande.
+Het is helemaal niet voorspoedig dat je vecht met een andere religie, dat je vecht onder elkaar. Hebzucht! Of dat je zegt dat dit ras minderwaardig is of dat we een hoger ras zijn.. Deze valse ideeën verdwijnen omdat ze voor problemen zorgden. In Amerika frustreerden ze bijvoorbeeld de zwarten. Nu geven de zwarten de blanken een lesje. Er is daar heel wat opschudding gaande.
 
 Ook in India hadden we mensen die 'onaanraakbaren' werden genoemd. Zij werden gefolterd, zij kregen problemen.
 
@@ -127,7 +127,7 @@ Eens je dat begint te begrijpen, verspreidt deze Ekakarita zich naar buiten toe.
 
 Nee, het is van binnenuit dat je het doet. Deze Ekakarita moet eerst in de familie werken. Dat is erg belangrijk. Een gezin dat altijd verstoord wordt, kan geen kinderen voortbrengen die in deze toestand van Ekakarita zijn. Daarom zeg ik hen ook altijd: maak geen ruzie.
 
-Als er in een gezin geruzied wordt, dan kunnen ze geen Sahaja yogi's zijn. Als er ruzie is in een familie, is het beter van uit zo'n familie te gaan. We staan echtscheiding toe. Eender welke man die met andere vrouwen flirt of verkeerde dingen doet, vragen we uit Sahaja Yoga te gaan. De reden is dat één rotte appel vele appels kan bederven.
+Als er in een gezin geruzied wordt, dan kunnen ze geen Sahaja yogi's zijn. Als er ruzie is in een familie, is het beter van uit zo'n familie te gaan. We staan echtscheiding toe. Eender welke man die met andere vrouwen flirt of verkeerde dingen doet, vragen we uit Sahaja Yoga te gaan. De reden is dat één rotte appel vele appels kan bederven.
 
 Zo een man of zo een vrouw moet volledig uit Sahaja Yoga gehouden worden zodat er betere familierelaties in Sahaja Yoga zijn. En dat is erg belangrijk in Sahaja Yoga. De familierelaties moeten absoluut perfect zijn. Ik begrijp het niet: als je niet kan genieten van het gezelschap van je vrouw, waarvan ga je dan in deze wereld genieten?
 
@@ -147,17 +147,17 @@ Het is dus heel belangrijk te begrijpen dat zo'n gevoel van, ik zou zeggen dat e
 
 Een soort gevoel om liefde te begrijpen is hen aangeboren.
 
-Het is heel moeilijk voor egoïstische mensen om liefde te begrijpen omdat zij van zichzelf houden. Zij houden niet van iemand anders. Als ze van iemand anders houden, is dat uit lust en hebzucht, misschien zelfs uit een soort van associatie (vergelijking). Maar liefde omwille van de liefde is alleen mogelijk als je Shri Ganesha volledig gezuiverd is. We zijn van zo ver gekomen. En we hebben zoveel Sahaja yogi's over heel de wereld. Ik moet wel zeggen dat ik hard gewerkt heb. Maar ook jullie steunden me. Ik ben jullie daar dankbaar voor.
+Het is heel moeilijk voor egoïstische mensen om liefde te begrijpen omdat zij van zichzelf houden. Zij houden niet van iemand anders. Als ze van iemand anders houden, is dat uit lust en hebzucht, misschien zelfs uit een soort van associatie (vergelijking). Maar liefde omwille van de liefde is alleen mogelijk als je Shri Ganesha volledig gezuiverd is. We zijn van zo ver gekomen. En we hebben zoveel Sahaja yogi's over heel de wereld. Ik moet wel zeggen dat ik hard gewerkt heb. Maar ook jullie steunden me. Ik ben jullie daar dankbaar voor.
 
-Het is niet mogelijk in deze Westerse wereld, vooral daar waar er geen aandacht is voor het Shri Ganesha-principe dat jullie naar buiten moeten treden zodat.......... en Sahaja Yoga accepteren als een leven voor jezelf. Het belangrijkste in Sahaja Yoga is dat je Shri Ganesha van binnenuit vereert. De kwaliteit van Shri Ganesha is erg verzachtend, is vrede gevend, is een veilige, veiligheid creërende kracht. Als je Shri Ganesha in orde is, kan niemand je raken. Niemand kan je vernietigen, niemand kan je verstoren, omdat Hij diegene is die vrede geeft.
+Het is niet mogelijk in deze Westerse wereld, vooral daar waar er geen aandacht is voor het Shri Ganesha-principe dat jullie naar buiten moeten treden zodat.......... en Sahaja Yoga accepteren als een leven voor jezelf. Het belangrijkste in Sahaja Yoga is dat je Shri Ganesha van binnenuit vereert. De kwaliteit van Shri Ganesha is erg verzachtend, is vrede gevend, is een veilige, veiligheid creërende kracht. Als je Shri Ganesha in orde is, kan niemand je raken. Niemand kan je vernietigen, niemand kan je verstoren, omdat Hij diegene is die vrede geeft.
 
-De wereldvrede is verstoord omdat we Shri Ganesha niet geëerbiedigd hebben. Ik heb mensen gekend die een hoge positie hebben, die aan het hoofd staan van het leger, die aan het hoofd staan van dit of dat, maar die zich niet verantwoordelijk voelen voor zichzelf. Hun Shri Ganesha is totaal geruïneerd en kapotgemaakt.
+De wereldvrede is verstoord omdat we Shri Ganesha niet geëerbiedigd hebben. Ik heb mensen gekend die een hoge positie hebben, die aan het hoofd staan van het leger, die aan het hoofd staan van dit of dat, maar die zich niet verantwoordelijk voelen voor zichzelf. Hun Shri Ganesha is totaal geruïneerd en kapotgemaakt.
 
 AI deze mensen zijn heersers over landen en de mensen moeten hen volgen op hun manier. Zelfs al doen ze dingen in het geheim, het is niet erg. De mensen weten dit.
 
 Want als je de kracht verliest die spirituele voorspoed brengt (auspiciousness), dan komt de hele wereld dat te weten.
 
-Op de één of andere manier zal alles naar buiten komen omdat het Satya Yuga-tijdperk nu aangebroken is.
+Op de één of andere manier zal alles naar buiten komen omdat het Satya Yuga-tijdperk nu aangebroken is.
 
 In deze nieuwe Yuga is het licht van de waarheid in ons. En deze waarheid kan alle onnozele dingen die we gedaan hebben, onthullen.
 
@@ -169,9 +169,9 @@ Laat ons eens tonen dat als je Shri Ganesha en Jezus Christus volgt, dat je dan 
 
 Tegenwoordig zijn er mensen die verschrikkelijke boeken, verschrikkelijke dingen schrijven. Maar er zijn er ook die lieve dingen proberen te schrijven over het Shri Ganesha-principe, over het begrijpen van het principe van "auspiciousness" (spirituele groeikracht), erg lief ik heb het al gemerkt.
 
-Enkele mensen hebben heel lieve verhalen over hem geschreven. Het gaat niet alleen om liefdesverhalen. Tot op een bepaald moment schreven ze liefdesverhalen, liefdesverhalen, liefdesverhalen..... Nu moet er iets méér komen.
+Enkele mensen hebben heel lieve verhalen over hem geschreven. Het gaat niet alleen om liefdesverhalen. Tot op een bepaald moment schreven ze liefdesverhalen, liefdesverhalen, liefdesverhalen..... Nu moet er iets méér komen.
 
-En dit méér is het Shri Ganesha-principe dat totale vrede, volledige vreugde en begrijpen van liefde is. De waarde van de zuivere liefde van het geven en ook het ontvangen. Eenieder die je zuivere liefde geeft, moet op de juiste manier begrepen worden.
+En dit méér is het Shri Ganesha-principe dat totale vrede, volledige vreugde en begrijpen van liefde is. De waarde van de zuivere liefde van het geven en ook het ontvangen. Eenieder die je zuivere liefde geeft, moet op de juiste manier begrepen worden.
 
 Ik weet dat Shri Ganesha gisteren wat kwaad werd. Ik weet niet waarom Hij zo was, maar men moet begrijpen dat ertussen ons sommigen zijn die het principe van Shri Ganesha niet volgen. Dat is de reden waarom deze problemen er zijn.
 
@@ -179,17 +179,17 @@ Als je met een eerlijk hart en met een eerlijke geest de zegeningen van Shri Gan
 
 Christus zei dat jullie zullen worden vergeven. Maar Shri Ganesha probeert van de mensen op een bepaald punt te straffen als
 
-Hij ziet dat hen vergiffenis wordt geschonken. Dat is het grenspunt waar Hij denkt dat het niet goed is van zo iemand te vergeven. Maar voor Christus is het in orde van te vergeven. Shri Ganesha echter moet die persoon ontmaskeren en straffen. Je moet dus beseffen dat Jezus Christus heel groot is, want Hij geeft ons de kracht van de vergiffenis en Shri Ganesha is zo krachtig omdat Hij ons vermogen tot vergeven beperkt. Hij kan éénieder vergeven. Je mag zeggen dat je wil vergeven, maar we weten niet of Shri Ganesha dat toelaat. En Christus accepteert het. Ze zijn hetzelfde. Ze zijn zoals de twee helften van een munt.
+Hij ziet dat hen vergiffenis wordt geschonken. Dat is het grenspunt waar Hij denkt dat het niet goed is van zo iemand te vergeven. Maar voor Christus is het in orde van te vergeven. Shri Ganesha echter moet die persoon ontmaskeren en straffen. Je moet dus beseffen dat Jezus Christus heel groot is, want Hij geeft ons de kracht van de vergiffenis en Shri Ganesha is zo krachtig omdat Hij ons vermogen tot vergeven beperkt. Hij kan éénieder vergeven. Je mag zeggen dat je wil vergeven, maar we weten niet of Shri Ganesha dat toelaat. En Christus accepteert het. Ze zijn hetzelfde. Ze zijn zoals de twee helften van een munt.
 
 We mogen niet te veel rekenen op de kracht tot vergeven van Christus, omdat Shri Ganesha altijd daar zit.
 
-En zoals je gezien hebt, heeft hij in zijn hand een heel krachtig wapen. Hij is degene die enkel vrede en koelte is. Hij geeft je koelte na je zelfrealisatie. Je krijgt de koele bries door Shri Ganesha, omdat het ongetwijfeld Brahmachaitanya is. Diegene die dit uitstraalt, is Shri Ganesha. Hij brengt je tot rust. Hij brengt je tot rust, tot een erg koele, tevreden en heel rustige persoon. Door deze rust worden jullie allen één, wordt deze Ekakarita gevestigd, wordt de eenheid gevestigd. In welk land je ook gelooft, op welk land je ook fier bent, je zal de slechte dingen van het land zien en je zal proberen deze te verbeteren.
+En zoals je gezien hebt, heeft hij in zijn hand een heel krachtig wapen. Hij is degene die enkel vrede en koelte is. Hij geeft je koelte na je zelfrealisatie. Je krijgt de koele bries door Shri Ganesha, omdat het ongetwijfeld Brahmachaitanya is. Diegene die dit uitstraalt, is Shri Ganesha. Hij brengt je tot rust. Hij brengt je tot rust, tot een erg koele, tevreden en heel rustige persoon. Door deze rust worden jullie allen één, wordt deze Ekakarita gevestigd, wordt de eenheid gevestigd. In welk land je ook gelooft, op welk land je ook fier bent, je zal de slechte dingen van het land zien en je zal proberen deze te verbeteren.
 
-Je zal je niet met het slechte identificeren. En dat is één van de grootste dingen in deze Satya Yuga. Het ontmaskert je. En je steunt niet iets dat verkeerd is, iets dat voortkomt uit agressie. Je accepteert het niet. En vanaf het moment dat je het niet meer accepteert, word je één met de mensen die één zijn met jou. Zij geloven in dezelfde dingen.
+Je zal je niet met het slechte identificeren. En dat is één van de grootste dingen in deze Satya Yuga. Het ontmaskert je. En je steunt niet iets dat verkeerd is, iets dat voortkomt uit agressie. Je accepteert het niet. En vanaf het moment dat je het niet meer accepteert, word je één met de mensen die één zijn met jou. Zij geloven in dezelfde dingen.
 
-Hun ideeën zijn dezelfde. Hun denken, hun vreugde is hetzelfde. En ze genieten zeer veel van elkaar. Zij worden één en deze eenheid moet zich volledig in Sahaja Yoga vestigen. Diegenen die geïnteresseerd zijn in het verdienen van geld, diegenen die geïnteresseerd zijn in het bijeenkrijgen van een menigte, in iets van een laag niveau, kunnen het niet. Diegenen die in Sahaja Yoga komen om voor zichzelf een vrouw of een man te vinden, zijn daar geen deel van.
+Hun ideeën zijn dezelfde. Hun denken, hun vreugde is hetzelfde. En ze genieten zeer veel van elkaar. Zij worden één en deze eenheid moet zich volledig in Sahaja Yoga vestigen. Diegenen die geïnteresseerd zijn in het verdienen van geld, diegenen die geïnteresseerd zijn in het bijeenkrijgen van een menigte, in iets van een laag niveau, kunnen het niet. Diegenen die in Sahaja Yoga komen om voor zichzelf een vrouw of een man te vinden, zijn daar geen deel van.
 
-Deze spiritualiteit groeit vanuit nederigheid. En de nederigheid van Ganesha wordt verhaald in één van zijn ondernemingen. Zijn moeder zei dat diegene die drie keer rond de wereld zou kunnen gaan, een geschenk van haar kreeg. Shri Ganesha dacht: " Wie is groter dan mijn Moeder? Niet deze aarde." Hij had een kleine rat op wie Hij reed. Dit toont aan dat hij nederig is. Hij kon zich verplaatsen op een rat. Er was geen druk op de rat.
+Deze spiritualiteit groeit vanuit nederigheid. En de nederigheid van Ganesha wordt verhaald in één van zijn ondernemingen. Zijn moeder zei dat diegene die drie keer rond de wereld zou kunnen gaan, een geschenk van haar kreeg. Shri Ganesha dacht: " Wie is groter dan mijn Moeder? Niet deze aarde." Hij had een kleine rat op wie Hij reed. Dit toont aan dat hij nederig is. Hij kon zich verplaatsen op een rat. Er was geen druk op de rat.
 
 Zijn broer Kartikeya had een pauw en die kon vliegen.
 
@@ -207,7 +207,7 @@ Ik hou niet van mensen die mij brieven schrijven tegen de leider, tegen deze of 
 
 Met je vergevingsgezindheid en je gevoel voor zuiverheid zullen al de dingen wel uitwerken. Deze exclusiviteit moet worden opgegeven. Misschien is deze exclusiviteit het gevolg van een gevoel van onveiligheid. Het is Shri Ganesha die een verkeerd type van mensen eruit probeert te krijgen. Heb dus geen angst voor hen.
 
-Maak geen ruzie met hen. Probeer één te zijn. Probeer meer mensen naar je toe te trekken. Probeer ze erbij te houden. Probeer ze te begeleiden, houd een oogje in het zeil.
+Maak geen ruzie met hen. Probeer één te zijn. Probeer meer mensen naar je toe te trekken. Probeer ze erbij te houden. Probeer ze te begeleiden, houd een oogje in het zeil.
 
 Ik hoop dat je nu zal mediteren en dat je Ganesha-kwaliteit zich ontwikkelt.
 

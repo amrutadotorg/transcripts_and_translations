@@ -1,0 +1,20 @@
+Sahasrara Puja - Je bent in Mijn kosmisch lichaam - Thredbo, Australië - 03/05/1987
+
+Translation not verified. Dear yogi, register as volunteer to do so.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+
+Zoals een waterkruik in de Ganges-rivier, zijn jullie als een cel in het lichaam van Adi Shakti waar jullie wezen, jullie persoonlijkheid wordt bewaard. Desondanks voelen jullie de Brahmachaitanya door middel van jullie zintuigen, en kunnen jullie realisatie geven aan anderen. Maar jullie zijn in het lichaam van Adi Shakti, en zolang jullie in het lichaam van Adi Shakti zijn, kunnen jullie dit allemaal doen. Dit is de grootste verwezenlijking ooit, heel de Sahasrara werd geopend met de zeven pitha’s van al de godheden die daar allen onderdeel van waren. Het geheel kwam in de vorm van jullie Moeder, die nederig is, misleidend, ongrijpbaar, die Mahamaya is.
+
+Nu zijn er zovelen van jullie in Mijn lichaam, snel ronddraaiend, stel je voor, en de meesten vechten om in Mijn hart te komen, maar ze nestelen zich in Mijn ego. Welnu, Ik ben zonder ego, omdat Ik geen reacties heb, en als je geen reacties hebt, ben je zonder ego. Ik reageer niet. Ik ben zonder reacties. Ik tracht in Mijn eigen vrede en heerlijkheid het werk te doen van Sahaja Yoga. Ik reageer op niets. Maar jullie reacties verstoren Mij soms omdat jullie in Mij zijn.
+
+De hele Brahmachaitanya, de hele oceaan heeft de vorm aangenomen van een wolk, dat is de Adi Shakti, en is op deze aarde gekomen om Haar Chaitanya te laten stromen over de mensen. Om jullie te verrijken, te voeden, te ontwikkelen, door Haar liefde zo te manifesteren dat jullie werden opgenomen in het lichaam van Adi Shakti.
+
+Dit moet beschouwd worden als de grootste verwezenlijking, dat de Sahasrara door Mij werd geopend. Natuurlijk ben Ik de Meester van Sahasrara, Ik ben de Meester van al de chakra’s. Maar ook ben Ik verheven aan de Sahasrara, Ik ga Hem ver voorbij.
+
+Zoals de situatie is, zouden jullie zorgzaam moeten zijn voor jullie Sahasrara. Het is Mij. En verzorg ook jullie hart, dat de Brahmarandhra-pitha is hier, dat zich uiteindelijk opent als jullie je realisatie krijgen. Sahaja Yoga verspreidt zich overal horizontaal, verticaal moet het zich ook verspreiden. En daar, als jullie werkelijk begrijpen wie Ik ben, zou jullie Sahasrara absoluut klaar en duidelijk moeten worden. Om jullie Sahasrara helder te houden, moeten jullie luisteren naar alle zaken die Ik jullie verteld heb, en hen gehoorzamen als absoluut gewijde zaken.
+
+Wanneer we klein waren, werd ons in India verteld, dat wanneer er iemand iets vergeet in ons huis, we het moeten bewaren en het teruggeven. Maar zelfs wanneer je een diamand verliest bij iemand dan vraag je daar nooit naar. Dat zijn geen goede manieren. Het meest kostbare is niet de diamant maar de relatie, het zijn de vriendschap en de gevoelens van deze persoon die we respecteren. Het zou een religieuze plicht moeten zijn dat jullie luisteren naar Mij, naar al wat Ik zeg, eigenlijk horen jullie Mij te gehoorzamen. Mijn handen gehoorzamen Mij, Mijn vingers gehoorzamen Mij, Mijn voeten gehoorzamen Mij. Hoe zit dat met jullie? Jullie die omhoog gebracht werden tot de grote waardigheid en de hoge positie van Yogi te zijn in het lichaam van de Adi Shakti, en jullie die functioneren als cellen in Mijn lichaam.
+
+De Sahasrara schoon houden is jullie hart openen. Als jullie hart niet open is, hoe kan Ik het dan vullen met Mijn liefde. Open je hart voor jullie vrienden Sahaja yogi's en yogini’s. Maak je geen zorgen over wat er gebeurde in het verleden. Maak je geen zorgen om wat er gebeurde in jullie leven wat betreft jullie relaties.
+
+Deze zaken zullen niet gebeuren in Sahaja Yoga. Zij kunnen niet gebeuren. Er werd voor gezorgd, het kan niet gebeuren. Als deze hand pijn doet, is de andere hand daar om hem te verzorgen. Jullie zijn niet alleen, jullie zijn in het lichaam van het Collectieve Wezen.

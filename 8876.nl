@@ -2,16 +2,15 @@ Shri Mataji Nirmala Devi
 
 Guru Puja
 
-Cabella Ligure, Italië
+Cabella Ligure, Italië
 
 20 juli 2008
 
-Engelse transcriptie: ISDP verified
-Nederlands: eindversie 06/01/2009
+Engelse transcriptie: ISDP verified Nederlands: eindversie 06/01/2009
 
-Het is vandaag een grote dag voor alle Sahaja yogi's; omdat de Sahasrara in jullie geopend is, konden jullie het bestaan van God voelen. Verklaren dat God bestaat, was niet voldoende, en ook verklaren dat er geen God is, is verkeerd, helemaal verkeerd en degenen die zo spraken hebben geleden. Pas nadat je je realisatie hebt, weet je dat God bestaat en dat er vibraties zijn. Dit is een grote doorbraak, over de hele wereld. Vandaag zeg ik: dit is waarom dit voor jullie één van de belangrijkste dagen is.
+Het is vandaag een grote dag voor alle Sahaja yogi's; omdat de Sahastrara in jullie geopend is, konden jullie het bestaan van God voelen. Verklaren dat God bestaat, was niet voldoende, en ook verklaren dat er geen God is, is verkeerd, helemaal verkeerd en degenen die zo spraken hebben geleden. Pas nadat je je realisatie hebt, weet je dat God bestaat en dat er vibraties zijn. Dit is een grote doorbraak, over de hele wereld. Vandaag zeg ik: dit is waarom dit voor jullie één van de belangrijkste dagen is.
 
-Velen onder jullie hebben de koele bries gevoeld op de handen en uit het hoofd. Sommigen zijn gegroeid in Sahaja Yoga, sommigen niet. Sommigen hebben nog steeds hun oude blokkages. Maar nu moet ik zeggen dat vrij velen onder jullie guru's, leraars, kunnen worden, en je moet je als leraars gedragen. Om als leraar op te treden moet je Sahaja Yoga kennen, zowel de theorie als de praktijk, zeer grondig, en dan kan je een guru worden. Het vergt verantwoordelijkheid, veel inzicht, om guru te zijn. Ten eerste zou je geen ego mogen hebben; geen enkele van je chakra's mag nog geblokkeerd zijn; je zou elk moment absoluut zuiver moeten zijn en de vibraties moeten stromen in je beide handen. Als ze in één hand stromen en niet in de andere, kan je geen guru worden. Je moet dus een perfecte Sahaja yogi zijn. Alleen dan kan je een guru zijn, en zovelen onder jullie kunnen het, maar je moet eerst nagaan: ben je bekwaam om een guru te zijn of niet.
+Velen onder jullie hebben de koele bries gevoeld op de handen en uit het hoofd. Sommigen zijn gegroeid in Sahaja Yoga, sommigen niet. Sommigen hebben nog steeds hun oude blokkages. Maar nu moet ik zeggen dat vrij velen onder jullie guru's, leraars, kunnen worden, en je moet je als leraars gedragen. Om als leraar op te treden moet je Sahaja Yoga kennen, zowel de theorie als de praktijk, zeer grondig, en dan kan je een guru worden. Het vergt verantwoordelijkheid, veel inzicht, om guru te zijn. Ten eerste zou je geen ego mogen hebben; geen enkele van je chakra's mag nog geblokkeerd zijn; je zou elk moment absoluut zuiver moeten zijn en de vibraties moeten stromen in je beide handen. Als ze in één hand stromen en niet in de andere, kan je geen guru worden. Je moet dus een perfecte Sahaja yogi zijn. Alleen dan kan je een guru zijn, en zovelen onder jullie kunnen het, maar je moet eerst nagaan: ben je bekwaam om een guru te zijn of niet.
 
 Met bescheidenheid zal je het begrijpen. Degenen die denken dat ze guru's kunnen zijn, moeten guru's worden omdat ik nu niet meer van hier naar daar kan reizen en jullie moeten mijn werk doen: mensen realisatie geven. Maar je moet in staat zijn en masse realisatie te geven, alleen dan kan je een guru zijn. Wanneer je en masse realisatie kan geven, zou je een guru kunnen zijn. Je kan mijn foto gebruiken, maar de realisatie zou niet van de foto, maar van jou moeten komen. Alleen dan kan je een guru zijn. Zowel vrouwen als mannen, beiden kunnen guru's worden en Sahaja Yoga overal verspreiden.
 
@@ -31,7 +30,7 @@ Als er veel bezeten mensen zijn die proberen guru te worden, kan dat niet. Je mo
 
 Ik wil het niemand individueel vertellen maar jullie kunnen het allemaal ontdekken. Zo kunnen er bv. vier of vijf personen samenkomen en ze kunnen bij elkaar onderzoeken of ze in orde zijn of niet, of er iets ontbreekt, of er een blokkage is. Maar als zij zo besluiten dat je in orde bent, dan kan je guru worden en kan je Sahaja Yoga preken. Dit is jouw verantwoordelijkheid. Zo zal Sahaja Yoga groeien. Anders, nadat ik mij terugtrek of nergens meer heen ga, zal Sahaja Yoga verloren gaan. Het is aan jullie de fakkel, het licht, over te nemen, het is nu jullie verantwoordelijkheid. Jullie hebben je realisatie.
 
-Ik ben met de verantwoordelijkheid geboren, Ik ben met al het inzicht geboren. En nu kunnen ook jullie jezelf begrijpen. Veroordeel jezelf niet, wanneer je je eigen realisatie start, maar wees voorzichtig: word niet egoïstisch. Je moet zeer nederig zijn, zeer nederig tegen iedereen. En werk het uit omdat, als zij geen gerealiseerde zielen zijn, jij hen niet moet veroordelen, maar hen zeer geduldig en zacht moet vertellen dat ze niet in orde zijn. Vertel ze hoe te mediteren, hoe te verbeteren.
+Ik ben met de verantwoordelijkheid geboren, Ik ben met al het inzicht geboren. En nu kunnen ook jullie jezelf begrijpen. Veroordeel jezelf niet, wanneer je je eigen realisatie start, maar wees voorzichtig: word niet egoïstisch. Je moet zeer nederig zijn, zeer nederig tegen iedereen. En werk het uit omdat, als zij geen gerealiseerde zielen zijn, jij hen niet moet veroordelen, maar hen zeer geduldig en zacht moet vertellen dat ze niet in orde zijn. Vertel ze hoe te mediteren, hoe te verbeteren.
 
 Het is nu een grote verantwoordelijkheid. Eigenlijk heb ik dit werk gedaan en jij kan het ook. Jullie moeten dus allemaal een guru worden. Dit is de dag van 'Guru Purnima' en ik zegen jullie dat jullie allemaal guru's worden. Wat je nu ook hebt, verspil het niet. Gooi het niet weg, maar gebruik het voor de verbetering van mensen.
 
@@ -71,7 +70,7 @@ Beloof me allemaal dat je zal proberen guru's te worden. Ik heb jullie nooit om 
 
 Iets anders is, je zou hen niet mogen toestaan puja voor jou te doen. Tot je 300 Sahaja Yogi's gevestigd hebt kan je hen niet vragen puja te doen voor jou. Om te beginnen kan je mijn foto gebruiken voor de puja. Maar wees zeer voorzichtig omdat je nu krachten hebt en dit zou je ego kunnen opblazen. Misschien begin je te denken dat je indrukwekkend bent. Nee. Je moet de wereld redden. Dat is heel mijn werk, en ik zou je vragen me te schrijven in India als er zich problemen voordoen. Schrijf me ook hoe je Sahaja Yoga verspreidt, wat er gebeurt, ik zou het graag weten. Maar ik denk dat je begrijpt dat ik me nu moet terugtrekken. Ik kan niet reizen. Als je vragen hebt, vraag maar...
 
-Degenen die er vertrouwen in hebben dat ze guru's kunnen worden, steek je hand op. Oh, zo veel. Slechts één hand, geen twee.
+Degenen die er vertrouwen in hebben dat ze guru's kunnen worden, steek je hand op. Oh, zo veel. Slechts één hand, geen twee.
 
 Als er iemand geld verdient, zou je hem moeten zeggen dat niet te doen, en schrijf het ook aan mij. Om te beginnen kan je geen geld vragen, maar als je ongeveer 3000 personen hebt, kan je alle pujadagen vieren en vereren. Maar je moet elk minstens 3000 volgelingen maken, dan pas kan je een puja vragen.
 

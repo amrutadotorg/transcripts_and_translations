@@ -1,10 +1,9 @@
 Shri Mataji Nirmala Devi
 
- 
-
+ 
 Shri Bhairavanath Puja
 
-Garlate, Italië
+Garlate, Italië
 
 6 augustus 1989
 
@@ -17,7 +16,7 @@ Wanneer mensen bijvoorbeeld depressief zijn links vallen, dan probeert Hanumana 
 
 Zoals toen ik laatst naar Moskou ging. Er was een vrouw bij ons die een Sahaja yogini was, een linkse Sahaja yogini. Toen we ergens iets gingen eten begon het te regenen en konden ze geen taxi regelen, maar uiteindelijk kwam er een auto en gingen we erheen. En ze zeiden: “Omdat jullie erg laat zijn moeten jullie aan de andere kant zitten, en moeten jullie de duurdere plaatsen nemen.” Toen zei deze vrouw: “Wat een problemen: geen taxi, het regent en we hebben geen plaatsen meer.” Ik zei: “Maar het is toch leuk? Het is niet iets dat een probleem is.” Het woord 'probleem' zou je niet langer mogen gebruiken. Het is een nieuw woord dat ik heb geleerd, want vroeger, toen we jong waren, gebruikten we het woord 'problema' alleen in de meetkunde. Deze houding, deze negatieve houding waarmee we alles als negatief bekijken, is de manier waarop we echt onze linkerkant bederven. Maar toen kwam de man die ons had uitgenodigd en hij zei: “Wij zitten aan de andere kant te wachten op jullie.” Dus gingen we naar de andere kant, genoten van een heerlijke maaltijd en alles was in orde. Ik zei: “Nu zie je hoe je alleen telde hoeveel negatieve dingen er gebeurden, terwijl je er helemaal geen plezier aan beleefde.” Toen vroeg ze me: “Wat kan ik daaraan doen?” Ik zei: “Zeg de naam van Bhairava en zit met je linkerhand naar de foto gericht en je rechterhand op Moeder Aarde; zo zullen al je bhoots[4] van negativiteit weggaan.”
 
-Bhairava heeft altijd een licht in zijn hand, hij heeft altijd een licht in zijn hand. En hij gaat op en neer langs de Ida nadi om licht voor je te schijnen zodat je kunt zien dat er niets negatiefs is. Deze negativiteit bereikt ons op verschillende manieren. Eén van deze vormen van negativiteit is 'dit is van mij', zoals 'mijn kind, mijn man, mijn eigendom, mijn...' Zodra je eenmaal gehecht raakt op deze manier zie je dat je kinderen ook negatief worden. Maar als je positief wilt zijn, is dat heel gemakkelijk. En daarvoor moet je nagaan waar je aandacht is. Zie je alleen problemen, of zie je er ook het plezier van in? Er zijn mensen die nergens plezier aan kunnen beleven. Als het een zonnige dag is dan klagen ze: “O God, wat een zonnige dag...” en als het een bewolkte dag is dan zeggen ze: “O, wat een dag!” Niets kan hen tevreden stellen. Maar te genieten van het positieve in al het negatieve, is de eigenschap van een Sahaja yogi. Negativiteit bestaat niet – het is een vorm van onwetendheid. En het is zelfs geen onwetendheid, want onwetendheid bestaat ook niet. Als alles de allesdoordringende kracht is, hoe kan er dan onwetendheid zijn? Maar als je je in de plooien van deze kracht verbergt, als je ervan wegvlucht, dan zul je zeggen dat er negativiteit is. Het is alsof je jezelf in een grot verschuilt, hem helemaal afsluit en vervolgens zegt dat er geen zon is.
+Bhairava heeft altijd een licht in zijn hand, hij heeft altijd een licht in zijn hand. En hij gaat op en neer langs de Ida nadi om licht voor je te schijnen zodat je kunt zien dat er niets negatiefs is. Deze negativiteit bereikt ons op verschillende manieren. Eén van deze vormen van negativiteit is 'dit is van mij', zoals 'mijn kind, mijn man, mijn eigendom, mijn...' Zodra je eenmaal gehecht raakt op deze manier zie je dat je kinderen ook negatief worden. Maar als je positief wilt zijn, is dat heel gemakkelijk. En daarvoor moet je nagaan waar je aandacht is. Zie je alleen problemen, of zie je er ook het plezier van in? Er zijn mensen die nergens plezier aan kunnen beleven. Als het een zonnige dag is dan klagen ze: “O God, wat een zonnige dag...” en als het een bewolkte dag is dan zeggen ze: “O, wat een dag!” Niets kan hen tevreden stellen. Maar te genieten van het positieve in al het negatieve, is de eigenschap van een Sahaja yogi. Negativiteit bestaat niet – het is een vorm van onwetendheid. En het is zelfs geen onwetendheid, want onwetendheid bestaat ook niet. Als alles de allesdoordringende kracht is, hoe kan er dan onwetendheid zijn? Maar als je je in de plooien van deze kracht verbergt, als je ervan wegvlucht, dan zul je zeggen dat er negativiteit is. Het is alsof je jezelf in een grot verschuilt, hem helemaal afsluit en vervolgens zegt dat er geen zon is.
 
 Zij die niet collectief kunnen zijn, zijn dus ofwel rechts ofwel links – maar meestal eerder links. Maar linkse mensen kunnen wel collectief zijn in negativiteit. Er wordt gezegd dat er een grote broederschap van bhoots bestaat. Zo zie je enkele dronkaards bij elkaar zitten en ze zeggen: “Er zijn zoveel problemen, ecologische problemen...” Het zijn allemaal dronkaards, ze zijn allemaal dronken en ze klagen: “Er zijn zoveel andere problemen, wanneer zal het eindigen?”
 
@@ -35,7 +34,7 @@ Op een keer ging ik naar een psychiatrische inrichting, en toen ik daar kwam, on
 
 Er is teveel emotionele gehechtheid, emotioneel bezorgd zijn over iemand in de zin van: “Dit is mijn kind, dit is mijn ding,” enzovoort, en voortdurend je kostbare leven verspillen met dit soort toestanden, zo zou een Sahaja yogi niet mogen leven. Als een Sahaja yogi niet collectief kan worden, weet dan dat hij geen Sahaja yogi is.
 
-Je moet dus weten dat dit het werk van Bhairavanath is in ons. Een ander werk waarmee hij ons licht geeft in de duisternis is dat hij alle bhoots in ons vernietigt, en alle soorten bhootische ideeën en vreemde ideeën over gehechtheden, en ook depressiviteit.
+Je moet dus weten dat dit het werk van Bhairavanath is in ons. Een ander werk waarmee hij ons licht geeft in de duisternis is dat hij alle bhoots in ons vernietigt, en alle soorten bhootische ideeën en vreemde ideeën over gehechtheden, en ook depressiviteit.
 
 Vandaag ben ik dus heel blij dat we Shri Bhairava vereren, omdat hij heel nauw verbonden is met Shri Ganesha. Zoals je weet, zetelt Shri Ganesha in de Muladhara, terwijl Bhairava zich voortbeweegt in de linkerkant en naar de rechterkant gaat. Allerlei soorten conditioneringen en allerlei gewoonten kunnen worden overwonnen met de hulp van Bhairavanath.
 
@@ -43,25 +42,19 @@ In Nepal hebben we een reusachtig standbeeld van Bhairavanath, dat een echte swa
 
 Hij beschermt ons dus ook tegen het begaan van slechte daden; sluwe daden, zoals stelen. Alles wat we denken in het geheim te kunnen doen, kan verborgen worden, maar je kunt het niet verbergen voor Bhairavanath. Als je niet verandert dan ontmaskert hij je volledig. Zo heeft hij ook alle afschuwelijke valse guru's ontmaskerd.
 
-Dus vandaag zijn we hier om deze grote godheid Bhairavanatha te vereren, die uiteindelijk later ook op deze aarde incarneerde als Mahavira. Hij staat dus voor de poort van de hel en behoedt mensen ervoor in de hel terecht te komen. Maar als je naar de hel wílt gaan, als het je verlangen is en als je wilskracht erop gericht is om naar de hel te gaan dan zegt hij: “Goed dan, ga maar.” Maar zoals je weet is zelfs de hel nu vol mensen, dus het is beter dat we proberen onze negativiteit te bestrijden en dat we plezier maken, van anderen genieten, van anderen houden, zonder je druk te maken over wat anderen je aandoen, maar alleen te denken aan hoe je goed kunt doen voor anderen.
+Dus vandaag zijn we hier om deze grote godheid Bhairavanatha te vereren, die uiteindelijk later ook op deze aarde incarneerde als Mahavira. Hij staat dus voor de poort van de hel en behoedt mensen ervoor in de hel terecht te komen. Maar als je naar de hel wílt gaan, als het je verlangen is en als je wilskracht erop gericht is om naar de hel te gaan dan zegt hij: “Goed dan, ga maar.” Maar zoals je weet is zelfs de hel nu vol mensen, dus het is beter dat we proberen onze negativiteit te bestrijden en dat we plezier maken, van anderen genieten, van anderen houden, zonder je druk te maken over wat anderen je aandoen, maar alleen te denken aan hoe je goed kunt doen voor anderen.
 
 Vandaag offeren we dus deze speciale puja aan Bhairavanath zodat hij ons zin geeft om te lachen, te genieten en plezier te maken.
 
 Moge God jullie zegenen.
 
-
-
 [1] Ida nadi: linker energiekanaal; correspondeert met het (linker) sympathische zenuwstelsel. Kanaal van de emoties en het verleden.
 
+[2]  gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
 
-[2]  gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
-
-
-[3]  Ganapati: leider van de gana’s; Shri Ganesha
-
+[3]  Ganapati: leider van de gana’s; Shri Ganesha
 
 [4] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven; negativiteit die soms ons subtiele systeem binnendringt.
 
-
-[5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,…)
+[5] swayambhu: ‘dat wat gecreëerd werd door Moeder Aarde’; swayambu’s zijn stenen, rotsformaties en plaatsen die spontaan uit de aarde zijn voortgekomen en zeer sterke vibraties uitstralen (bv. Uluru, bepaalde (heilige) plaatsen in de Himalaya, Ganesha swayambu’s in India,...)
 
