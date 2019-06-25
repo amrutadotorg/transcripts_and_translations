@@ -1,10 +1,5 @@
-Shri Mataji Nirmala Devi
-
-Shri Mahavira Jayanti Puja
-
-Gidgegannup, Perth, Australië
-28 maart 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 14/09/2012
+Shri Mahavira Jayanti Puja - Gidgegannup, Perth, Australië - 28 maart 1991
+NlTVD2012-0914
 Vandaag zullen we de verjaardag van Mahavira vieren. Mahavira is de incarnatie van Bhairavanath, die jullie ook wel Sint Michaël noemen. Nu zijn er twee heiligen, zoals jullie weten: de ene is Gabriël of Hanumana en de andere is Sint Michaël. De één bevindt zich op de Pingala nadi[1] en de andere, Sint Michaël, op de Ida nadi[2].
 
 Dus, Mahavira moest een hele zoektocht ondergaan. Natuurlijk was hij een engel, maar hij kwam hier als mens en het was zijn taak om uit te zoeken hoe het zit met de linkerkant en hoe de linkerkant werkt. De linkerkant zit heel ingewikkeld in elkaar, veel ingewikkelder dan de rechterkant. Aan de linkerkant hebben we ook zeven nadi's[3], en deze zeven nadi's zijn boven elkaar gelegen. Ze staan beschreven in boeken, en men heeft hen verschillende namen gegeven.
@@ -298,8 +293,6 @@ Een yogini stelt een vraag over de zorg voor westerse tieners. Wat is er aan de 
 O, dank je. Twee, drie kinderen, wie is de jongste? Welke leeftijd heeft de jongste? Zij is de jongste. Wat is haar leeftijd? Elf. Ze is niet te jong. Ze kunnen alle drie gaan. Zij is groot voor haar leeftijd, en ze gedraagt zich heel goed. En hij is heel lang, nietwaar? Ze worden steeds groter en groter, is het niet? Wat is je lengte nu? Ben je al één meter vijftig, of zoiets? Je vader is lang, is het niet? Ja, dat is waar. Zou je graag naar India gaan? Goed. Mooi. Jullie zouden een school moeten zoeken. . . Dat vertelden ze me toen de kinderen... Ik zal een tijdlang niet naar India gaan, maar we kunnen een yogi vragen of hij kan regelen dat ze toegelaten worden in een goede school. In welke klas zit je? Elf. Op niveau O? Dat niveau moet je in ieder geval afmaken, vind ik. Anders zul je alleen maar. . . Je zit toch op niveau O, of niet? Op niveau A? Dus je hebt niveau A al gehad? Dan zit je op niveau O. Laat hem maar beter niveau O afmaken, dat is belangrijk. Gaat hij daarna naar de universiteit? Je kunt wel de toelating krijgen in een universiteit. Over een jaar. Hij kan in India naar een universiteit gaan. Hij kan kunst studeren, of zoiets, het maakt niet uit. Wil je met een computer werken? Wat doe je graag? Wat leer je nu vooral? Wiskunde, of niet? Je houdt niet van wiskunde. Wat nog meer? Biologie. Je hebt dus biologie. Hou je van biologie? Genetica. . . Goed, we zullen zorgen dat we een universiteit voor je vinden, in de richting die hij graag wil doen. Kan hij goed Engels? Wil je graag gaan schrijven? Zou je graag journalist worden? Denk er maar eens over na. En laat het ons maar weten. . Journalistiek kun je gemakkelijk studeren in India, als je dat wilt doen. Maar je zou zelfs toelating kunnen krijgen in genetica - probeer het maar. Dertien. In welke klas zit hij? Ja, hij kan daar naar school gaan. Nee, dat is in orde. Deze sjaal is wel goed. Zal het in april volgend jaar klaar zijn? Ik zal er zijn! Als je het hun leert dan kunnen ze het doen. En dit wordt er dan aan vastgemaakt, zodat je niets hoeft te doen.
 
 Zijn dat cementblokken? Wij hebben ook zoiets, maar in India zijn ze niet sterk. Maar deze kunnen twee verdiepingen dragen? Echt?
-
- 
 
 [1] Pingala nadi: rechter energiekanaal; correspondeert met het (rechter) sympathische zenuwstelsel. Kanaal van actie en toekomstgericht denken.
 
