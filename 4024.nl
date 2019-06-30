@@ -1,5 +1,7 @@
 Shri Vishnumaya Puja - “Voel je niet schuldig” - Everbeek, België - 4 juli 1992
 
+NlTVD 2015-0912 Eind versie
+
 Vandaag doet zich de unieke gelegenheid voor om een Vishnumaya Puja te houden, want zij heeft dit huis bezocht. We moeten haar vereren. Maar eerst moeten we weten wie Vishnumaya is. Het is heel belangrijk dit te weten, want in de Devi Mahatmyam wordt zij enkel beschreven als de incarnatie van de Godin.Men noemt haar Vishnumaya. Maar laten we eens kijken wie ze eigenlijk is, deze Vishnumaya.
 
 Vishnumaya is de Kali, zo kunnen we stellen, en de dochter van Mahakali. Zij kwam op deze aarde en doodde ontzettend veel duivels en vele rakshasa's[1], om de heiligen te verlossen van hun agressie. Zij handelt altijd op deze manier, om zo alle negativiteit in de wereld te vernietigen. Ze doet dit vliegensvlug, moet ik zeggen; ze weet waar de negativiteit zich bevindt en ze probeert deze negativiteit zo snel mogelijk te verbranden.
@@ -151,8 +153,6 @@ Wat jullie dus ook hebben gedaan, jullie zijn aan het groeien; kinderen maken te
 Mijn taak is het enkel jullie daarbij te beschermen, en dat doe ik ook. Maar probeer jezelf niet te ruïneren door je schuldig te voelen. Dat is de reden waarom we vandaag puja doen voor Vishnumaya. Zij is Kali, de zus van Shri Krishna, die ook Draupadi was. Zij is degene die er voortdurend is om ons te beschermen, en om ons te vertellen dat we ons niet schuldig moeten voelen en van het leven moeten genieten.
 
 Moge God jullie zegenen!
-
- 
 
 [1] Rakshasa: demon, incarnatie of belichaming van negatieve of duivelse krachten
 
