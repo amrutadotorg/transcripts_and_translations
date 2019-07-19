@@ -4,7 +4,9 @@ Shri Adi Guru Puja
 
 Nightingale Lane, Londen, Engeland
 4 juli 1982
-Engelse transcriptie: ISDP verified Nederlands: eindversie 07/10/2011
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 07/10/2011
+
 In de meest voorspoedige periode, die 'Krita Yuga' wordt genoemd, zijn we hier allemaal samengekomen om de manieren en de methodes te begrijpen om ons meesterprincipe te vestigen. Krita Yuga[1]. Krita Yuga wil zeggen de tijd waarin je iets moet bewerkstelligen - krita: ‘wanneer het gedaan werd'.
 Jullie zijn dus de kanalen voor die handeling, voor het werk van God. Jullie zijn de kanalen van God Almachtig en zijn kracht. Enerzijds moet je de waardigheid dragen, de glorie, en ervan uitgaan dat je een guru[2] bent. Anderzijds moet je volledig in overgave zijn aan jouw God Almachtig. Al je waardigheid, al je gezag komt van hem. En het derde is het feit dat hij dit universum en jou heeft gecreëerd in een speelse stemming, en jij moet zijn spel zien. Dus er zou echt een gevoel van vrolijkheid in je moeten opborrelen.
 Tot nu toe was het beeld van een guru dat van een persoon die nooit lacht, die nooit glimlacht, die altijd een slecht humeur heeft. Die houding volstond voor guru's die geen contact hoefden te maken met de mensen, maar die zichzelf aan een touw ophingen ergens in de Himalaya. Maar nu zijn wij hier, terwijl we het hele universum aanschouwen, dat de bruisende stromen van jullie liefde moet ontvangen. Dat wil echter niet zeggen dat je je frivool moet gedragen, want zo kun je niet zijn. Het goddelijke spel is niet frivool, het is vol vreugde, en vreugde heeft dat soort dualiteit niet. Om dus je guru principe te kunnen vestigen, moeten we eerst en vooral weten waardoor het vernietigd kan worden.
@@ -56,7 +58,7 @@ Hardop. Goed. Laat nu - begeleid jij de mensen die hier komen, één voor ée
 Wil je mijn zegeningen? Dank u, dank u. Olympia? Ha! Goed, dat is goed.
 Moge God je zegenen.
 Ha! Goed. In orde. Masseer mijn voeten maar.
-Al deze namen hebben te maken met de verschillende kwaliteiten waarmee hij de gana's[15] leidt. De 'gana's' zijn de soldaten van de linkerkant, die de beschermers zijn van de Heer Shiva en van de gezegende Gauri. 
+Al deze namen hebben te maken met de verschillende kwaliteiten waarmee hij de gana's[15] leidt. De 'gana's' zijn de soldaten van de linkerkant, die de beschermers zijn van de Heer Shiva en van de gezegende Gauri.
 Zij gaan achter hun bhoots aan!
 Kom maar. Kom maar naar voren, ja. Kom alsjeblieft naar voren. Zeg me nu hun namen. Margaret. Ja, wat is jouw naam? Waar kom je vandaan? Waar vandaan? Heel hard. Masseer ze heel hard, goed? Masseer ze hard. Hard, heel hard.
 Ha! Nu! ... Het is er nog steeds. Goed? Nu zal er geen probleem meer zijn.
