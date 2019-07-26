@@ -62,4 +62,4 @@ Por tanto, esta es una ocasión en la que realmente debemos celebrar el gran tr
 
 Ahora todo está muy claro y lo entendéis. Todos sois personas adorables, sin duda, pero debéis ser de tal manera que vosotros os adoréis y os améis a vosotros mismos por las virtudes que tengáis.
 
-Que Dios os bendiga.
+Que Dios os bendiga

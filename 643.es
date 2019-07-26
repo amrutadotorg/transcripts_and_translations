@@ -117,5 +117,4 @@ Y así, esta realización humana que yo tenía que conseguir resulta muy herm
 Pero una vez que ha funcionado, la Divinidad ha comenzado a expresarse en vosotros, y esas luces divinas están sentadas delante de mí. Os bendigo a todos desde mi Corazón donde reside Shiva, Sadashiva, y Él os bendice. Él es una personalidad absolutamente inocente. Es aquel que está totalmente más allá de cualquier apego; es aquel que está mirando, aquel que os está mirando a todos vosotros con tal admiración que su gozo no conoce límites; es tremendo, como si estuviera bailando de gozo.
 
 Es un gran día para nosotros por celebrar este Shiva Puja aquí. Espero que todos respetéis el principio de Shiva en vuestro interior, es lo más importante, y que cuidéis las vibraciones que laten en vuestro Ser, porque el Espíritu ha despertado en vuestra atención, en vuestro sistema nervioso central. Esto es lo más importante que tenéis que hacer, el resto es sahaja, absolutamente sahaja.
-
 Que Dios os bendiga.
