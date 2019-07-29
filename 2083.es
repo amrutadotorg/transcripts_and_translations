@@ -1,5 +1,4 @@
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 1996.
-
 Hoy estamos celebrando el nacimiento de Jesucristo. El nacimiento de Jesucristo es muy simbólico por la manera en la que sucedió ya que, incluso la persona más pobre entre los pobres no habría nacido en un establo como lo hizo Él. Y se le puso en una cama hecha con hierba seca. Vino a esta tierra para mostrar a la gente que, a una encarnación o a un alma muy evolucionada, no le preocupa la comodidad del cuerpo.
 
 Su mensaje fue muy grandioso y profundo, pero tuvo discípulos que no estaban preparados para la batalla en la que debían luchar. Esto mismo ocurre a veces en Sahaja Yoga. Él solo tuvo doce discípulos. Nosotros también tenemos doce tipos de sahaja yoguis. Aunque todos los discípulos intentaron dedicarse a Cristo, algunos de ellos cayeron en la trampa de sus aspiraciones mundanas y sus propios anhelos.
