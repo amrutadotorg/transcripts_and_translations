@@ -1,5 +1,4 @@
 Navaratri Puja. Cabella Ligure, Italia. 8 de octubre de 2000.
-
 Hoy vamos a adorar a la Devi llamada Amba, y por muchos otros nombres. Ella es el Poder residual. Una vez que ha creado todo, se transforma en la Kundalini y se asienta en vuestro hueso sacro. Este es el Muladhara chakra. Pero realmente se expresa más en el lado izquierdo porque en ese momento es puramente el Amba. Este lado izquierdo es muy importante para todos los seres humanos. Para empezar, si no tuvierais lado izquierdo no os podríais equilibrar.
 
 Se dice que Ella os da la auténtica personalidad de un sahaja yogui. Si el lado izquierdo es débil debéis adorarla a Ella y pedirle: "Por favor enriquece nuestro lado izquierdo". Al enriquecer vuestro lado izquierdo, lo que hace es daros confort. Así pues, ¿qué os da? Antes que nada os hace descansar. Se dice que Ella os hace descansar. Es decir, os hace dormir.
