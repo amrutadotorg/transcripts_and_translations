@@ -1,7 +1,7 @@
 Diwali Puja - De idealen worden - Londen, UK. - 06/11/1983
 
 Translation not verified. Dear yogi, register as volunteer to do so.
- Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Wat de vibraties van vandaag betreft kan je zien hoeveel je kan krijgen als je je op de Puja hebt voorbereid. Vandaag kunnen jullie het voelen. Het goddelijke verlangt ernaar te handelen. Het enige wat je te doen staat is jezelf voorbereiden en al deze voorbereidingen gaan jullie geweldig helpen.
 
@@ -54,15 +54,3 @@ Dit is geen afkooksel van welke cultuur ook, het is de cultuur van God waar we o
 Jullie hebben vandaag gezien dat de vibraties zo sterk zijn dat Ik het echt moeilijk vind om zelfs te praten, te absorberen, te lopen, gewoon een klein iets dat jullie gisteren of vanmorgen deden, geeft geweldige vibraties en jullie worden er middenin gegooid, jullie zullen tot iets openbloeien. Hou jezelf in de gaten en respecteer eerst en vooral jezelf want je bent een yogi. Je kan niet onwaardig zijn, je kan niet dom zijn, je kan niet autoritair zijn, je kan niet oneerlijk zijn. Je moet een zachte volgroeide persoonlijkheid zijn want je bent een yogi. Maar je zou jezelf niet yogi X.Y. of Z. mogen noemen, je bent dat wel, maar jezelf een yogi noemen en elkaar in de haren vliegen, dan zou ik zeggen dat je je beter niet zo noemt. Tracht van je problemen die eenvoudig zijn af te geraken en als je dat niet kan, zeg het me dan. Ik zal je zeggen hoe er van af te geraken.
 
 Moge God jullie allen zegenen.
-
-Ten vierde, moet je weten dat er een kleine moeilijkheid is, jullie Guru is een Moeder. Zij is te aardig om een Guru te zijn. Te mild om een Guru te zijn. En uiterst tolerant. Daarom is het beter deze striktheid zelf op je te nemen en voor jezelf te zorgen.
-
-Moge God jullie zegenen. Word je eigen Guru.
-
-Op elke dag van de Guru heb Ik een probleem. En dat is, dat Ik op elke Guru Pu j a denk dat Ik een volledige Guru moet worden en dat Ik ten minste één dag geen Moeder zou moeten zijn. Maar iedere keer als Ik deze trucs probeer werken zij tegen Mij. Vorig jaar in India vertelde Ik hen dat Ik deze keer alleen Guru zou zijn en dat zij mij alleen een sjaal hoefden te geven. Ik zal geen sari of iets anders aannemen als een Moeder. En Ik was erg streng met hen en zei dat Ik kost wat kost geen sar i zou aannemen, wat Zij ook zouden doen. Zij waren erg ongelukkig want zij hadden een sar i voor Mij gekocht en zij zegden: "Wij hebben ook een blouse genaaid en een petticoat. Moeder U moet het aannemen, U bent ook onze Moeder". Dan zei ik: "Ik ga erg hard zijn net als een Guru, er is niets aan te doen vandaag, niets zal Mij overtuigen".
-
-Want als je opnieuw de Moeder wordt, dan belandt opnieuw alles in zachtaardige toestanden. Ik wou dan een kraan opendraaien — omdat wij in India niet geloven in wasbekkens zie je - om Mijn handen te wassen. En Indische kranen zijn wat ze zijn, zie je. Zij ging plots open en Ik was drijfnat. Ik kwam naar buiten en zei, geef me a.u.b. de sar i om te dragen!
-
-Vandaag had ik besloten om een "echte" Guru te zijn en een erg harde' Toen kwam Warren om te zeggen "Moeder iemand heeft een sari gekocht en dit en dat, dit en dat, hij gaf een hoop argumenten. En Rustom en Warren, zie je, probeerden Mij terug op mijn plaats te zetten! Maar dan gebruikten ze het grootste argument om Mij uit te schakelen, — eerst zegden zij de sar i is mooi, dit en dat, het was in orde. Dan zeiden ze, de vibraties zijn te goed, zelfs voor het openen van de Sar i waren de vibraties daar. Zo verdween dus al mijn moeite.
-
-Dit is het spel van de lieflijkheid van het Goddelijke. Dat wat Madhuria genoemd wordt. "Madhuria" betekent het lieflijke. Het lieflijke. En dat is het wat verstoppertje speelt met de vreugde in het leven. En dat is wat Ik geaccepteerd heb, eerst zullen wij dus Moeder's Puja doen.
