@@ -1,5 +1,7 @@
 Kundalini puja - Vereer de Adi-kundalini - Weilburg, Duitsland - 11/08/1991
 
+NlTVD 2017-1125
+
 Vandaag zijn we hier samengekomen om de puja te doen van de Adi-Kundalini evenals van jouw eigen Kundalini.
 
 Eerst en vooral denk ik dat het heel belangrijk is je eigen Kundalini te begrijpen, want zelfrealisatie is zelfkennis en degene die jou zelfkennis verschaft is je eigen Kundalini. Want wanneer ze opstijgt wijst zij de problemen van je chakra's aan.
