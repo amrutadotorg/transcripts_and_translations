@@ -1,4 +1,4 @@
-Christmas And Its Relationship To Lord Jesus, Caxton Hall, LONDON (UK), 10 December 1979.
+Лондон, Англия10 декабря 1979
 
 Это тот день для нас, чтобы вспомнить, что Христос был рождён на этой земле как человек.
 
