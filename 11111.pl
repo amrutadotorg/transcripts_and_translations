@@ -1,5 +1,7 @@
 Sahaja Yoga – Wyjątkowe Odkrycie
 
+[tekst został przetłumaczony na podstawie artykułu napisanego przez Shri Mataji w 1979 roku]
+
 Człowiek w swoich poszukiwaniach radości i szczęścia ucieka od swojego Ja, które jest prawdziwym źródłem radości. Uważa siebie za bardzo brzydkiego i nudnego, ponieważ nie zna swojego Ja. Ludzka istota poszukuje radości w pieniądzach lub w posiadaniu, we władzy lub w ograniczonej ludzkiej miłości, a w końcu i w religii, która również jest czymś zewnętrznym. Problem polega na tym, żeby skierować naszą uwagę do wnętrza. Wewnętrzny byt, będący naszą świadomością, jest energią. Nazywam ją energią Boskiej Miłości. Cała ewolucja i manifestacja materialnej energii jest kierowana przez najwyższą energię Boskiej Miłości. Nie wiemy jak potężna jest ta nieznana energia i jak nadzwyczaj jest troskliwa. Cicha praca świadomości jest tak automatyczna, drobiazgowa, dynamiczna i precyzyjna, że uważamy to za coś oczywistego.
 
 Po Samorealizacji energia ta ukazuje się nam jako ciche, pulsujące wibracje, przepływające przez nas. Ale my nie jesteśmy w stanie osiągnąć Samorealizacji, ponieważ nie potrafimy ulokować naszej uwagi na czymś, czemu brakuje formy (na Bycie abstrakcyjnym). Zamiast tego, błądzimy uwagą po formach zewnętrznych.
@@ -18,11 +20,7 @@ Aby zrozumieć życie, rozważcie przypadek czegoś co jest żywe – kieł
 
 Są to:
 
-Przywspółczulny układ nerwowy
-Współczulny układ nerwowy (prawy)
-Współczulny układ nerwowy (lewy)
-Centralny system nerwowy (co nie musi być omawiane, ponieważ jest obiektywne)
-Wiązka promieni pada na kość ciemiączka (na szczycie głowy zwanym Taloo), przebija ją w centrum i przechodzi do rdzenia przedłużonego przez kanał Sushumna. Następnie, po opuszczeniu cieniutkiego jak nitka rdzenia przedłużonego, osiada w trzech i pół zwojach w kości trójkątnej u podnóża rdzenia kręgowego (Mooladhar). Ta spiralnie zwinięta energia zwana jest Kundalini. Subtelna energia wchodzi przez centrum mózgu (Sahasrara Brahmarandhra) i na swojej drodze w dół wytrąca kolejnych sześć centrów.
+Przywspółczulny układ nerwowyWspółczulny układ nerwowy (prawy)Współczulny układ nerwowy (lewy)Centralny system nerwowy (co nie musi być omawiane, ponieważ jest obiektywne)Wiązka promieni pada na kość ciemiączka (na szczycie głowy zwanym Taloo), przebija ją w centrum i przechodzi do rdzenia przedłużonego przez kanał Sushumna. Następnie, po opuszczeniu cieniutkiego jak nitka rdzenia przedłużonego, osiada w trzech i pół zwojach w kości trójkątnej u podnóża rdzenia kręgowego (Mooladhar). Ta spiralnie zwinięta energia zwana jest Kundalini. Subtelna energia wchodzi przez centrum mózgu (Sahasrara Brahmarandhra) i na swojej drodze w dół wytrąca kolejnych sześć centrów.
 
 Materialną manifestacją tej subtelnej energii w kanale Sushumna w rdzeniu kręgowym, jest Przywspółczulny układ nerwowy. Centra czakr są odzwierciedlone na zewnątrz rdzenia kręgowego jako sploty. Zaskakująco, ilość splotów i pod-splotów na zewnątrz rdzenia odpowiada ilości czakr i ich płatków wewnątrz rdzenia kręgowego.
 
@@ -79,7 +77,3 @@ Uwaga świadomości przenosi się do wewnętrznego bytu (Kundalini). Tak jak
 Zapomnijmy o trudach jakie cierpieliśmy w naszym poszukiwaniu w przeszłości. To jest bez znaczenia, jeśli niektórzy nie znaleźli tego wcześniej. Musicie otworzyć swoje umysły i zrozumieć, że choć odkrycie jest bezprecedensowe, to nie czyni to żadnego poszukiwacza ani poprzednika nieznaczącym. Choć pewne próby zostały podjęte, to jest bez znaczenia, jeśli w końcu odnaleźliśmy drogę. To jest kolektywne osiągnięcie. Możliwe, że w chaosie Kali Yugi miało się to wydarzyć, a wielu z nas, tych którzy poważnie poszukiwali przez wiele żyć, odrodziło się, aby dane im obietnice zostały wypełnione przez Boskość. Może byliśmy swoimi własnymi poprzednikami.
 
 Na drzewie życia mogło być bardzo niewiele kwiatów, ale czas kwitnienia nadszedł teraz. Zapach pragnienia zmaterializował się kolektywnie jako Sahaja Yoga. Wielu wskoczy do królestwa świadomości bez myśli, gdzie poznacie siebie i zaczniecie utożsamiać się z waszą uniwersalną naturą. Ci, którzy zasłużą, otrzymają tron wewnętrznego bytu, który zarządza niebem spokoju, oceanami boskiej miłości i najwyższej, wewnętrznej wiedzy, która jest bezgraniczna (Anand).
-
-H.H. Shri Mataji Nirmala Devi
-
-Powyższy tekst został przetłumaczony na podstawie artykułu napisanego przez Shri Mataji w 1979 roku.
