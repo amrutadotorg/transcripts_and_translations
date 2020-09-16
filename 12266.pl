@@ -47,5 +47,3 @@ Lider nie powinien przyćmiewać przekazu. Lider nie powinien mieć ulubień
 Proszę, oczyśćcie swoje emocjonalne konflikty. Prowadźcie poprzez dowartościowanie, bez niszczenia i ranienia.
 
 Nie przypisujcie sobie zasługi za pomaganie. Prowadźcie bez zaborczości. Obserwujcie ciszę w grupie i czujcie jej istotę i zainteresowanie. Czujcie zasadniczy nastrój grupy. Skąd wieje wiatr w grupie.
-
-H.H. Shri Mataji Nirmala Devi

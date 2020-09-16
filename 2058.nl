@@ -183,5 +183,3 @@ Moge God jullie zegenen.
 [15] nirananda: zuivere vreugde, opperste vreugde
 
 [16] kumbha: pot, kan of kruik die de baarmoeder van het universum symboliseert; kruik die de Kundalini bevat, kruik die het primordiale (oorspronkelijke) verlangen bevat, het verlangen om tot God te komen. Wordt gebruikt tijdens puja’s als drager van de kokosnoot.
-
-H.H. Shri Mataji Nirmala Devi

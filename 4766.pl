@@ -127,5 +127,3 @@ Lepszy Sahaja yogin jest w porządku, ale żeby być lepszym od innych na zas
 któregoś dnia, mówiłam... jemu samemu. Widzicie on nie pozwolił nikomu do Mnie mówić. Ktokolwiek mówi .... czuję się taka zakłopotana. Mówiłam mu, żeby tego nie robił. Wiem jak powiedzieć. Ktokolwiek coś mówi, on tylko ... Więc ... nie robić tego. Ale to wszystko jest prawostronne. Oczywiście on jest liderem, w porządku, ale Ja bym chciała do nich wszystkich przemawiać. Jeżeli ktoś jest niegrzeczny lub śmieszny, wtedy to jest ok. Ale jeżeli ktoś do Mnie mówi, nie powinniście go powstrzymywać. Mam na myśli, że nie jesteś jedynym rzecznikiem. Oni wszyscy są moimi dziećmi.
 
 A także to liderowanie, czym to jest? To jest mit. Każdy ma takie problemy, ale jak tylko się staniesz liderem musisz być bardzo ostrożny ... bardzo wielkiego charakteru.
-
-H.H. Shri Mataji Nirmala Devi

@@ -99,5 +99,3 @@ Tengo que ir a Canadá; no he estado, pero intentaré sacar algo de tiempo. Pr
 De nuevo veamos cuántos quieren ser gurus. Oh, qué gran número.
 
 Muchas gracias. Gracias. Gracias a todos.
-
-H.H. Shri Mataji Nirmala Devi.

@@ -121,5 +121,3 @@ Niech was Bóg błogosławi.
 Moje pełne błogosławieństwo jest z wami. Moje serce, umysł, i ciało są zawsze zaangażowane w służbę dla was. Nie oddalam się od was nawet na moment. Kiedykolwiek i gdziekolwiek pomyślicie o Mnie tylko przez zamknięcie oczu, w tym momencie przybywam do was ze wszystkimi Moimi Mocami, ‘Shankh, Chakra, Gada, Padma Garud layee siddhari’ [tak jak Lord Krishna przybył z Dwariki, ze wszystkimi swoimi mocami - Shankh, Chakra, Gada, Padma, kiedy Draupadi go zawołała - tak samo Ja natychmiast przybędę]. Nie spóźnię się nawet o moment, ale musicie należeć do Mnie. To jest bardzo ważne. Jeśli jesteście Moi, wtedy nie spóźnię się nawet o moment. Stanę przed wami.
 
 Niech was Bóg błogosławi i da wam mądrość.
-
-H.H. Shri Mataji Nirmala Devi

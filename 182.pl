@@ -38,6 +38,6 @@ Możecie powiedzieć: "Matko, twoja miłość to zrobiła", ale Ja po prostu
 
 Więc dzisiaj jest wspaniały dzień. Ten "sankramana", który się rozpoczął, wymaga poważnego wysiłku. Nie możemy z tym igrać. To wielki stan wyjątkowy. Czuję w atmosferze stan wyjątkowy: wszyscy Bogowie i Boginie są tam, aby pomóc wam to wypracować. Wy jesteście na scenie i musicie tworzyć ten wielki dramat rewolucji. Musimy pokazać temu światu, że jedynie Duch, może ocalić ten świat, nic więcej.
 
-Zatem od dzisiaj zaczynamy naszą podróż w kierunku tej subtelności i wrażliwości, w której możecie odczuwać, w której czujecie Niranandę. Nirananda, imię waszej Matki jest Nira, a w Sahastrarze czujecie anandę, radość Niry.
+Zatem od dzisiaj zaczynamy naszą podróż w kierunku tej subtelności i wrażliwości, w której możecie odczuwać, w której czujecie Niranandę. Nirananda, imię waszej Matki jest Nira, a w Sahasrarze czujecie anandę, radość Niry.
 
 Niech was wszystkich Bóg błogosławi.

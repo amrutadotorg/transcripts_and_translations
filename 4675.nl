@@ -199,5 +199,3 @@ Moge God jullie zegenen!
 Vraag: Stijgt waarheid uit boven de zintuiglijke waarneming?
 
 Shri Mataji: Absoluut! Want als datgene wat we waarnemen met onze zintuigen de waarheid zou zijn, dan zouden we niet meer moeten zoeken. Wat we ook waarnemen met onze zintuigen is zeer duidelijk, grof, het is niet subtiel. Wat daarachter ligt kunnen we niet waarnemen. We kunnen bijvoorbeeld niet zeggen hoe een atoom moet worden gemaakt. We kunnen niet zeggen hoe we van amoebe tot mens zijn geworden. We kunnen van een aap geen mens maken, door de waarneming van onze zintuigen – of wel soms? Door onze waarnemingen kunnen we het subtiele achter het grove niet bereiken. We kunnen deze gewoon dus niet bereiken via ons verstand. Maar eens dat we het waargenomen hebben, kunnen we het voelen door onze zintuigen. Dit is het tweede punt.
-
-H.H. Shri Mataji Nirmala Devi

@@ -833,4 +833,3 @@ Shri Mataji: Hm?
 Yogin: Myślę, że to stop metali... stop metali - mieszanina metali.
 
 Shri Mataji: Ach, metal... [niewyraźne, zdanie kończy się na "maryada" lub "maryadas"]
-

@@ -65,5 +65,3 @@ Więc chcemy podarować jej coś przynajmniej jako wyraz naszej miłości i 
 Macie również stać się samowystarczalni. Zanim opuszczę to miejsce, chcę zrobić coś dzięki czemu w pełni zrozumiecie swoją własną chwałę, zrozumiecie swoją własną wielkość i będziecie mieli mądrość, która przychodzi z takim zrozumieniem.
 
 A tym samym, podczas mojej następnej wizyty, zobaczę wszystkich ludzi bardzo pięknymi, ze świeżością i nowym wyglądem na twarzach, mającymi piękne miejsca zrobione przez Boga w ich sercach, miejscem, które jest jak w pełni rozkwitłe kwiaty lotosu. Wszyscy macie Moje błogosławieństwa.
-
-H.H. Shri Mataji Nirmala Devi
