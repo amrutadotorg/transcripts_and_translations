@@ -1,4 +1,4 @@
-Šrí Ganéša púdža, 22/08/1982 (nekontrolováno), Swiss
+Šrí Ganéša púdža, 22/08/1982 (nekontrolováno), Troinex, Švýcarsko,
 
 Tak dobře.
 
