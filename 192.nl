@@ -91,7 +91,7 @@ De dokters konden het niet geloven.  Ze brachten hem naar een andere afdeling wa
 
 Hij zegt: "Moeder, ik ben nu iemand die niet aan om het even wat denkt, aan leven, dood, om het even wat, maar nu weet ik wie U bent.  Ik weet dat ik onder uw bescherming sta.  Ik moet me geen zorgen maken.
 
-Een ander voorbeeld was dokter Warliker, die een erg slecht hart had, zodat ze een bypass maakten.  Een echte gelovige.  Misschien werkte zijn bypass niet meer, want hij kreeg een massale hartaanval.  Hij geraakte in coma.  Men bracht hem naar het ziekenhuis.  In het begin was de aorta voor 80% verstopt, zodat maar 20% open was.  Er was geen hoop.
+Een ander voorbeeld was dokter Worlikar, die een erg slecht hart had, zodat ze een bypass maakten.  Een echte gelovige.  Misschien werkte zijn bypass niet meer, want hij kreeg een massale hartaanval.  Hij geraakte in coma.  Men bracht hem naar het ziekenhuis.  In het begin was de aorta voor 80% verstopt, zodat maar 20% open was.  Er was geen hoop.
 
 Men deed dus die bypass voor hem.  Hij zei gewoon: "Verwittig Moeder.' Ook dat moest hij niet gedaan hebben, maar het maakt niet uit.  En ik plaatste hem onder bandhan.  Ik was in Australië.  Ook hij was opgegeven.
 

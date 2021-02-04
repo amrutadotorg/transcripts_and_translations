@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=vU0m9tJQV1k&feature=youtu.be
+
 Diwali Puja. Lago Piru, Los Ángeles, Estados Unidos. 29 de octubre de 2000.
 
 Hoy es un gran día para el mundo entero, porque estamos celebrando este Diwali Puja en América. Es muy importante hacerlo en esta tierra en la que ha habido gente que ha ganado mucho dinero y después se han arruinado por completo.
