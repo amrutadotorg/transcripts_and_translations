@@ -1,7 +1,5 @@
 TV interview. Togliatti (Russia), 23 September 1995.
 
- 
-
 The Interviewer: Уважаемая Shri Mataji, скажите пожалуйста о цели своего сегодняшнего визита в Тольятти.
 
 Translator: Much respected Shri Mataji, can You please tell us about the goal of your current visit to Togliatti?
