@@ -1,6 +1,6 @@
 “Het Werk van Adi Shakti” - Shri Adi Shakti Puja - Cabella Ligure (Italy) - 3 Juni 2001.
 
-NlTVD 2019-0425
+NlTVD 2022-0607
 
 Vandaag vereren we Adi Shakti.
 
@@ -22,7 +22,7 @@ De eerste kennis die kwam was die van de kuisheid omdat Shri Ganesha gevestigd w
 
 Met de kennis van kuisheid, begonnen de mensen geleidelijk aan uit te groeien tot mooie naties. Maar er zijn nog zoveel dingen die we moeten kennen en waarvan we ons bewust moeten worden. Je kunt je misschien bewust zijn van vele dingen, maar tenzij je je spirituele ontwaking krijgt, tenzij je zelfkennis krijgt, stelt alle andere kennis absoluut niets voor.
 
-Alleen met deze zelfkennis wordt je krachtig. De werkelijke kracht, de echte kracht is die van liefde en mededogen.
+Alleen met deze zelfkennis word je krachtig. De werkelijke kracht, de echte kracht is die van liefde en mededogen.
 
 Vandaag zie je dat de hele wereld aan het vechten is en ze proberen mensen te beschermen tegen oorlogen door grote, enorme defensieve toestellen te creëren. De hele wereld lijkt verwikkeld te zijn in een waanzinnige wedloop om elkaar te doden, elkaar te vernietigen, in competities en ambities die leiden tot conflicten en nog grotere oorlogen. Ze vechten voor een stuk land, zo onwetend zijn ze. Kan je zelfs maar een miniem stukje land meenemen als je sterft?
 
@@ -108,7 +108,7 @@ Je hoeft niet bang te zijn van mij, maar wees bang van jezelf. Hou jezelf in de 
 
 Verlichting betekent niet het licht alleen voor jezelf, maar het licht van liefde, van mededogen, dat goddelijk is, dat niet normaal is, dat niet gewoon is zoals je in films ziet. Het is een goddelijke liefde die werkt en daarom maakt het mij soms een beetje week als ik hoor dat Sahaja yogi’s zich nu inlaten met geld, met bedrog, ik bedoel allerlei schimmige activiteiten. Ik kan het niet begrijpen, ik kan het niet geloven. Als je het hoogste gekregen hebt, waarom wil je dan zo laag gaan? Omdat je nog niet hebt gevoeld wat je hebt, nog niet hebt beseft wat je hebt en je jezelf niet respecteert. Als je nog altijd op dezelfde lijn, op hetzelfde niveau staat moet ik zeggen dat je mij of jezelf geen recht doet.
 
-We moeten het uitwerken. Ik heb het alleen gedaan en ik moet zeggen dat ik heel hard gewerkt heb in die zin dat ik moest omgaan met verschrikkelijke mensen die onvriendelijk, heel egoïstisch, heel wreed waren, maar dat doet er niet toe. En ik heb zo’n mooie vogels ontdekt. Maar jullie moeten je glans bewaren en het uitwerken.
+We moeten het uitwerken. Ik heb het alleen gedaan en ik moet zeggen dat ik heel hard gewerkt heb in die zin dat ik moest omgaan met verschrikkelijke mensen die onvriendelijk, heel egoïstisch, heel wreed waren, maar dat doet er niet toe. En ik heb zo’n mooie parels ontdekt. Maar jullie moeten je glans bewaren en het uitwerken.
 
 Ik zal heel blij zijn te weten dat Sahaja Yoga zich met grote schreden en sprongen en met een grote snelheid verspreidt en dat mensen werkelijk dat gebied van vrede, vreugde en geluk betreden.
 
