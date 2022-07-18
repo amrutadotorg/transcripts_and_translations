@@ -1,6 +1,4 @@
-Odręczne Notatki Shri Mataji - Rady dla Liderów
-
-(W 1992 roku Shri Mataji przekazała Yogi Mahajanowi ręcznie pisane notatki, aby przekazać je wszystkim przywódcom tamtych czasów. On zrobił kopie i wręczył je zgodnie z Jej instrukcjami. To są właśnie te notatki, które napisał wtedy Shri Mataji.)
+Odręczne Notatki Odręczne Notatki Sahaja Yogina - Rady dla Liderów
 
 Aby wyczuć, jak przebiega naturalny proces poprzez zasadę Kundalini, dla tej wiedzy liderzy muszą medytować i podążać za tym, co na ich własny temat dyktują im wibracje.
 
