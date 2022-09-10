@@ -1,4 +1,4 @@
-Shivaratri Puja
+Mahashivaratri Puja: Activa tu atención
 Sidney, Australia 3-3-1996
 Hoy vamos a celebrar el puja a Shri Shiva. Como sabéis, Shiva es el reflejo de Shri Sadashiva dentro de nosotros, ya os he hablado de este reflejo. Sadashiva es el Dios Todopoderoso, es aquel que ve el juego, es aquel que ve el juego de la Adi Shakti. Él es el Padre y observa a cada una de sus criaturas, su apoyo a la Adi Shakti es total y la refuerza completamente; en su mente no hay dudas respecto al Poder de la Adi Shakti. Pero cuando Él observa que la gente o el mundo en sí perturban el trabajo de la Adi Shakti, entonces se encoleriza y destruye a estas personas o destruye quizá el mundo entero. Por una parte Él se enoja, sin duda, pero por otra parte también es el océano de la compasión y del gozo. Por eso, cuando Él se refleja en nosotros recibimos nuestra Realización, recibimos la luz de nuestro Espíritu y entramos en el océano de gozo.
 
