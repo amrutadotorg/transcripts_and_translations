@@ -1,0 +1,113 @@
+Doctor’s Conference, 2 July 1990 – Moscow (Russia)
+
+I bow to all the seekers of truth.
+
+In the medical studies whatever we have discovered so far is there already available. Whatever we can discover with human awareness has its own limitations. 
+
+Supposing it is said that the human body does not accept any foreign thing into its being, but when the foetus is implanted, it is not thrown out but looked after and thrown out at the right time. 
+
+Also the role of adrenaline and acetylcholine on our body, its mode of action cannot be explained because sometimes they augment and sometimes, they relax. We cannot even explain the action of our spleen; we cannot explain so many things through medical achievements. Much has to be known and much to be found out.
+
+I would like you all to know something of the beyond which is not known so far. So have an open mind of a scientist to see for yourself if it is true or not. Till then it is like a hypothesis. 
+
+Sahaja Yoga gives you the complete picture of the totality of consciousness. As you grow higher and higher in Sahaja Yoga you yourself understand and can work out this great system. 
+
+First, we have to accept that we are not only this human body, nor are we emotions, neither are we ego and conditionings, but we are the Pure Spirit. One other thing that we have to understand, that there is an all-pervading power of Love which does all this living work of creating flowers, fruits, and making us human beings. 
+
+Of course, in science they do not talk of love but even the doctors have to love the patients otherwise they cannot dedicate.
+
+First the doctor has to become the Spirit. He has to feel the cool vibrations on his head which are the fruit of this all-pervading power of Love. This is the instrument which you have to use, first of all for cleansing yourself and for cleansing others. 
+
+In the medical terminology we can say that the parasympathetic system is looked after by the central channel and the left and right is looked after by two more channels. 
+
+According to Sahaja Yoga, left and right sympathetic are two separate energies. The left one is the one which comforts us, the right one is the one which counsels us and the centre one is the one which redeems us. All this happens after realization, because you have to have the correction.
+
+In human beings, the centres are in the spinal cord and also in the brain. They are formed from the left and the right, and both put together is the central system. 
+
+The triangular bone in which the Kundalini resides is called as Sacrum, as you know. 'Sacrum' means 'sacred' so that the Greeks knew about it and put that word in the medical terminology also 'sacred'. 
+
+According to Sahaja Yoga we are actually basically three types of people. Firstly, we either go to the left or to the right. 
+
+Left side is our desires that have worked down. And also, whatever doesn’t work out goes into our subconscious on the left side, and then into the collective subconscious. We can say it looks after our psyche. It starts from down below there at the last centre and goes upward and crosses over at the optic chiasma and creates the super-ego in psychological terms, is the conditioning. The lower centre also nourishes the pelvic plexus. This is responsible for our excretion and sex.
+
+So, one has to have sane ideas about sex because this channel originates from the last centre. 
+
+When Freud talked of psyche, he perverted the whole thing. Instead of telling people how to safeguard this centre which is the centre of innocence by looking after the sex habits, he just told the other way round. He related everything to sex as if human beings are just sex points. He formed a very funny self-opiniated ideology that every man has sex feelings for his mother. Horrible! On this mental projection he based all his theories and people thought it was so-called 'freedom’ to have sex the way they like. They didn’t even challenge him. He became more than Christ to them in the West. 
+
+As a result, we have now all kinds of very serious diseases like AIDS, gonorrhoea, syphilis, etc., which are now affecting 60 percent of people in America. All related to sex organs. It was always called 'private parts' but it was never understood what does it mean.
+
+So, the left side is the psychic problem and the right side is the physical problems, psychosomatic problems. 
+
+Psychosomatic problems are when you work too hard and think too much, then we start using this second centre [Swadishthan]. When we think too much, then we have to supply energy for the brain. So, all the energy of this second centre goes to the brain which thinks too much and is futuristic. And other important functions it has to do, they are neglected. 
+
+Right sided problems are caused by neglect of overactive liver. And one gets diabetes because pancreas it not looked after. You get leukemia because spleen is not looked after. You get high blood pressure because kidneys are in trouble. As the heat of the liver ascends you get asthma. The brain is like a spongy matter and in a way coagulates. Same thing happens with the kidneys when the heat goes to the kidneys. They cannot pass urine and the urine circulates in the body and blood. Also, it causes constipation.
+
+Heat is the symptom of disease and coolness is the symptom of good health. The experiment with helium gas showed that when given heat, all the molecules were fighting with each other. And when they removed the heat, they found all the molecules were united.
+
+The third type of diseases are psychosomatic, combination of both. Those who are psychosomatic have more problems with the psyche than with the physical. 
+
+Cancer is psychosomatic. All viruses are dead plants or dead animals, maybe microscopic, which have gone out of circulation of evolution. They reside in the area called collective subconscious. 
+
+Doctors have reached a certain understanding that they say that there are putting 53 and 58 [proteins] which trigger the cancer. They also say that cancer is caused to a person when he goes into a shock and the attack comes from the left in the area which was built within us since the creation. This is the same area as the collective subconscious where everything that is dead is there. So, there are humans who are dead hanging around that, that source.
+
+In physical science you may have never heard of something. But I'll give you the complete picture of anything in this matter. 
+
+There is a soul which is playing on the causal of all elements. It is attached in loops on the back side of our body, in all the seven centres plus the Sacrum bone where it resides. It makes seven loops. 
+
+After realization you can see many loops like going round and round, like chakras and one into another: sometimes many into it together, and sometimes only one. Also, you can see little sparks like commas, that is Chaitanya, that is vibrations. Now I have told them that these are dead souls and roam around. 
+
+Now this soul is reflected on ourselves in the receptor area. Recently in America they have taken photographs of the receptor of a cell. It looks exactly like what you see there after realization. But when another dead soul sits on the being then it is reflected on the cells. It affects the receptor also. This new soul might get attached to anyone of the centres or to all of them. It affects the cells also. And they give all this dopamine series which causes epilepsy, mental problems, cancer, etc. 
+
+If they are viruses, it's not so bad. Only one may go in and affect but it can travel from one [centre] to another. If it's a human possession then it’s very difficult.
+
+So, Sahaja Yoga will cure the diseases you are giving me here. 
+
+Hypertension can come from both sides, heart disease also. Epilepsy comes from the left side. Migraine or sick headache could be from both sides. All bone diseases are psychosomatic. Leukemia, tumours, fibrosis are psychosomatic. Menopause is not a disease. It's a normal condition. Inflammation of the pancreas could be also psychosomatic. Sciatica could be somatic or psychosomatic. All mental diseases are left sided. Schizophrenia is left sided. Alcoholism starts in the right side and creates left sided problems. Arthritis is psychosomatic. Very constricted: right-sided. Drug addiction, smoking, homo sexuality and perverted sex, too much indulgence in sex is all left sided or psychosomatic.
+
+Smoking creates left-sided problems because one feels guilty. Perverted sex habits and flirting of the eyes, AIDS, too much sex, or rigidity is due to left side. It is some sort of a possession. Multiple sclerosis is left centre problem. Neurosis could be from both sides. Parkinson’s disease is left side. Rheumatism comes from the Nabhi – left side. Muscular dystrophy comes from the left side. Snort: it depends: if it is on the left-hand side, it is somatic; if it goes to the right-hand side, it comes from the left side. Yuppie’s disease is where you are extremely hard working, very futuristic and use your conscious mind too much. Studying too much also. Then the conscious mind becomes absolutely paralyzed. You are walking alright and suddenly you are conscious that you are walking then you will suddenly fall down. I had told eight years back in America that it will come. Very, very serious and very fast spreading! I told them about AIDS about fourteen years back. But nobody listened. Now they are in it.
+
+Diabetes is partly left-sided, mostly right-sided. 
+
+Cancer is like this: you see, this is the centre and the energy goes through it. But when you move one circle too much, to left or right, specially to the right, when you use too much a circle, so the two circles are no longer correctly superposed, then exhaustion takes place. So, you are vulnerable. And suddenly happens from the left side, it [the circle] breaks. And the connection with the whole is lost. When you use too much of right then the exhaustion takes place here. So, you are vulnerable and suddenly happens from the left side, as the connection with the whole is lost. These proteins, like proteins 53, 58 are very ego-oriented and arbitrary. Whatever cell they touch, that becomes malignant. Thus, malignancy sets in. 
+
+So, women suffer from breast cancer. The centre of the heart is the Mother’s centre. When the motherhood of a woman is challenged, say the husband is a flirt and keeps her insecure, or if she’s very much insecure from her side also, then this centre gets tarnished. This centre produces antibodies to fight the diseases in the sternum bone till the age of twelve years. Then they are distributed all over. Whenever there is fear the sternum bone shakes and it is like a remote control that sends messages to all the antibodies to fight. If you can establish the security of such a lady through Kundalini awakening, nourishing her centre here [Heart], then her cancer can be cured. When they are in very advance stages, they do not have that will-power left. Then it’s better to remove the breast and then establish your security.
+
+Already there are diseases which are caused by the lethargic organs. 
+
+When heart is lethargic one gets angina. When the left Vishuddhi catches you feel very guilty and then there’s a block and the blood cannot flow to the head, then it has to go to the heart and such a heart becomes tired and lethargic. 
+
+In Sahaja Yoga we have two types of organs: one is lethargic and the other is over active. 
+
+Looking at the photographs, there are also vibrations. The doctors should first of all establish themselves properly and protect themselves, then they can also learn how to cure others. 
+
+But in the beginning, you can use the photographs which have the vibrations in them, to find out how to cure the different centres. They are of three types: left side, right side, and both sides-psychosomatic.
+
+But, as I said, psychosomatic must be dealt as first on the left side. 
+
+Some children suffer from hyperactivity. Diabetes also comes from the same reason as for children. At the time when the mother is pregnant, she should not work very hard. She should rest more. She should not think too much but read something soothing, something nice. Best is to meditate. 
+
+At that time if the mother is overactive and thinking of futuristic things, children are born with these diseases. Or if she’s hectic, the child may get leukemia because the spleen is used for all emergencies, because it produces red blood corpuscles. But if you are hectic, panicked all the time, rushing about then the poor spleen cannot understand. It becomes erratic and crazy. It could happen to children or adults.
+
+When something triggers from the left side and there’s sudden shock, may be sadness, accident, anything, it triggers leukemia, as well as for the children.
+
+But the worst thing which is very difficult for anyone to understand is that there are negative forces working. They work through negativity. They work through some false guru, or parapsychology or mesmerism, any things like that. All these things are done through putting some sort of a dead soul on your soul. So, one has to be very clear. 
+
+For this [Realisation] you cannot charge money because it is a living process of evolution. 
+
+Anything living: for example, you sow a seed. You don’t pay money to Mother Earth. She does it. It is built in the seed as well as Mother Earth. We also take all the living processes for granted without thinking about it. There’s no obligation. 
+
+But all these horrible people are money-oriented. They have no purity of heart or purity of eyes. They are interested in women, men or all kinds of dirty things. The worst of these things is that they are not able to explain how they do it. They cannot relate it to medical science or any science.
+
+Now they try to do marketing of Ayurveda. It's another trick. 
+
+Sahaja Yogis know about it. Firstly, it's not needed to have any guru for that, you can always get it in the market. But all these medicines are made out of absolutely fresh leaves, fresh roots, everything fresh, that only grows in India. For example...
+
+In Sahaja Yoga we do some Hatha Yoga exercises whenever necessary, very few. When there is a chakra damaged because of some physical problem, we try to give that particular Hatha Yoga exercise. 
+
+But the way people do Hatha Yoga is to take all the medicines at once and without knowing what they take. In Hatha — Ha and Tha, both the Nadis have to be used. But nowadays it’s only Ha [right side] used. This can cause a great imbalance within you. People who do this can become extremely dry, hot tempered and may divorce his wife or leave his children.
+
+Now the women who are very concerned, over right-sided, very left-sided, also they cannot go this way. And they have so many problems otherwise. 
+
+So that means that we have to be in the centre and Kundalini should be fixed permanently with that All-Pervading Power and flow all the time within you. 
+
+But apart from physical, mental and emotional life, you have the Spiritual life, which is much more miraculous, which is very blissful and when you understand how this power of Love looks after everything, you are amazed
