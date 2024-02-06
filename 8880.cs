@@ -1,6 +1,6 @@
 První tři minuty jsou bez zvuku.
 
-Rady na levou stranu - Problematika podvědomí, 13/05/ 1982, Brighton, Velká Británie
+Veřejný program: Rady na levou stranu - problematika podvědomí, 13/05/ 1982, Brighton, Velká Británie
 
 Ale jak jsem vám řekla, mohou tu být dobré podmíněnosti. A stejným způsobem můžete mít dobré zvyky a špatné zvyky. Jestli zvyky brzdí nebo blokují váš vzestup, mohou vám také pomoci se upevnit. Podmíněnosti k vám přicházejí z hmoty, se kterou máme co do činění každý den. Když člověk vidí hmotu, zaútočí na ni a chce tuto hmotu využívat ke svému vlastnímu účelu. Formuje hmotu ke svému vlastnímu účelu. Začíná si zvykat používat hmotu pro pohodlí nebo jako pomocníka či průvodce životem. Čím víc se začínáte spoléhat na hmotu, tím víc ničíte svoji přirozenost, protože se zabýváte neživým. Hmotou se zabýváme pouze tehdy, je-li mrtvá. Když je živá, tak nás tolik nevzrušuje. Takže strnulost hmoty se v nás zabydluje, jakmile začínáme používat hmotu k našemu vlastnímu účelu.
 

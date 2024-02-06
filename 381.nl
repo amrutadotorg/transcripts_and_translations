@@ -1,3 +1,7 @@
+Sydney (Australië) 21 maart 1983.
+
+Nederlandse vertaling versie datum 2024-0205
+
 Het is heerlijk om vandaag op deze voorspoedige dag bij jullie te zijn; om te vertoeven bij Australiërs die bewezen hebben zeer goede Sahaja yogi's te zijn en die op een zeer snelle manier vooruitgang hebben geboekt in hun spirituele leven.
 
 Het doet me het grootste genoegen om hier bij mijn kinderen te zijn. Zoals jullie weten heb ik zoveel kinderen over de hele wereld afgezien van degene die ik fysiek op de wereld heb gezet. Denk aan allen die vandaag duizenden kilometers van ons vandaan zijn, biddend tot God Almachtig voor hun spirituele groei. Je hoeft alleen maar te bidden voor spirituele groei. Want naarmate je groeit krijg je al de rest. Omdat je niet spiritueel groeit, krijg je niet wat nodig is. Daarom zijn er problemen. En zelfs vandaag moest ik enkele problemen oplossen voor ik naar de puja kon komen. Maar als je beslist dat we spiritueel in onszelf moeten groeien dan krijg je alles wat je moet ontvangen, alle zegeningen die God over je wil uitstorten, om je een burger van zijn grote Koninkrijk te maken, waar je niet meer wordt veroordeeld, niet meer wordt gegeseld, niet meer op de proef wordt gesteld, waar je in de eeuwige liefde van God en in zijn heerlijkheid verblijft. Ik kon ongeveer tien jaar geleden niet geloven, dat ik in tien jaar tijd dit resultaat zou kunnen bereiken.

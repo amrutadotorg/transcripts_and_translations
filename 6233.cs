@@ -1,4 +1,4 @@
-Projev k jogínům 26/11/1982, Londýn, UK
+Projev k jogínům: Co můžete udělat, 26/11/1982, Londýn, UK
 
 V titulcích budou v rozhovorech použity zkratky:
 

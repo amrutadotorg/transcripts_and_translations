@@ -1,4 +1,4 @@
-Šrí Ganéša púdža, 22/08/1982 (nekontrolováno), Troinex, Švýcarsko,
+Šrí Ganéša púdža: Nevinnost a radost, 22/08/1982 (nekontrolováno), Troinex, Švýcarsko,
 
 Tak dobře.
 
