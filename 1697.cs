@@ -1,4 +1,4 @@
-Narozeninová  púdža 21/03/1990 Sydney, Austrálie
+Puja for the 67° Birthday, Sydney (Australia), 21 March 1990.
 
 Tolik nadšení po celém světě!
 
