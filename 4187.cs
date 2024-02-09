@@ -1,4 +1,4 @@
-"Motivate your attention", Mahashivaratri Puja. Bundilla Scout Camp, Sydney (Australia), 3 March 1996.
+Mahášivaratri púdža: Motivujte svou pozornost, 3/3/1996, Bundilla Scout Camp, Sydney (Australia)
 
 Dnes budeme dělat púdžu k Šivovi, ke Šrí Šivovi.
 

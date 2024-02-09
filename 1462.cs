@@ -1,4 +1,4 @@
-Šrí Višnumája púdža, 01/09/1985, Londýn, UK
+Šrí Višnumája púdža: Síla sestry, 01/09/1985, Londýn, UK
 
 Dnešní púdža k Višnumáje, která byla sestrou Šrí Krišny, nebyla jako taková zařazena do plánu mezinárodních púdží, které děláme.
 

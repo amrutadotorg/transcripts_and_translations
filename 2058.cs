@@ -1,4 +1,4 @@
-Navaratri Puja, "The deities are watching you". Arzier, Geneva (Switzerland), 23 September 1990.
+Navarátri púdža: Božstva vás sledují, 23/09/1990, (nekontrolováno), Arzier, Švýcarsko
 
 Podle kalendáře je tento rok deset dní Navaratri, ne devět.
 

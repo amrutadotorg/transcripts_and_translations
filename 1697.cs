@@ -1,4 +1,4 @@
-Puja for the 67° Birthday, Sydney (Australia), 21 March 1990.
+Narozeninová púdža: Upřímnost, 21/03/1990, Sydney (Australia)
 
 Tolik nadšení po celém světě!
 

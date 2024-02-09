@@ -1,4 +1,4 @@
-2.veřejný program 07/12/1982, Madras, Indie
+2.veřejný program: Zmatek a obyčejní lidé 07/12/1982, (nekontrolováno), Madras, Indie
 
 Klaním se všem, kteří hledají pravdu.
 

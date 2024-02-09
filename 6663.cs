@@ -1,4 +1,4 @@
-Projev k jogínům o dětech 21/09/1990, Girving Ašrám, Švýcarsko
+Projev k jogínům: Dávejte na své děti pozor, 21/09/1990, Girving Ašrám, Švýcarsko
 
 Takže se tu pohybuje mnoho lovců, kteří se snaží získat pižmo, a hledají a hledají kabara.
 

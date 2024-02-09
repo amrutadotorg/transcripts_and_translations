@@ -1,4 +1,4 @@
-Večerní program 22/07/1989, Lago di Braies, Itálie 
+Večerní program před Guru púdžou, 22/07/1989, Lago di Braies, Itálie 
 
 Je nad mé síly, abych v plném rozsahu vyjádřila ohromnou radost, kterou vnímám ve vašich srdcích, a která se odráží v mém srdci.
 

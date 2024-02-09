@@ -1,4 +1,4 @@
-První veřejný program v Praze, 17/11/1991, Československo
+První veřejný program v Praze: Bůh všemocný a Jeho láska, 17/8/1991, Československo
 
 Klaním se všem hledačům pravdy. Na úvod musím říci, že pravda je to, co je. Nemůžeme ji chápat jako pojem, tento pojem nemůžeme vytvořit, ani ho nemůžeme změnit. Bohužel, ani ji nemůžeme poznat s tímto lidským vědomím. Musíme se stát jemnější, subtilnější bytostí, abychom poznali pravdu, což znamená, že musíme být duchem. Proto je nutno chápat, že je to živoucí evoluční proces. Je to živoucí dění v našem nitru, které nás činí duchem, za což nemusíte platit. Nemůžete na to vynaložit žádné úsilí, prostě to funguje, protože jste hledači pravdy. Cokoliv vám teď říkám, musíte tomu naslouchat s otevřenou myslí vědce. Pokud se potvrdí, že to je pravda, jako čestní lidé to musíte přijmout, protože je to pro vaše blaho a pro blaho celého světa. Vidíme zde krásné květy, ale považujeme je za samozřejmé.
 

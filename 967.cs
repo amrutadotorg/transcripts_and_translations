@@ -1,4 +1,4 @@
-1.veřejný program 06/11/1991, Madras, Indie
+1.veřejný program: Dosáhli jste úplné skutečnosti? 06/11/1991, Madras, Indie
 
 Klaním se všem hledačům pravdy.
 
