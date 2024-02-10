@@ -1,4 +1,4 @@
-Shri Krishna Puja. Cabella Ligure (Italy), 1 September 1991.
+Šrí Krišna púdža: Jogéšvára - technika hry, 01/09/1991, Cabella Ligure (Italy)
 
 Dnes jsme se rozhodli uctít Jógešvaru.
 
