@@ -1,0 +1,7 @@
+Navaratri Puja, Birthday of Shri Gauri, Ellenville, New York (USA), 12 October 2003.
+
+Dziś świętujemy Pudźę Shri Gauri.
+
+Przyszła Ona na ziemię wielokrotnie aby zniszczyć ludzi, którzy robili złe rzeczy, którzy próbowali zabić dobrych ludzi. Zrobiła wszystko co było w jej mocy aby to osiągnąć, i dzisiaj świętujemy Jej urodziny. Wszyscy wiecie bardzo dużo o tym, więc nie ma potrzeby powtarzać się, ale musicie wiedzieć, że Ona przyszła na tę ziemię, aby uratować was od wszelkich problemów. Dla Niej byliście ważni, bardzo ważni, ponieważ wykonywaliście Pudźę do Dewi. I właśnie dziś świętujemy Pudźę Dewi, całym waszym sercem. Ponieważ cokolwiek źli ludzie wam zrobili, Ona przyszła aby ich zniszczyć. A więc to jest wspaniały dzień abyście Jej podziękowali; podziękowali Jej za ochronę i za to, że rozumie jak bardzo byliście torturowani. Jestem szczęśliwa, że jesteście tu aby świętować Jej urodziny, i aby oddać się Jej tak, aby mogła zawsze, zawsze was chronić i dawać wam błogosławieństwa. A więc niech Bóg was wszystkich błogosławi, wasze dzieci, wasze rodziny, abyście osiągnęli ogromną radość i ochronę. To bardzo miłe z waszej strony, że przybyliście dziś z tak daleka.
+
+Jestem bardzo szczęśliwa, że was widzę. Co więcej, mamy także jutrzejszy dzień aby świętować. Dzisiaj nie będzie żadnych pytań i odpowiedzi, po prostu będziemy czcić Boginię, to wszystko i poprosimy Ją aby nas chroniła przed wszystkimi problemami z którymi się mierzymy. Bardzo wam dziękuję.
