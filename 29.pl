@@ -92,4 +92,4 @@ z całego serca i chcę, żebyście szanowali samych siebie i zrozumieli, jak
 
 A jak to działa? Uwaga powinna być przeniesiona od wszystkich tych nonsensownych, przyziemnych rzeczy – na siebie. Powinna to być bardzo dynamiczna siła, która powinna zadziałać. Jestem pewna, że w przyszłym roku będzie inaczej. Będziemy mieć wszystkie piękne błogosławieństwa Boskości. Musimy to robić wspólnie i zrozumiale.
 
-Niech was Bóg błogosławi. 
+Niech was Bóg błogosławi.

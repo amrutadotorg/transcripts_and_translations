@@ -83,4 +83,4 @@ Więc dzisiaj, przy tej wielkiej okazji, musimy poczuć radość w naszych s
 
 Niech was Bóg błogosławi. 
 
-Ogłoście teraz wszystkim narodom, że Ja jestem Duchem Świętym i przybyłam na ten szczególny czas, który jest czasem zmartwychwstania. 
+Ogłoście teraz wszystkim narodom, że Ja jestem Duchem Świętym i przybyłam na ten szczególny czas, który jest czasem zmartwychwstania.

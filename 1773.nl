@@ -158,4 +158,3 @@ Kom maar hier, met z’n vieren tegelijk. Nu, wie zijn deze vier? Zij zal het wa
 [6] avaduta: krachtige, hooggeëvolueerde, gerealiseerde ziel die een meester is
 
 [7] punya's: de vruchten van goede daden in ons leven, die bijdragen aan het Karma ( = universele principe van actie en reactie; “wat men zaait, zal men oogsten”)
-

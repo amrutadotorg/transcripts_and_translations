@@ -23,7 +23,7 @@ Zo ontstond deze lange evolutie. Deze evolutie moest op deze wijze plaatsvinden,
 
 Wij moeten weten dat wij ontstaan zijn uit de natuur en zelfs de natuur moet beseffen dat zij van Moeder Aarde voortkomt, en Moeder Aarde beeft zelf haar eigen Kundalini. zij is geen dode aarde, maar zij weet, zij denkt, zij begrijpt en zij ordent.
 
-In de natuur kan je zien hoe elke boom zijn eigen grenzen heeft, hoe elke vrucht op een bepaalde boom groeit. Hoe gebeurt dat? Wie zorgt voor deze ordening? Als Moeder Aarde sneller zou bewegen dan op dit ogenblik, zouden wij zelfs niet geboren zijn. Als de snelheid lager lag, zou dit niet tot stand zijn gekomen. Kijk naar het hele plan. Het is een mooi plan, dat moeder Aarde zo rond de zon beweegt dat verschillende seizoenen ontstaan. Daarom wordt de kracht, de Paramchaitanya, die de kracht is van de Adi Shakti, ook Rytambara Pragya genoemd.
+In de natuur kan je zien hoe elke boom zijn eigen grenzen heeft, hoe elke vrucht op een bepaalde boom groeit. Hoe gebeurt dat? Wie zorgt voor deze ordening? Als Moeder Aarde sneller zou bewegen dan op dit ogenblik, zouden wij zelfs niet geboren zijn. Als de snelheid lager lag, zou dit niet tot stand zijn gekomen. Kijk naar het hele plan. Het is een mooi plan, dat moeder Aarde zo rond de zon beweegt dat verschillende seizoenen ontstaan. Daarom wordt de kracht, de Paramchaitanya, die de kracht is van de Adi Shakti, ook Rytambara PrAgnya genoemd.
 
 Deze kracht verwekt al het leven, alle organisatie en de gehele schepping.
 

@@ -98,4 +98,4 @@ Niech was Bóg błogosławi.
 
 Jednym z imion Devi jest także Nirmala, ponieważ oznacza "czysty", także w dzisiejszych czasach ludzie mówią o Khalsa i Khalistanie. Khalis oznacza "czysty". Khalistan to miejsce, gdzie muszą się usadowić czyści ludzie, czyli Sahaja yogini. Twierdzono, że tylko lud Khalis oznacza ludzi czystych muszą tworzyć Khalistan, a nie ci, którzy są agresywni lub głupi. Jest przeznaczone dla ludzi, którzy są Sahaja yoginami. 
 
-Mówiono o Sahaja yoginach. Święci nigdy nie powiedzieliby, że ci brutalni ludzie powinni mieć swój Khalistan. Tak więc, jak to nazywają, "Nirmalici" są ludem Khalistani i są to Khalsowie. Tak błędnie nazywani pod wpływem Vishnumayi. 
+Mówiono o Sahaja yoginach. Święci nigdy nie powiedzieliby, że ci brutalni ludzie powinni mieć swój Khalistan. Tak więc, jak to nazywają, "Nirmalici" są ludem Khalistani i są to Khalsowie. Tak błędnie nazywani pod wpływem Vishnumayi.

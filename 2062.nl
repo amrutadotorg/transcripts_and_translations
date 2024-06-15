@@ -51,4 +51,3 @@ De puja van vandaag zal maar heel kort zijn, we zullen niet zo'n lange puja houd
 [1] maya: illusie, verwarring
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-

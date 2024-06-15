@@ -26,4 +26,4 @@ Mogłabym bez końca mówić o miłości, ale największą rzeczą jest o
 
 Nie sądzę, żeby ten temat był dla was ludzi zbyt subtelny. Wszyscy osiągnęliście pewien poziom zrozumienia tej miłości. Mam nadzieję, że ona wzrośnie i wy wzrośniecie w niej, każdy z was, i będziecie się nią cieszyć. 
 
-Niech was Bóg błogosławi. 
+Niech was Bóg błogosławi.

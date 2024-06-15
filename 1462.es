@@ -132,4 +132,4 @@ Por todas partes. Frótalas así por todas partes, en todos los dedos. Decidlo
 
 Sin sentiros culpables, eso es muy importante. El sari de Vishnumaya es muy bonito. Muestra dos tipos de nubes y luces entre medias. Es francés. Qué gran significado. Un sari francés para Vishnumaya. Decid simplemente: “Vishnumaya”. Eso es todo. Hoy no es el puja a Shiva. Y sin su Puja, ¿Cómo podéis tomar su nombre? 
 
-Decid sólo: “Vishnumaya, twameva sakshat Shri Vishnumaya”. Que Dios os bendiga a todos. Con el nombre de Shiva mis dos pies se han quedado completamente congelados. Muy bien. Muy bien, haced namaskar. Que Dios os bendiga a todos, que Dios os bendiga a todos, que Dios os bendiga a todos 
+Decid sólo: “Vishnumaya, twameva sakshat Shri Vishnumaya”. Que Dios os bendiga a todos. Con el nombre de Shiva mis dos pies se han quedado completamente congelados. Muy bien. Muy bien, haced namaskar. Que Dios os bendiga a todos, que Dios os bendiga a todos, que Dios os bendiga a todos

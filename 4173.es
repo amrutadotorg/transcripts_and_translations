@@ -10,7 +10,18 @@ Si estáis atados a un gran globo, ¿cómo vais a sumergiros en el mar? Es imp
 
 Hace mucho tiempo tuve una experiencia en Puna con los propietarios de un local. Decían: "No podemos permitir aquí un programa de Shri Mataji porque Ella no es un brahmín". Los sahaja yoguis contestaron: "Muy bien, diremos al periódico que no permitís el programa solo porque Shri Mataji no es brahmín". Finalmente, estas mismas personas, vinieron a mi programa. El propietario estaba sentado arriba, en una galería. No podía caminar, tenía una extraña enfermedad. Había un grupo de personas que estaban temblando. Yo no sabía que eran ellas, las que habían protestado por el programa. Nadie me había dicho nada. Las manos les temblaban muchísimo.
 
-- "¿Qué ocurre?"- les pregunté.- "¡Madre, detén esto, por favor! Sabemos que eres la Adi Shakti pero, basta, basta, detenlo por favor".- "Pero, ¿qué habéis hecho?"- les dije.- "No hemos hecho nada. Simplemente dijimos que este local era especialmente para brahmines, de hecho en toda esta zona solo residen brahmines. Por eso dijimos que quizá no podrías dar aquí este programa".- "¿Eso es todo? ¿De verdad?"- "Sí, sí, eso es todo".- Les dije: "Mirad allí, esa gente tiembla igual que vosotros, deben tener vuestro mismo poder". Les pregunté: "¿Sois también brahmines?"- Contestaron: "No, somos locos certificados del Centro psiquiátrico Thana".- "¿Y cómo es que habéis venido al programa?"- "Porque un enfermo del centro estaba realmente loco y Tú lo curaste; el equipo médico nos ha traído hasta aquí porque también nuestro diagnóstico es de locura".Los brahmines me miraban fijamente.- Les dije: "Ellos tiemblan de la misma manera, comparad". ¿Cuál es la conclusión? Ahora son todos sahaja yoguis y, no solo eso, el señor que no podía caminar estaba en la galería de arriba y le dije: "Levántate y ven hasta aquí". Desde aquel día ofreció toda su vida a Sahaja Yoga y ha hecho muchísimo trabajo en Puna.
+- "¿Qué ocurre?"- les pregunté.
+- "¡Madre, detén esto, por favor! Sabemos que eres la Adi Shakti pero, basta, basta, detenlo por favor".
+- "Pero, ¿qué habéis hecho?"- les dije.
+- "No hemos hecho nada. Simplemente dijimos que este local era especialmente para brahmines, de hecho en toda esta zona solo residen brahmines. Por eso dijimos que quizá no podrías dar aquí este programa".
+- "¿Eso es todo? ¿De verdad?"
+- "Sí, sí, eso es todo".
+- Les dije: "Mirad allí, esa gente tiembla igual que vosotros, deben tener vuestro mismo poder". Les pregunté: "¿Sois también brahmines?"
+- Contestaron: "No, somos locos certificados del Centro psiquiátrico Thana".
+- "¿Y cómo es que habéis venido al programa?"
+- "Porque un enfermo del centro estaba realmente loco y Tú lo curaste; el equipo médico nos ha traído hasta aquí porque también nuestro diagnóstico es de locura".
+Los brahmines me miraban fijamente.
+- Les dije: "Ellos tiemblan de la misma manera, comparad". ¿Cuál es la conclusión? Ahora son todos sahaja yoguis y, no solo eso, el señor que no podía caminar estaba en la galería de arriba y le dije: "Levántate y ven hasta aquí". Desde aquel día ofreció toda su vida a Sahaja Yoga y ha hecho muchísimo trabajo en Puna.
 
 Lo que os quiero decir con este ejemplo es que todas las personas que tienen la costumbre de decir en Sahaja Yoga: "esto no está bien, no debería ser así, no deberíamos dar tanto dinero, este líder tiene problemas...", deberían coger un folio, ponerlo sobre la palma de la mano y sentarse ante la foto. Si las manos dejan de temblar, entonces están bien. Deberíais hacerlo todos. Poned el folio sobre la mano derecha. Es una prueba muy práctica. Si la mano tiembla quiere decir que "Mister Ego" tiembla. Ya sabéis cómo tratar el ego en Sahaja Yoga. Mahoma nos lo ha enseñado. [Zapateo].
 
@@ -45,4 +56,3 @@ Hoy tengo que repetiros por milésima vez que os miréis a vosotros mismos: vu
 Esto es lo que os pido hoy, que celebréis vuestro propio cumpleaños; ved lo que habéis conseguido y lo que vais a conseguir. Es momento de celebrar vuestro cumpleaños, no el mío. Yo estaré encantada de celebrar vuestro cumpleaños.
 
 Que Dios os bendiga.
-

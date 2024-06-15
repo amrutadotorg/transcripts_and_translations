@@ -125,5 +125,3 @@ En om de schoonheid van de Leela te introduceren, begon hij met Ras. Ra is energ
 Hoe zal die plek er dan uitzien? En daarom denk ik, dat als je anderen probeert aan te trekken met al deze domme dingen, alleen de bhoots worden aangetrokken en ze dringen in je binnen. En eens ze binnenin je zijn, doe je rare dingen; je weet niet waarom je je zo gedraagt, waarom dingen op die manier uitwerken. Daarom moeten we beseffen dat we voor God aantrekkelijk moeten zijn. En voor God ben je enkel aantrekkelijk als je je spirit hebt. Alleen als de spirit schittert, dan krijg je het.
 
 Moge God jullie zegenen
-
-H.H. Shri Mataji Nirmala Devi

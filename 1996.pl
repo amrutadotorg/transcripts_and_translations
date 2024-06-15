@@ -17,4 +17,3 @@ Prezydent Ameryki, George Bush, również Mnie rozpoznaje. Ostatnio napisałam
 Sankranti oznacza moc słońca. Moc słońca oznacza pewność siebie. Słońce daje nam gorąco i światło. Teraz od nas zależy, czy przypieczemy się gorącem słońca czy też nabierzemy pewności siebie od słonecznego światła i będziemy promienni.
 
 Wieczne błogosławieństwo dla was wszystkich.
-

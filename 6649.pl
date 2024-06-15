@@ -55,4 +55,4 @@ Mówimy "Ojcze Nasz". Dlaczego? Po co? Czym jest "Ojcze Nasz?" – Jest mantra�
 
 Bardzo dziękuję. Chciałabym, abyście zadali mi jakieś pytania zanim przejdziemy dalej. 
 
-Niech Bóg błogosławi was wszystkich. 
+Niech Bóg błogosławi was wszystkich.

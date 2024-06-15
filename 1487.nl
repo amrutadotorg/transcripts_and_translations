@@ -171,4 +171,3 @@ Shri Mataji: Zo ongelooflijk lief.
 [4] shakti: primordiale (oorspronkelijke) kracht, moederlijke oerkracht
 
 [5] gana’s: strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
-

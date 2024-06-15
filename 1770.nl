@@ -178,4 +178,3 @@ Wat is dit? Is zij helemaal van Oostenrijk gekomen? Ah! Uit Oostenrijk! Heel erg
 [9] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 [10] Ganapati: bevelhebber van de gana’s, Heer Ganesha
-

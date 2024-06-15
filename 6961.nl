@@ -2,6 +2,7 @@ Interview - OVER HAAR JONGE JAREN – Wenen - 9 juli 1986
 
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+
 Q.: Wat waren de omstandigheden waarin U opgroeide?
 
 Shri Mataji: Mijn familie?

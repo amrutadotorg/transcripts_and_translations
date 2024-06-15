@@ -150,5 +150,4 @@ Ale co Ja robię? Co takiego robię? Nic. Nic nie robię, nie myślę, nie 
 
 Jak na przykład czakra Nabhi zajmuje się trawieniem - nie martwcie się, co powinniście jeść, żeby strawić. Po prostu odwiążcie się od tego. Po prostu sprawdzajcie wibracje i jedzcie, to co jest. Strawicie to. I wtedy staniecie się prawdą. Prawdą, która jest Miłością, która jest Bogiem. 
 
-Niech was wszystkich Bóg błogosławi 
-
+Niech was wszystkich Bóg błogosławi

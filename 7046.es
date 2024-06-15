@@ -35,5 +35,3 @@ Tenemos que estar preparados para todo de una manera muy dulce, muy agradable. A
 Así que vamos a ver, hoy es el comienzo de este entendimiento entre nosotros, de que no vamos a crecer exigiendo, pidiendo, preocupándonos por nosotros mismos, sino que vamos a disfrutar, simplemente disfrutar, y esto es lo que falta en algunas personas y por eso no pueden disfrutar. Se preocupan todo el tiempo de cómo llegarán allí, cómo vendrán aquí, cómo está organizado, qué es esto, qué es aquello. Relajáos y las cosas funcionarán para vosotros. Así es como vais a disfrutar de la vida.
 
 ¡Que Dios os bendiga!
-
-H.H. Shri Mataji Nirmala Devi

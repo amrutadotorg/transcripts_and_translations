@@ -213,7 +213,3 @@ Geloof in zijn kracht, heb geloof in je Moeder.
 Dat is de boodschap van Shri Ganesha.
 
 Moge God jullie zegenen
-
- 
-
-H.H. Shri Mataji Nirmala Devi

@@ -80,4 +80,3 @@ Jullie moeten iets verkrijgen, dat is je recht. Je neemt het beter aan.
 Moge God jullie allen zegenen.
 Over de chakra's en zo meer: we hebben wat documentatie die je zelf kan bekijken en lezen zodat je het kan begrijpen.
 Is dat er? Laten we nu dus onze handen zo leggen en we zullen het uitwerken.
-

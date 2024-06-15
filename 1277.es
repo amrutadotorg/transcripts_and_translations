@@ -42,7 +42,7 @@ Todo se complementa. De este lugar tenéis que aprender algo, de aquel lugar te
 
 O donde no se han movido para nada por la religión o por Dios y han estado estancados, como por ejemplo en África y todos esos sitios, podría ser que el condicionamiento haya venido por otras fuerzas, llamadas "Adibhautik", que significa: "Lo que ha sido creado a raíz de lo que Dios ha creado". Por ejemplo, si ven la Luna, tienen miedo de la Luna; si ven los árboles, tienen miedo de los árboles. Una serie de ideas míticas sobre la naturaleza misma. Por tanto, hay dos estilos, como sabéis. Uno es el que crea ideas míticas sobre la naturaleza, el lado mítico de la naturaleza, es decir, "Adibhautik" y "Adidaivik" que son las ideas míticas sobre lo que podéis producir. Vosotros sois Dios, sois devas, y queréis crear esto. "Yo soy esto, yo soy aquello".
 
-Así que, hay dos tipos de condicionamientos que están operando, y en estos tiempos modernos es algo tan confuso que no sé dónde actúa uno u otro. Por ejemplo, el otro día pasé cerca del cementerio en Viena y me sorprendió que fuera un cementerio, pues sentí bloqueado el Swadisthan derecho. Dije: "Todos los bhuts deben estar muy activos ahora, porque no entiendo cómo un cementerio puede tener Swadisthan derecho". Esta podría ser la explicación, que todos los bhuts están ahora activos o que quizá hayan nacido de nuevo. Deben haber muerto cientos de veces y deben haber construido más y más tumbas, pero ahora solo hay tumbas vacías y ellos están activos. O quizá los mismos bhuts están activos y ya no están ahí, han desaparecido todos de ahí. Podría ser eso.
+Así que, hay dos tipos de condicionamientos que están operando, y en estos tiempos modernos es algo tan confuso que no sé dónde actúa uno u otro. Por ejemplo, el otro día pasé cerca del cementerio en Viena y me sorprendió que fuera un cementerio, pues sentí bloqueado el Swadishthan derecho. Dije: "Todos los bhuts deben estar muy activos ahora, porque no entiendo cómo un cementerio puede tener Swadishthan derecho". Esta podría ser la explicación, que todos los bhuts están ahora activos o que quizá hayan nacido de nuevo. Deben haber muerto cientos de veces y deben haber construido más y más tumbas, pero ahora solo hay tumbas vacías y ellos están activos. O quizá los mismos bhuts están activos y ya no están ahí, han desaparecido todos de ahí. Podría ser eso.
 
 Así que, ahora tenemos que juzgar con las vibraciones y no con nuestro entendimiento o con lo que pensamos o con lo que entendemos con este cerebro. Haciendo preguntas y hablando demasiado sobre ello no podéis entender Sahaja Yoga.
 
@@ -164,7 +164,7 @@ Solo las mujeres casadas. Lo han de hacer mujeres casadas. Bien. Todas las mujer
 
 (...)
 
-Así está bien. Que Dios os bendiga a todos. "Akhanda saubhagya". Esta es la bendición otorgada a todas las mujeres casadas: "Que vuestro "saubhagya" permanezca libre de cualquier obstáculo toda vuestra vida". No habrá obstáculos en vuestra vida de casadas mientras viváis.
+Así está bien. Que Dios os bendiga a todos. "Akhanda saubhAgnya". Esta es la bendición otorgada a todas las mujeres casadas: "Que vuestro "saubhAgnya" permanezca libre de cualquier obstáculo toda vuestra vida". No habrá obstáculos en vuestra vida de casadas mientras viváis.
 
 Que Dios os bendiga.
 
@@ -234,7 +234,7 @@ El perfume Khus lo podéis usar todos los sahaja yoguis. Limpia vuestro Vishudd
 
 Dejad que lo haga mientras sostengo la espada. Sostendré la espada en esta mano (hindi).
 
-(Un sahaja yogui pide leer el Lalita Sahastraranama)
+(Un sahaja yogui pide leer el Lalita Sahasraranama)
 
 Los 108 nombres. ¿Tenemos copias de los 108 nombres? Pero podéis traducirlo.
 

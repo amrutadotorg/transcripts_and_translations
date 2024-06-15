@@ -91,4 +91,3 @@ Je hebt dus geen angst. Het feit dat je geen angst hebt terzijde gelaten, ook de
 Tegenwoordig vinden de mensen het zeer moeilijk om voor Sahaja Yoga tijd te vinden, om Sahaja Yoga te verspreiden – zij kijken uit naar de vakantie. Wat het ook is, wat er ook gebeurt, ik ben er van overtuigd dat jullie met de grote krachten die jullie hebben, zeer veel succes, zeer veel succes kunnen behalen. En dit succes kan de visie die ik heb om de mensheid in de hele wereld te redden, vooruithelpen.
 
 Moge God jullie zegenen!
-

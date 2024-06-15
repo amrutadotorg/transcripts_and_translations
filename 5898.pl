@@ -36,4 +36,4 @@ A dzisiaj jest dzień Pujy do Guru, to nie jest moja Puja, ale wasza Puja jako 
 
 To jest to, co macie robić. To jest to, czym wszyscy chcieliście być. Zatem bądźcie pewni siebie, bądźcie radośni, bądźcie szczęśliwi i wiedzcie, że wszystkie moje moce was ochronią, moja Miłość was odżywi, moja natura napełni was spokojem i radością.
 
-Niech was Bóg błogosławi. 
+Niech was Bóg błogosławi.

@@ -224,4 +224,3 @@ Leg nu diezelfde hand dwars op je voorhoofd en zeg: “Moeder ik vergeef iederee
 [10] bhanda’s: spiersamentrekkingen die de Kundalini energie op een bepaalde manier kanaliseren
 
 [11] kechari: techniek waarbij de tong in de mondholte naar achter wordt gekruld en het gehemelte raakt
-

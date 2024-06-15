@@ -161,4 +161,3 @@ Moge God jullie zegenen!
 [11] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga
 
 [12] Guru Tattwa: het guru principe, de essentie van het meesterschap
-

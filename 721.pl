@@ -30,6 +30,4 @@ Tak więc, to jest wspaniała cecha, dla której jest ten wyjątkowy dzień.
 
  Jeśli znajdziecie kogoś, kto was rani, sprawia kłopot lub torturuje, co zrobicie? Po prostu wybaczcie. Po prostu wybaczcie. To jest jedyny sposób. Dlatego dzisiejszy dzień jest bardzo ważny dla nas. Jestem tak bardzo szczęśliwa, to jest wspaniałe miejsce i mogę mówić do was. 
 
-Dziękuję. 
-
-H.H. Shri Mataji Nirmala Devi
+Dziękuję.

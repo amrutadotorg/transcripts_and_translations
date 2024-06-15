@@ -1,4 +1,5 @@
 DIWALI PUJA - Lissabon - Portugal. - 10 november 1996.
+
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 

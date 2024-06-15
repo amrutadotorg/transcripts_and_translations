@@ -22,4 +22,4 @@ W ten sam sposób spróbujcie zrozumieć, że to co robicie jest bardzo św
 
 Teraz usłyszycie nazwiska tych, którzy pozostali, większość z nich już ogłaszaliśmy, wyczytujemy tych, którzy pozostali. Niestety kobiet jest zawsze więcej niż mężczyzn. To stwarza pewną trudność, więc nikt nie powinien czuć się rozczarowany. Jestem pewna, że to się później wypracuje. 
 
-Niech was Bóg błogosławi. 
+Niech was Bóg błogosławi.

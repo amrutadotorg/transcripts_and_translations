@@ -196,4 +196,3 @@ Kom nu. Vestig jezelf. Zeg gewoon: "Moeder, kom in mijn hoofd. Meer niet."
 [4] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 [5] Logos: het ‘Woord’ uit het Johannes evangelie; Om, Aum, Amen, de Logos of het Woord hebben dezelfde betekenis.
-

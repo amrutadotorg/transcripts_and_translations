@@ -152,4 +152,3 @@ Moge God jullie allemaal zegenen.
 [5] alfa: eerste letter van het Griekse alfabet (α)
 
 [6] omega: laatste letter van het Griekse alfabet (ω)
-

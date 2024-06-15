@@ -104,7 +104,7 @@ Leg nu je hand op de achterkant van je hoofd, buig je hoofd naar achteren en zeg
 
 Je moet om vergiffenis vragen. Je zou met je verstand moeten beseffen wat ik ben. Zo moet ik het je niet steeds opnieuw zeggen.
 
-In de Sahastrara moet je mij bedanken: leg je hand op de Sahastrara, maak zeven draaiende bewegingen en bedank mij zevenmaal. “Moeder, dank U zeer voor mijn realisatie. Moeder, dank U om ons te laten inzien hoe edel wij zijn; dank U zeer om ons alle goddelijke zegeningen te schenken; dank U zeer om ons naar een hoger niveau te tillen, veel hoger dan waar we ons bevonden; dank U ook zeer om ons te steunen en te helpen bij het ontwikkelen en het verbeteren van onszelf.
+In de Sahasrara moet je mij bedanken: leg je hand op de Sahasrara, maak zeven draaiende bewegingen en bedank mij zevenmaal. “Moeder, dank U zeer voor mijn realisatie. Moeder, dank U om ons te laten inzien hoe edel wij zijn; dank U zeer om ons alle goddelijke zegeningen te schenken; dank U zeer om ons naar een hoger niveau te tillen, veel hoger dan waar we ons bevonden; dank U ook zeer om ons te steunen en te helpen bij het ontwikkelen en het verbeteren van onszelf.
 
 En uiteindelijk, dank U zeer Moeder dat U op deze aarde bent gekomen, dat U hier Uw geboorte genomen hebt en dat U zo hard voor ons werkt - voor ons allemaal.”
 
@@ -129,4 +129,3 @@ Ik denk dat jullie nu kunnen dineren, en na het avondeten zal er een muziekprogr
 [3] maya: illusie, onwerkelijkheid
 
 [4] bandhan: bescherming
-

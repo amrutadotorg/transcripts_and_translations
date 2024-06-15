@@ -68,7 +68,7 @@ Jaka jest dla nas korzyść? Żadna. Wydajecie tyle pieniędzy, żeby przyc
 A najgorsze co się stało jest to, że całkowicie rządzi nimi pieniądz. Pieniądze są kolejną stroną Saraswati. Saraswati różni się od Lakshmi. A więc Lakshmi i Saraswati nigdy nie idą ręka w rękę, i z tego właśnie powodu, jeśli oni zabiegają o łaskę Lakshmi i za bardzo gonią za pieniędzmi, to doznają szoku. Ponieważ nagle notowania na giełdach spadły albo przychodzi recesja, albo biznes plajtuje, i nagle człowiek, który był bardzo bogaty, staje się biedny. To wszystko jest dziełem Saraswati. 
 A jeśli ktoś za bardzo interesuje się Saraswati, czyta za dużo książek, jest artystą, który jest bardzo ambitny i stara się zaćmić innych artystów itd. Taka osoba również dostaje "nagrodę" od Lakshmi, np. jego rzeczy w ogóle się nie sprzedają, nigdy nie otrzymuje pieniędzy, głoduje, wszelkie takie rzeczy. 
 
-A więc te dwie rzeczy są w równowadze tylko w Hamsie albo możemy powiedzieć, że są one w równowadze, kiedy jesteś Sahaja yoginem. Więc trzeba to osiągnąć i zrównoważyć, aby mieć błogosławieństwa zarówno Saraswati jak też Lakshmi. Ale one się krzyżują tylko w punkcie Hamsy i w punkcie Vishudhi. A więc to co mamy zrobić, aby osiągnąć tę równowagę to to, że w jakikolwiek sposób zarabiamy, cokolwiek robimy - nie powinniśmy tego robić w sposób przeciętny. Powinniśmy starać się to robić w sposób dynamiczny i żarliwy. 
+A więc te dwie rzeczy są w równowadze tylko w Hamsie albo możemy powiedzieć, że są one w równowadze, kiedy jesteś Sahaja yoginem. Więc trzeba to osiągnąć i zrównoważyć, aby mieć błogosławieństwa zarówno Saraswati jak też Lakshmi. Ale one się krzyżują tylko w punkcie Hamsy i w punkcie Vishuddhi. A więc to co mamy zrobić, aby osiągnąć tę równowagę to to, że w jakikolwiek sposób zarabiamy, cokolwiek robimy - nie powinniśmy tego robić w sposób przeciętny. Powinniśmy starać się to robić w sposób dynamiczny i żarliwy. 
 Te dwie rzeczy powinny być połączone na poziomie Vishuddhi. 
 
 Powiedzmy, że masz wygłosić wykład na temat Sahaja Yogi w płomienny sposób, ale nosisz ubranie jak hippis albo jak ktoś, kto wyszedł z więzienia, nikt nie będzie traktował cię poważnie. Ale jeśli jesteś odpowiednio ubrany, i twój wygląd wzbudza szacunek, i masz dobrą prezencję i do tego wygłosisz żarliwą mowę, wszyscy będą słuchać. 
@@ -87,4 +87,4 @@ Przyroda jest absolutną jednością z Boskością. Teraz widzicie, jak tyl
 
 I to powinno się zdarzać, że staniecie się rzeczywiście wciągnięci w Sahaja Yogę, całkowicie jej oddani, tylko wtedy to zaistnieje. 
 
-Niech was wszystkich Bóg błogosławi. 
+Niech was wszystkich Bóg błogosławi.

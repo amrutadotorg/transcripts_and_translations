@@ -71,7 +71,3 @@ Het is iets dat heel goed begrepen moet worden dat de kracht binnenin je, die ji
 Dit is zeer belangrijk omdat deze heer naar hier komt in september, en hij gaat ze allemaal analyseren. Het zou dus heel aardig zijn van jullie als je ze naar hier kan sturen. Schrijf ook over de verschillende ervaringen die je in Sahaja Yoga hebt gehad; dat ook zou een goed idee zijn. Hij zei me dat hij graag een boek daarover zou publiceren; en nu is de tijd gekomen voor ons om onze mirakels die hebben plaatsgevonden te publiceren. Jullie allen hebben enige ervaring van het miraculeuze gehad. Dus moet ik jullie vragen om het zo vlug mogelijk op te zenden, goed geschreven in het Engels of Hindi of Marathi daar ik geen andere talen begrijp. En gelieve het mij niet in andere talen op te sturen, anders moeten we iemand aanduiden om het in veertien talen te vertalen. Dat is te moeilijk. Dus verzoek ik jullie om het zo op te sturen. Ik ben zeker dat jullie de toespraak van vandaag opnieuw zullen beluisteren, de toespraak begrijpen en het uitwerken.
 
 Moge God jullie zegenen.
-
- 
-
-H.H. Shri Mataji Nirmala Devi

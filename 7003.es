@@ -47,5 +47,3 @@ The meaning has to come from the practices not from the percepts. This is what S
 May God bless you!
 
 MUCH LONGER PART IN HINDI STILL NEEDS TRANSCRIBING
-
-H.H. Shri Mataji Nirmala Devi

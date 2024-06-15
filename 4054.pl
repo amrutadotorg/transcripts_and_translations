@@ -48,7 +48,7 @@ W Rosji mamy 200 lekarzy, którzy praktykują Sahaja Yogę, która rozprzest
 
 Wiecie, że Grecy są ludźmi, którzy również nastawieni są na pieniądze. Nie w takim stopniu oczywiście, jak Amerykanie, ale są dość zorientowani na pieniądze. Także Włosi są bardzo nastawieni na pieniądze, ale najgorsza jest korupcja. Włochy są obecnie demaskowane. Jestem pewna, że wasz kraj również będzie zdemaskowany. Wszystkie te kraje będą zdemaskowane. Ale Sahaja yogini powinni być przede wszystkim stanowczymi ludźmi, Powinni być bardzo, bardzo mocnymi i powinni wiedzieć, że Sahaja Yoga jest skierowana tylko na Ducha, na nic innego tylko na Ducha, byście mieli swego Ducha oświeconego, aby wasz Duch przepracowywał wszystko, abyście nie byli ani tym ciałem, tymi pieniędzmi, tym stanowiskiem tą władzą, niczym, tylko Duchem. To jest to, co koniecznie trzeba wiedzieć. 
 
-Powiedziano Mi, że bardzo trudno jest wam przyjechać na puje do Cabelli, wszyscy nie mogą się przyłączyć, ale jeden tydzień, możecie wziąć na Guru puję, myślę. Możecie przypłynąć statkiem lub czymś podobnym, łatwiej dla was będzie przypłynąć do Genui statkiem a wtedy możemy zorganizować wasze przybycie. Powinniście przyjechać na Guru puję. Widzicie Sahastrara puja i Guru puja są bardzo ważne. A gdybyście przybyli na Guru puję, to byłby bardzo dobry pomysł. Myślę, że to może być ułożone i zorganizowane, abyście mogli przybyć na Guru puję. 
+Powiedziano Mi, że bardzo trudno jest wam przyjechać na puje do Cabelli, wszyscy nie mogą się przyłączyć, ale jeden tydzień, możecie wziąć na Guru puję, myślę. Możecie przypłynąć statkiem lub czymś podobnym, łatwiej dla was będzie przypłynąć do Genui statkiem a wtedy możemy zorganizować wasze przybycie. Powinniście przyjechać na Guru puję. Widzicie Sahasrara puja i Guru puja są bardzo ważne. A gdybyście przybyli na Guru puję, to byłby bardzo dobry pomysł. Myślę, że to może być ułożone i zorganizowane, abyście mogli przybyć na Guru puję. 
 
 Wiem, że tam, gdziekolwiek jestem, przypuśćmy tutaj, wtedy dla całej reszty ludzi będzie daleko. Więc właśnie pomyślałam o Mediolanie będącym całkiem w środku i bliżej Anglii, bliżej do innych europejskich krajów. Widzicie, Amerykanom z USA i Ameryki Łacińskiej sprawia to trudność, więc tym razem musieliśmy dostarczyć wszystkie bilety, wszystko, aby Amerykanie z Ameryki Łacińskiej przybyli. Ale oni są bardzo głębocy. 
 
@@ -95,6 +95,4 @@ Oczywiście, nie potrafimy powiedzieć, ilu ludzi się uratuje. To kolejny pu
 
 W ten sam sposób, wiele ludzkich istot może się zagubić z powodu własnej głupoty, z powodu nawyków samounicestwiających, które powstały. Ale wasza odpowiedzialność jest bardzo wielka. Nie myślcie, że jesteście przeciętnymi ludźmi do niczego. Nigdy, nigdy tak nie myślcie. Wy wszyscy jesteście świętymi i jesteście zdolni do wielkich czynów! 
 
-Niech was Bóg błogosławi. 
-
-H.H. Shri Mataji Nirmala Devi.
+Niech was Bóg błogosławi.

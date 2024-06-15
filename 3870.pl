@@ -78,13 +78,13 @@ Co się z tobą dzieje? Co to ma być? Chodź i usiądź tutaj. Po tej str
 
 Przykro mi, że musiałam to powiedzieć, w trakcie omawiania postaci Shri Ramy. Shri Rama nie powiedziałby tego. W Sahaja Yodze jednak nie można ciągle zachowywać się jak Shri Rama. Czasami trzeba być także jak Parashurama, bo inaczej to nie zadziała. A teraz, kiedy dalej omawiamy Jego charakter, który był tak piękny, odkrywacie, że był osobą bardzo konsekwentną. Cokolwiek powiedział, przez całe życie trzymał się tego. Na przykład, powiedział: "Jestem tym, który uznaje jedną żonę, aika patni vrat”. 
 
-Bez wątpienia, On miał bardzo miłą żonę, bardzo piękną żonę, ale Ona była u Ravany i On został sam. Kiedy oni chcieli zacząć pewien rodzaj yagya zwany Rajasurya yagya, który oznaczał podbój całego świata, wtedy powiedzieli Mu: "Musisz ożenić się, bo musisz mieć żonę”. 
+Bez wątpienia, On miał bardzo miłą żonę, bardzo piękną żonę, ale Ona była u Ravany i On został sam. Kiedy oni chcieli zacząć pewien rodzaj yAgnya zwany Rajasurya yAgnya, który oznaczał podbój całego świata, wtedy powiedzieli Mu: "Musisz ożenić się, bo musisz mieć żonę”. 
 
-On powiedział: "Nie, nie mogę się ożenić, bo nikt nie mógłby być taki, jak moja żona, więc nie mogę się ożenić. Mogę przeprowadzić ten rodzaj yagya, ale nie mogę ponownie się ożenić”. 
+On powiedział: "Nie, nie mogę się ożenić, bo nikt nie mógłby być taki, jak moja żona, więc nie mogę się ożenić. Mogę przeprowadzić ten rodzaj yAgnya, ale nie mogę ponownie się ożenić”. 
 
 Wtedy powiedzieli: "Dobrze, ale jedna rzecz, jaką możesz zrobić, to wykonać posąg Sity ze złota i użyć posągu jako reprezentacji żony”. On powiedział: "Na to się zgodzę”.
 
-Zdjął wszystkie swoje ozdoby, wszystko, wykonał ten posąg i przeprowadził rytuał yagya. Tak więc cokolwiek powiedział, całkowicie trzymał się tego. W swojej dharmie był perfekcyjny. 
+Zdjął wszystkie swoje ozdoby, wszystko, wykonał ten posąg i przeprowadził rytuał yAgnya. Tak więc cokolwiek powiedział, całkowicie trzymał się tego. W swojej dharmie był perfekcyjny. 
 
 Ale kiedy Sita zaginęła, On nigdy nie spał. Nigdy nie spał w łóżku, zawsze na Matce Ziemi. Nigdy nie spał w łóżku, zawsze na Matce Ziemi. Ból, jaki odczuwał z powodu swojej żony został bardzo dobrze opisany przez wszystkich poetów Indii. A kiedy Sita ostatecznie opuściła Go w bardzo mistyczny sposób, zniknęła po prostu w Matce Ziemi, bowiem Matka Ziemia Ją zrodziła, tak więc Ona zniknęła w Matce Ziemi, wtedy Shri Rama całkowicie się zagubił, wskoczył do rzeki Sarayu i zniknął w elemencie wody, z którego pochodził. Ten człowiek musiał porzucić swoją żonę.
 

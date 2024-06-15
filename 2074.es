@@ -69,4 +69,3 @@ Se los explicaré a Gavin que es vuestro líder en Inglaterra. Luego él os l
 Habéis visto en India que a las mujeres no les gusta que nadie intente mirarlas, o tocarlas, no les gusta. Las mujeres se han matado y quemado ellas mismas, miles de ellas, porque pensaban que otros podrían venir y tocar su cuerpo. Está muy relacionado con vuestro Atma, con vuestro Espíritu. Como si fuera el cuerpo, la inocencia es el cuerpo de vuestro Espíritu. Todas podéis ser así, porque ahora os habéis convertido en yoguinis. Antes no había yoguinis, pero conocían una cosa, el poder de su castidad. Aquí es más para las mujeres, que deberían intentar generar ese sentimiento de nobleza, castidad, y santidad a su alrededor, para que los hombres las respeten y desarrollen ese sentimiento en su interior.
 
 Muchas gracias.
-

@@ -1,6 +1,6 @@
 Nowa Era – Poświęcenie, Wolność, Wzrost Człowieka, 06.02.1985, Bordi, Indie
 
-Jestem niezmiernie szczęśliwa widząc was wszystkich tutaj. Nie wiem, co powiedzieć z Mojej strony. Słowa giną, nic nie znaczą. Tak wielu z was dąży do osiągnięcia tego stanu pełnego szczęścia, błogości i spokoju. To jest to, co mogę wam dać. Matka jest tylko wtedy szczęśliwa, gdy może dać swoim dzieciom wszystko to, co ma. Jej zmartwienie, cały jej niepokój, to wszystko jest tylko po to, by osiągnąć ten cel - podarować wszystko to, co ona posiada. Nie wiem, jak mam dziękować wam wszystkim, że przeszliście przez to wszystko, aby dostać się do tego skarbu, który drzemie wewnątrz was. "Sahaj" to jedyne słowo, które pozostało w Mojej świadomości, kiedy rozpoczęłam manifestować otwarcie Sahastrary. Dotychczas było to łatwe do zrozumienia dla wszystkich. Ale zauważyliście, że mamy dzisiaj inny styl yogi, w którym najpierw otrzymujecie oświecenie, a potem macie możliwość sprawowania opieki nad wami samymi.
+Jestem niezmiernie szczęśliwa widząc was wszystkich tutaj. Nie wiem, co powiedzieć z Mojej strony. Słowa giną, nic nie znaczą. Tak wielu z was dąży do osiągnięcia tego stanu pełnego szczęścia, błogości i spokoju. To jest to, co mogę wam dać. Matka jest tylko wtedy szczęśliwa, gdy może dać swoim dzieciom wszystko to, co ma. Jej zmartwienie, cały jej niepokój, to wszystko jest tylko po to, by osiągnąć ten cel - podarować wszystko to, co ona posiada. Nie wiem, jak mam dziękować wam wszystkim, że przeszliście przez to wszystko, aby dostać się do tego skarbu, który drzemie wewnątrz was. "Sahaj" to jedyne słowo, które pozostało w Mojej świadomości, kiedy rozpoczęłam manifestować otwarcie Sahasrary. Dotychczas było to łatwe do zrozumienia dla wszystkich. Ale zauważyliście, że mamy dzisiaj inny styl yogi, w którym najpierw otrzymujecie oświecenie, a potem macie możliwość sprawowania opieki nad wami samymi.
 
 Nigdy wcześniej tego nie robiono. Udało się to osiągnąć wyłącznie dzięki przedsięwzięciu waszej Matki, która [to] wypracowała. Poza tym, w dawnych czasach troska Boga skupiała się na oświecaniu ludzi. On nie wiedział jak to wypracować. Żadna boska inkarnacja nigdy nie próbowała zrobić tego w ten sposób. Lecz kiedykolwiek oni próbowali to robić, tworzyli dla poszukiwaczy drastyczne trudności - bardzo drastyczne trudności. Jestem ciekawa, jak wielu z was czytało opracowanie naukowe na temat Buddy, o jego podróżach z tysiącem uczniów, bez dawania Realizacji. Oni nie byli Zrealizowanymi Duszami, robili to bez odczuwania jakiejkolwiek radości, ich ubiór składał się z dwóch ubrań, a mieszkali w dżunglach. Tylko dwie pary ubrań! A to miejsce odwiedzane przez Niego, które sama miałam okazję zobaczyć, jest przerażająco zimne, ziąb, absolutnie dotkliwe zimno.
 
@@ -91,9 +91,9 @@ Musicie stać się słodkimi, miłymi ludźmi, lecz jednocześnie bardzo, ba
 Niech was Bóg błogosławi ponownie!
 Proszę medytujcie.
 Zamknijcie oczy! Po prostu zamknijcie oczy!
-Skierujcie obie dłonie w Moją stronę. Skupcie waszą uwagę na Sahastrarze!
-Wasza uwaga powinna być tylko na Sahastrarze.
-Jesteście teraz w Mojej Sahastrarze wy wszyscy. Skupcie waszą uwagę na swojej Sahastrarze.
+Skierujcie obie dłonie w Moją stronę. Skupcie waszą uwagę na Sahasrarze!
+Wasza uwaga powinna być tylko na Sahasrarze.
+Jesteście teraz w Mojej Sahasrarze wy wszyscy. Skupcie waszą uwagę na swojej Sahasrarze.
 Nie ma żadnych myśli, nic.
 Wystarczy tylko skupić swoją uwagę na Mnie... i wystarczy wznieść się do tego punktu.
 Nie odczuwajcie żadnego dramatu w związku z tym. Nie ma nic sztucznego.
@@ -103,8 +103,8 @@ Bądźcie silnymi ludźmi o silnych wartościach, pełnymi godności i rozs
 Cisza, absolutna wewnętrzna cisza.
 Nie ma potrzeby rozmawiać zbyt wiele. Nadmierne paplanie, frywolne pogaduszki - to nie jest wasz styl. Poczujcie w waszym sercu waszą własną godność, wasz własną chwałę, błogość zachowania.
 Wy wszyscy jesteście świętymi, ale świętymi bardzo wysokiej jakości, bardzo wysokiej jakości. Nie takimi zwykłymi.
-Skupcie swoją uwagę na Sahastrarze.
-"Chitta apne Sahastrara tevaitze”. "Apne Sahastrar pe apna Chitta tev" (Marati: skupcie waszą uwagę na Sahasrarze).
+Skupcie swoją uwagę na Sahasrarze.
+"Chitta apne Sahasrara tevaitze”. "Apne Sahasrar pe apna Chitta tev" (Marati: skupcie waszą uwagę na Sahasrarze).
 Jeśli pojawi się jakaś myśl, powiedzcie: "Nie to, nie to, nie to".
 Niech was Bóg błogosławi.
 

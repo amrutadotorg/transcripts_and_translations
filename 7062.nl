@@ -118,4 +118,3 @@ Viratangana: de kracht van de Virata in de hersenen
 [5] Pingala (nadi): rechter energiekanaal; correspondeert met het (rechter) sympathische zenuwstelsel. Kanaal van actie en toekomstgericht denken.
 
 [6] Sushumna: middenkanaal van het subtiele systeem, kanaal van evolutie, kanaal waarlangs de Kundalini opstijgt, correspondeert met het parasympathische zenuwstelsel.
-

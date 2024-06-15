@@ -7,9 +7,9 @@ Ik had gedacht om jullie vandaag te spreken over de problemen van het ego, omdat
 
 In het eerste deel zal ik uitleggen hoe het ego ontstaat en wat dat voor ons betekent; in het tweede hoe we het kunnen begrijpen, hoe we het ego onder de knie kunnen krijgen en hoe we het zijn eigen plaats kunnen geven.
 
-Zoals je op dit schema kunt zien, stelt de gele kleur het ego voor. De gele ballon is het ego. Het begint beneden bij de swadisthan. Dit is de kleur van de gal. En die swadisthan, die staat voor onze creativiteit, is rechtstreeks verbonden met het ego daar. Als deze chakra begint te draaien rond de void en de verschillende delen van de void aandoet, verzamelt hij al de problemen die in de void aanwezig zijn.
+Zoals je op dit schema kunt zien, stelt de gele kleur het ego voor. De gele ballon is het ego. Het begint beneden bij de Swadishthan. Dit is de kleur van de gal. En die Swadishthan, die staat voor onze creativiteit, is rechtstreeks verbonden met het ego daar. Als deze chakra begint te draaien rond de void en de verschillende delen van de void aandoet, verzamelt hij al de problemen die in de void aanwezig zijn.
 
-De void is die groene cirkel binnenin ons waar zich op fysiek vlak de baarmoeder, de nieren, alle ingewanden, het op- en neer-gaand (voedsel)transport in de dikke darm, de lever, vooral het bovenste deel van de lever, de pancreas en de milt bevinden. Alle problemen van deze organen worden door deze chakra opgenomen in zijn beweging. Het komt dus (allemaal) uit de nabhi-chakra voort. Hij (de swadisthan) draait voortdurend rond en neemt alle problemen op. Hij voedt deze organen met vitale energie en brengt ook de energie voort die we nodig hebben voor onze creativiteit. Hij verzamelt ook de vetcellen in de void en zet ze om in aangepaste cellen voor de hersenen, namelijk grijze hersencellen.
+De void is die groene cirkel binnenin ons waar zich op fysiek vlak de baarmoeder, de nieren, alle ingewanden, het op- en neer-gaand (voedsel)transport in de dikke darm, de lever, vooral het bovenste deel van de lever, de pancreas en de milt bevinden. Alle problemen van deze organen worden door deze chakra opgenomen in zijn beweging. Het komt dus (allemaal) uit de nabhi-chakra voort. Hij (de Swadishthan) draait voortdurend rond en neemt alle problemen op. Hij voedt deze organen met vitale energie en brengt ook de energie voort die we nodig hebben voor onze creativiteit. Hij verzamelt ook de vetcellen in de void en zet ze om in aangepaste cellen voor de hersenen, namelijk grijze hersencellen.
 
 Al dit werk moet door één enkele chakra verricht worden. Uitwendig manifesteert hij zich als de plexus van de aorta - op het fysieke vlak noemen we hem plexus van de aorta - en hij heeft zes subplexussen, die al deze organen bedienen.
 
@@ -112,5 +112,3 @@ Vanuit het ego verwacht je iets van anderen; vanuit het superego doe je iets voo
 Moge God julie zegenen!
 
 (1) Humpty-Dumpty is een "personage" uit "Alice in Wonderland" van Lewis Carroll met het uitzicht van een vormeloze klomp.
-
- 

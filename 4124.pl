@@ -104,4 +104,3 @@ Nawet po 100 latach nie przyszłoby mu to do głowy. Ale jak to pojawiło się 
 Oczywiście, powiedziano Mi, że ktoś w Australii robi pieniądze. Australia zawsze stanowiła problem. Oni robią na tym pieniądze, Ja po prostu nie wiem, co powiedzieć, bo Ja tego nie jestem w stanie zrozumieć. Jak oni mogą myśleć, że można robić pieniądze i robić tego typu rzeczy, wszelkiego rodzaju rzeczy nie-Sahaj? W jakiś sposób powoduje to ból głowy. Nie szkodzi, zostawcie to Mi, Ja się tym zajmę, cokolwiek to jest. A wy stańcie się po prostu wielkimi światłami swojej Matki. I o to was proszę tej nocy. Macie wszystkie moce, które płyną przez was, macie światło, które jest oświecone, ale musicie rozwijać się, coraz bardziej, bardziej i bardziej. I będziecie zdumieni tym, co powiedział Tukarama, że "Ja jestem jak drobinka kurzu, a także jestem całym niebem". Taka jest właśnie wasza osobowość. 
 
 Niech was wszystkich Bóg błogosławi.
-

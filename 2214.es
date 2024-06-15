@@ -144,7 +144,7 @@ Creo que hoy, por primera vez, os he dicho algo que siempre dudé hacerlo (ren�
 
 La charla de hoy no debería, de ninguna manera, heriros; porque yo no quiero heriros en absoluto. Acepto la situación que sea, pero si vosotros no queréis aceptar la situación..., ya os he dicho lo que tenéis que hacer. Esto (la aceptación), elevaría vuestro Espíritu muy alto, sin duda. Es muy importante que veáis por vosotros mismos qué problemas tenéis.
 
-Después de todo, sois buscadores desde hace mucho tiempo. Ahora habéis encontrado la Verdad, así que intentad identificaros solamente con la Verdad, eso es todo, y con la Realidad. Si os identificáis con la Realidad y con la Verdad vuestro Sahastrara estará abierto plenamente, sin problemas. La Verdad está en vuestro Sahastrara.
+Después de todo, sois buscadores desde hace mucho tiempo. Ahora habéis encontrado la Verdad, así que intentad identificaros solamente con la Verdad, eso es todo, y con la Realidad. Si os identificáis con la Realidad y con la Verdad vuestro Sahasrara estará abierto plenamente, sin problemas. La Verdad está en vuestro Sahasrara.
 
 Y cuando la Verdad se manifieste, os sorprenderá ver que la Verdad es Amor y que el Amor es la Verdad. Amor Puro. Es algo que da mucho gozo. Podéis tener tantos NIRANANDAS (gozo) como queráis solo si comprendéis esta simple ecuación -que la Verdad Absoluta es igual a Amor Absoluto.
 

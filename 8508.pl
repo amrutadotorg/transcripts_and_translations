@@ -26,7 +26,7 @@ I w Sahaja Yodze wymagane jest noszenie podkoszulka. To jest obowiązkowe. Jaka
 I dla nich wszystkich, obowiązkowe jest także noszenie szalika, kiedy wychodzą w zimie, to jest ważna rzecz. A także wkładanie trochę waty do uszu, tak jak Ja to robię. 
 Ze względu na was, powiedziałam wam, aby ją wkładać, ponieważ brak wam dbałości, więc opiekuję się wami poprzez wkładanie jej do uszu, w ten oto sposób. Wszyscy powinniście wkładać ją przed wyjściem. 
 
-I zakładajcie coś na głowy w nocy, kiedy śpicie, zakładajcie coś na głowy, a potem kładźcie się spać. Ponieważ przez większość czasu wasze ciało pozostaje okryte, ale głowa już nie. Teraz jesteście Zrealizowanymi Duszami a wasza Sahastrara jest słaba, więc musicie opiekować się swoją Sahastrarą. Okrywajcie głowy, aby nie mieć żadnych problemów. 
+I zakładajcie coś na głowy w nocy, kiedy śpicie, zakładajcie coś na głowy, a potem kładźcie się spać. Ponieważ przez większość czasu wasze ciało pozostaje okryte, ale głowa już nie. Teraz jesteście Zrealizowanymi Duszami a wasza Sahasrara jest słaba, więc musicie opiekować się swoją Sahasrarą. Okrywajcie głowy, aby nie mieć żadnych problemów. 
 
 Musicie również sprawdzić, jakiego rodzaju osobą jesteście. Jeżeli macie problemy z wątrobą, musicie zastosować odpowiednią dietę, którą mamy tutaj, osoby obecne tutaj, powiedzą wam o niej. 
 Jeśli jesteście osobą lewostronną, jeśli macie lewostronne problemy, wtedy musicie zapoznać się z dietą, którą musicie zastosować. Na przykład, osoba lewostronna w ogóle nie powinna jeść węglowodanów, a przeciwnie, powinna jeść białka, w jakiejkolwiek formie jest to możliwe. 
@@ -53,7 +53,7 @@ Z tego samego powodu, bardzo miękkie jedzenie również nie jest dobre, musi
 Więc tego rodzaju chrupiące dodatki nie są potrzebne. [Jedzenie] powinno być takie, które dba o wasze dziąsła, one są delikatne, poza tym spożywajcie pożywienie, które jest dla was odpowiednie. Nie kierujcie się racjonalnością, nie kierujcie się modą, ale kierujcie się waszym dobrem. I dowiedzcie się o sobie, jaki jest wasz temperament, jaki rodzaj jedzenia wam odpowiada i jakie w związku z tym powinniście jeść. Oczywiście, każdy może robić to co chce, ale my możemy tylko doradzić im, że "to będzie wam odpowiadać" i przekonacie się, że będzie to bardzo przydatne dla was wszystkich, to wam pomoże. 
 
 Na porost waszych włosów, powinniście mieć także wibrowany olej i go stosować. Będziecie zaskoczeni, ostatnio ktoś zobaczył Warrena i zapytał: "Czy to ten sam człowiek? Wygląda znacznie młodziej". Więc powiedziałam: "Tak". Miał łysą głowę stąd do tego miejsca a teraz ma włosy. Przy odpowiedniej pielęgnacji możecie mieć włosy całkiem niezmienione przez jakiś czas, jeżeli o nie zadbacie. Ale włosy są bardzo ważne, nie tyle ich wygląd, ale one są Sahasrarą. 
-Jeśli co tydzień stosujecie olej na waszą Sahastrarę, to będziecie mieć łagodną osobowość, łagodne zachowanie, płynne ruchy, będziecie odnosić się do innych w delikatny sposób. Dlatego jest to bardzo potrzebne. 
+Jeśli co tydzień stosujecie olej na waszą Sahasrarę, to będziecie mieć łagodną osobowość, łagodne zachowanie, płynne ruchy, będziecie odnosić się do innych w delikatny sposób. Dlatego jest to bardzo potrzebne. 
 
 Widzicie, w Indiach jest ważny masażysta, związany z rodziną, on jest bardzo silnym człowiekiem i on przychodzi masować mężczyzn, widzicie, on po prostu siada na nich i naprawdę całkowicie ich wykańcza! Po pierwszej sesji oni są martwi! Następnie on w pełni wykorzystuje ich ciało, naciska ich, siada na nich i naciera ich podczas jednego plaśnięcia! Widzicie, pięciu, sześciu z nich będzie skakać nad pięcioma, sześcioma osobami. Wraz z plaśnięciem oni obracają się. Kiedy przychodzi czas na drugie plaśnięcie osoba jest wykończona! 
 
@@ -67,12 +67,12 @@ Sahaja yogin: Zastanawiałem się tylko nad tym, jakich technik powinniśmy uz
 
 Shri Mataji: Uważam, że każdy sposób jest dobry, ale zawsze róbcie to w kierunku do góry, widzicie? Ruch powinien być w górę, ale używajcie przy tym oleju, inaczej będziecie ciągnąć, będziecie ciągnąć je za włosy. Tak więc używajcie oleju do smarowania w górę. 
 
-Sahaja yogin:I nie zapominajcie o Sahastrarze. 
+Sahaja yogin:I nie zapominajcie o Sahasrarze. 
 
-Shri Mataji: Nie zapominajcie o Sahastrarze. 
-W przypadku dzieci musicie na Sahastrarę nanosić dużo oleju. 
+Shri Mataji: Nie zapominajcie o Sahasrarze. 
+W przypadku dzieci musicie na Sahasrarę nanosić dużo oleju. 
 
-Sahaja yogin: Matko, będziemy potrzebować więcej fryzjerów, ludzi, którzy umieją ścinać włosy, którzy są Zrealizowanymi Duszami, ponieważ dotykają naszej Sahastrary podczas cięcia. 
+Sahaja yogin: Matko, będziemy potrzebować więcej fryzjerów, ludzi, którzy umieją ścinać włosy, którzy są Zrealizowanymi Duszami, ponieważ dotykają naszej Sahasrary podczas cięcia. 
 
 Shri Mataji: Tak. W przeciwnym razie możecie je zapuścić. Co stoi na przeszkodzie? 
 
@@ -124,4 +124,4 @@ Sahaja yogin: Matko, czy możesz wyjaśnić nam techniki wibrowanego cukru i 
 Shri Mataji: Widzicie, ponieważ Bóg obdarzył was wibracjami, moc przepływa teraz przez was, wibracje są obecne. Więc cokolwiek bierzecie z zewnątrz, jest dotykane przez tak wielu ludzi, tak wielu ludzi to tworzyło, a oni mogli mieć dobry umysł lub było z nimi coś nie w porządku, najlepszą rzeczą jest zrobienie nad tym bandhanu przed jedzeniem. Jakikolwiek pokarm spożywacie musicie zrobić nad nim bandhan w ten sposób, trzy razy, tak aby wasze wibracje popłynęły do jedzenia i uczyniły je uświęconym. 
 Ponadto możecie też używać rąk do jedzenia, jeżeli je przedtem umyliście, wtedy to jest w porządku. 
 
-Albo jeśli bierzecie wodę, możecie po prostu położyć tam swoje dłonie, wtedy ona się wibruje, potem ją wypijcie. Ponieważ, tak jest, że wibracje zaczęły przepływać przez wasze dłonie, ale nadal nie rozprzestrzeniają się całkowicie w waszym ciele. Czy rozumiecie mój punkt widzenia? 
+Albo jeśli bierzecie wodę, możecie po prostu położyć tam swoje dłonie, wtedy ona się wibruje, potem ją wypijcie. Ponieważ, tak jest, że wibracje zaczęły przepływać przez wasze dłonie, ale nadal nie rozprzestrzeniają się całkowicie w waszym ciele. Czy rozumiecie mój punkt widzenia?

@@ -614,4 +614,3 @@ puro amor sin ninguna expectativa, nirvajya.
 Os bendigo a todos en este auspicioso día. ¡Qué Dios os bendiga!
 Tened la sabiduría para comprender que Madre ha hablado desde Su corazón, desde Su
 amor, desde Su amor por vosotros. ¡Qué Dios os bendiga! Muchas gracias.
-H.H. Shri Mataji Nirmala Devi

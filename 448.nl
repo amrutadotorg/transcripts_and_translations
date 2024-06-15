@@ -434,6 +434,7 @@ Leer deze wijsheid enkel aan diegenen
 Die hun leven geven aan de heer van de Liefde.
 
  
+
 OM shanti shanti shanti
 
  

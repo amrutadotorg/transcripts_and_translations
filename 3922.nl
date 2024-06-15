@@ -95,5 +95,3 @@ En van die toestand kan je genieten, enkel maar genieten. Wat moet erover gepraa
 Dus nu hoop ik dat je honderd en acht namen hebt van Mahakali, en als je de honderd en acht namen van Mahakali hebt, zullen we zien dat één voor één haar niveaus voor jullie zullen uitwerken, hoe het manifesteert kan je zien in die namen.
 
 Dus nu zullen we eerst de Atharva Sheersha zeggen en dan kunnen we die honderd en acht namen zeggen.
-
-H.H. Shri Mataji Nirmala Devi

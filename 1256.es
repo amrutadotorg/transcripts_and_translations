@@ -1,4 +1,4 @@
-Programa público: "Del Anahata al Sahastrara, convirtiéndose en el Conocimiento". Derby, Reino Unido. 11 de julio de 1982.
+Programa público: "Del Anahata al Sahasrara, convirtiéndose en el Conocimiento". Derby, Reino Unido. 11 de julio de 1982.
 
 Me alegro de que el doctor Warren os haya podido explicar los chakras de los que os hablé ayer, porque en una sola conferencia no se pueden cubrir todos los temas. Si obtenéis la Realización y progresáis bien, podéis escuchar mis charlas, hay cientos de ellas, y entenderéis que el conocimiento es vasto como el océano.
 
@@ -216,7 +216,7 @@ Fui a una iglesia llamada Iglesia Unida, creo que han unido todas las iglesias y
 
 Os sorprendéis cuando la Kundalini asciende, sube hasta este punto [señala la frente] y no puede avanzar más. Entre los cristianos este es el problema, tenéis que pedirles que digan el Padre Nuestro y funciona; es un mantra.
 
-Cuando este centro está obstruido, porque Shri Krishna es el Ser Colectivo, Allah Ho Akbhar significa lo mismo. Tenéis que taparos los oídos con los dedos y decir Allah Ho Akbhar, los que sois almas realizadas, y conseguís que ascienda la Kundalini. Podéis ver la pulsación de la Kundalini en vuestro hueso triangular, podéis ver el ascenso de la Kundalini, podéis sentir cómo vuestra Kundalini sale hacia fuera, en el Sahastrara, que es el punto que atraviesa.
+Cuando este centro está obstruido, porque Shri Krishna es el Ser Colectivo, Allah Ho Akbhar significa lo mismo. Tenéis que taparos los oídos con los dedos y decir Allah Ho Akbhar, los que sois almas realizadas, y conseguís que ascienda la Kundalini. Podéis ver la pulsación de la Kundalini en vuestro hueso triangular, podéis ver el ascenso de la Kundalini, podéis sentir cómo vuestra Kundalini sale hacia fuera, en el Sahasrara, que es el punto que atraviesa.
 
 Por tanto, pasáis a través de la puerta de Cristo, quien absorbe estas dos entidades y deja el camino libre aquí. Una vez la Kundalini asciende a través del Agnya os quedáis sin pensamientos.
 

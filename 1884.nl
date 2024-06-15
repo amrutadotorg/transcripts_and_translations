@@ -1,6 +1,7 @@
 Guru Puja "Sla je aandacht gade" Cabella, Italië 16/07/1995
 
  ETVD: Unknown Nl Vertaling: Unknown Versië: 2017-0512
+
  Het is een zeer belangrijke Guru puja vandaag, omdat we al vijfentwintig jaar Guru puja vieren. Ook is het bijzonder mooi om zoveel Sahaja yogi's te zien die werkelijk zeer groot geworden zijn. Het gaat erom te begrijpen wat Sahaja Yoga is. Het is een zeer unieke ontdekking. Ik voel dat mensen die de waarheid zochten, ze nu gevonden hebben en ze gevestigd hebben in hun centraal zenuwstelsel. Het is soms moeilijk uit te leggen hoe het gebeurd is, hoe het uitgewerkt heeft en hoe wij, in deze vijfentwintig jaar, zo'n uitbreiding konden bereiken van Sahaja Yoga. Het belangrijkste, zo voel ik het aan, is dat jullie allemaal zouden moeten weten dat als de boom groeit de wortels veel dieper moeten groeien en dat ze zich ook moeten verspreiden. Als dat niet gebeurt, kan de boom niet overeind blijven, enkel door Moeder Aarde. Dus de wortels bevinden zich in jullie eigen leven, in jullie eigen hart. Als we zeggen dat we onze eigen guru geworden zijn, zouden wij werkelijk moeten proberen uit te zoeken met onze introspectie: zijn wij onze eigen guru of niet? Want daarvóór was jullie geest aan de ene kant en jullie hart was aan een andere kant en jullie aandacht was in nog een andere dimensie. Deze drie dingen veroorzaakten verwarring in je. Als jullie een menselijk wezen (proberen te) begrijpen, dan zullen jullie verbaasd zijn te merken hoe deze drie dingen los van elkaar handelen in een menselijk wezen. En soms vechten ze ook. Eerst is er jullie intellect, jullie geest. Ten tweede is er je hart, je gevoelens, je emoties. En ten derde is er je aandacht.
 
 In deze moderne tijd is deze verwarring het sterkst, omdat jullie aandacht heel de tijd naar de buitenkant gericht is. Ze zou kunnen gericht zijn op mooie dingen, mooie vrouwen of mooie mannen, allerlei soorten onzinnige manieren om je energie te verspillen. Zo'n aandacht is werkelijk te vergelijken met een onbeteugeld paard. Zo'n aandacht kan je niet controleren. Deze aandacht verspringt wild van het een naar het ander. Het is ook een mode. Het is zeer populair om de aandacht heel de tijd in beweging te houden. Maar deze aandacht die op het Goddelijke gericht moet zijn, op de Almachtige, is zo dikwijls afgeleid. Zo'n aandacht kweekt geen eigen wortels. Eerst moet je uitvissen waar je aandacht naartoe gaat. Wat maakt dat je ergens voor zorgt of bezorgd bent? Onze aandacht! Zie je, de (wijze van) aandacht (geven) komt van uiteenlopende problemen. Het kan je opvoeding zijn, waarover je geen controle hebt. Het kan je opleiding zijn. Het kan de atmosfeer zijn waarin je leeft. Of het kunnen je eigen ego of conditioneringen zijn.
@@ -106,7 +107,3 @@ En één van die dingen is dat ik niet gehecht kan zijn. Ik weet niet hoe aand
 Al de wijsheid van een moeder is in jullie, het is er al, dus alsjeblief: gebruik ze. Ik ben er zeker van dat het zal uitwerken en dan zijn we een zeer mooie groep van mensen, die iets totaal onverwachts zijn, die zo zeer in liefde en vreugde samen zijn.
 
 Moge God jullie allen zegenen!
-
- 
-
-H.H. Shri Mataji Nirmala Devi

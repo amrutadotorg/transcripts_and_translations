@@ -11,5 +11,3 @@ Dzisiaj jest dzień rozprzestrzeniania miłości, światła miłości, tak z
 To jest obietnica Diwali dla was wszystkich, że osiągniecie najwyższe i najszlachetniejsze życie. Każde Moje słowo zamanifestuje się, żeby udowodnić, że jest tak jak mówię. Jakiekolwiek są wasze drobne problemy, one zostaną zmyte. To są wiadomości od Boga, nie potrzebujecie martwić się o drobiazgi, o pieniądze, o pracę, to nie jest wasze zadanie. Wasze przeznaczenie to wypracuje. Macie obietnicę, że będziecie pod opieką. Mam nadzieję, że wierzycie w tę obietnicę i jesteście radośni w najwyższy sposób. Błogosławię was wszystkich z całego serca, każdego z was, żebyście mieli bardzo szczęśliwe i dostatnie Diwali.
 
 Bardzo wam dziękuję.
-
-H.H. Shri Mataji Nirmala Devi

@@ -1,4 +1,5 @@
 Shivaratri Puja. Castle Mountain Camps, Wiseman's Ferry, Newcastle, NSW Australia. 26 Februari 1995.
+
 TVD Nl: 2017-0125
 
 Vandaag zijn we hier samengekomen om puja te doen tot Sadashiva.  Degene die in ons weerspiegeld wordt is de Shiva:  de zuivere Spirit.  Deze zuivere Spirit in ons is de reflectie  van God Almachtig – Sadashiva. Het is als de zon die  op het water schijnt en zo een heldere reflectie creëert. Als ze op een steen schijnt  dan geeft dat helemaal geen weerspiegeling. Maar als je nu bijvoorbeeld een spiegel hebt, dan schijnt de zon niet alleen op de spiegel, maar de spiegel zal ook het zonlicht weerkaatsen. Op dezelfde manier wordt in mensen  de reflectie van God Almachtig  tot uiting gebracht naargelang je persoonlijkheid. Als je persoonlijkheid schoon, zuiver en onschuldig is dan kan de reflectie net zo zijn als in een spiegel. Heilige mensen weerspiegelen God Almachtig  op de juiste manier, in de zin  dat hun eigen identificatie met verkeerde dingen er niet langer is. Als die identificatie er niet meer is en iemand volmaakt de zuivere Spirit is,  dan weerkaatst de reflectie van God ook in anderen.
@@ -60,7 +61,3 @@ En nu zie ik  dat ze de meest morele mensen zijn geworden. Het is dus verkeerd n
 Het zou een goed idee zijn om collectieve meditatie uit te proberen, dat zou fijn zijn. Maar je hoeft niemand vibraties te geven  en je hoeft niet op andermans chakra's te werken. Hou je gewoon bezig met jezelf en wat er mis is met jou. En al wat een oplossing brengt  voor jouw groeiproces zou je moeten doen, want de verantwoordelijkheid voor de hele wereld rust op de Sahaja yogi's. Zoals je al weet is er geen andere weg dan Sahaja Yoga. Om de mensheid te redden van allerlei problemen is Sahaja Yoga ontstaan op deze aarde. Het is dus jouw verantwoordelijkheid om jezelf  goed in vorm te houden, wat Sahaja Yoga aangaat. Zorg dat je linker- en rechterkant in balans zijn en verspreid dan Sahaja Yoga; niet door bombastische woorden of agressief gedrag,  maar met liefde en compassie. Ik ben er zeker van dat we al veel hebben gedaan en bereikt, maar toch zijn er hier en daar nog enkele punten  en om die te verbeteren is een heel onaangename taak voor mij. Maar hoe dan ook moet ik zeggen dat het werkt, en dat iedereen naar zichzelf zou moeten kijken en zich gelukkig zou moeten prijzen van hoe ver we zijn gekomen  en hoe ver we nog te gaan hebben.
 
 Moge God jullie allen zegenen.
-
- 
-
-H.H. Shri Mataji Nirmala Devi

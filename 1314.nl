@@ -34,5 +34,3 @@ JE BEHOEFT NIET TE VEEL TIJD TE BESTEDEN AAN MEDITATIE. Maar, hoeveel tijd je oo
 PROBEER DUS GEWOON JE STREVEN TOTAAL ZUIVER TE HOUDEN. JE MOET PROBEREN TE BEGRIJPEN WAT JE STREVEN IS IN EEN LEVEN ALS SAHAJA YOGI. Nu zijn jullie veranderde mensen. Jullie zijn geen mensen meer die met bezittingen omgaan of er zich zorgen over maken, noch over wereldse dingen, noch over levensstijlen. Jullie zijn geen mensen meer die zich te veel zorgen behoeven te maken over je gezondheid en zo, of jullie persoonlijke levens. Jullie behoeven je ook niet zoveel zorgen meer te maken over jullie werk. Dat is niet belangrijk. En als laatste, moet je je geen zorgen maken over je familie, kinderen, echtgenoot, vrouw en zo een reden vinden om jezelf te verbergen. OMDAT HET ENIGE WAAR JE JEZELF ECHT KAN VERBERGEN, DE LIEFDE VAN GOD IS, WAAR JE ECHT HET GROOTSE, RUSTIGE, ZEGENVOLLE GEVOEL VAN ZIJN KOMPLETE BESCHERMING KUNT KRIJGEN.
 
 Moge God jullie zegenen!
-
- 

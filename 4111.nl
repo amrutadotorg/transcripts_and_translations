@@ -149,4 +149,3 @@ Moge God jullie zegenen.
 [3] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht
 
 [4] shloka's:  verzen in het Sanskriet
-

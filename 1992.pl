@@ -47,4 +47,4 @@ Już tu są. Podejdźcie. Czy to Guido? Przybyli Włosi. To dlatego dzisiaj o
 
 Więc mówiłam im o Shri Ganeszy, że Jego podstawowa moc pochodzi z Jego pokory i że wszyscy musimy być niesłychanie pokorni, niesłychanie pokorni, doceniając wszystko. Oczywiście musicie dać im Mój wykład do posłuchania – już go nagrali – tak, żeby wiedzieli, o czym dzisiaj mówiłam. Teraz możemy mieć puję.
 
-Niech Bóg was błogosławi. 
+Niech Bóg was błogosławi.

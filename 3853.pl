@@ -12,7 +12,7 @@ Nawet gdy śpicie, nie powinien wpadać do waszej sypialni nawet jeden promien
 
 Jeśli przebywacie na słońcu, to będziecie mieć albo łysą głowę albo będziecie mieć dżunglę w głowie. Będziecie mieć, jedną z tych rzeczy w zależności od osobowości. Dzieje się tak, bo mózg nie może tego znieść, wasza skóra nie może tego znieść.
 
-W końcu, nie jesteśmy ludźmi z dżungli, prawda? Jeśli spytacie bushmena, to on nigdy nie siedzi na słońcu. Tak robią tylko nieliczni. Zapewne wiecie, że dzisiaj musimy popracować nad Sahastrarą, a Sahastrara jest mózgiem.
+W końcu, nie jesteśmy ludźmi z dżungli, prawda? Jeśli spytacie bushmena, to on nigdy nie siedzi na słońcu. Tak robią tylko nieliczni. Zapewne wiecie, że dzisiaj musimy popracować nad Sahasrarą, a Sahasrara jest mózgiem.
 
 Yogin: Czy hemoroidy są problemem Mooladhary? Hemoroidy?
 

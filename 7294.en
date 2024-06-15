@@ -177,5 +177,3 @@ Yuri Vasiliev: Очень хорошие, замечательные.
 [it’s a banner of sahaja yogis]
 Yuri Vasiliev: Кто сделал эту работу? Очень хорошая. Замечательно!
 Shri Mataji: Congratulations.
-
- 

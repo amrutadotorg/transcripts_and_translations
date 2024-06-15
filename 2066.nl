@@ -120,4 +120,3 @@ Dank jullie allemaal. Jullie moeten daar allemaal iets aanbrengen. Kom maar! Dan
 [14] madhurya: zachtheid, zoetheid, melodieuze lieflijkeid
 
 [15] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
-

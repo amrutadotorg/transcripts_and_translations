@@ -182,4 +182,4 @@ Połóżcie prawą rękę na sercu i zadajcie pytanie: „Matko, czy ja jes
 
 Po pierwsze musicie wiedzieć, że nie jesteście winni i proszę nie miejcie w ogóle poczucia winy w umyśle. Przeciwnie, powinniście powiedzieć: „Matko, nie jestem winny. Matko, nie jestem winny. Matko, nie jestem winny”. Nie jesteście w żaden sposób niczemu winni. Mogli wam mówić, że popełniliście grzechy – zapomnijcie o tym, zapomnijcie to wszystko. To bardzo powszechna praktyka poniżania istot ludzkich. Ci, którzy tak mówią na pewno sami są winni. Nie wierzcie nikomu. Teraz połóżcie prawą rękę na lewej stronie podstawy szyi i powiedzcie: „Matko, nie jestem winny”. 
 
-Teraz tę samą rękę połóżcie na czole i powiedzcie: „Matko, przebaczam wszystkim”. Mówcie to raz za razem. „Przebaczam wszystkim”. Nieprzebaczanie powoduje mocny ucisk. 
+Teraz tę samą rękę połóżcie na czole i powiedzcie: „Matko, przebaczam wszystkim”. Mówcie to raz za razem. „Przebaczam wszystkim”. Nieprzebaczanie powoduje mocny ucisk.

@@ -1,4 +1,4 @@
-8-my Dzień Navaratri (Ashtami) Ubóstwo, 29.09.1979, Shree Sunderbhai Hall, Bombaj, Indie
+8-my Dzień Navaratri (Ashtami) Ubóstwo, 29.09.1979, Shri Sunderbhai Hall, Bombaj, Indie
 
 Shri Vijay Merchant, pan Rakure, wszyscy Sahaja yogini, którzy przybyli tutaj, aby wyrazić swoją miłość do Mnie i do wszystkich innych ludzi, którzy poszukują prawdy. 
 
@@ -124,4 +124,4 @@ Pewnego dnia rozmawiałam z jednym z przywódców politycznych. Powiedziałam:
 
 Mam nadzieję, że dobrze jest, iż mamy dzisiaj tutaj dwóch wspaniałych pracowników socjalnych i Ja kieruję do nich tego rodzaju propozycję. Tak więc w imieniu wszystkich Sahaja yoginów oferujemy wszystkie nasze usługi. Każdą ilość uciskanych ludzi, których macie wyślijcie do naszych ośrodków my się nimi zajmiemy. 
 
-Niech Bóg was wszystkich błogosławi. 
+Niech Bóg was wszystkich błogosławi.

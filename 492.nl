@@ -45,7 +45,3 @@ Ik denk dat het een reflecterend brein is als je naar iets kijkt zal je gedachte
 De meesten van jullie zijn er natuurlijk al, maar toch zou ik zeggen, vergroot dat gedachteloos bewustzijn, dat gebied! Vandaag is zeer belangrijk omwille van Diwali. Diwali wordt verondersteld de dag van de verlichting te zijn. Maar verlichting van binnen betekent: hoe dikwijls ben je in gedachteloos bewustzijn? En alles werkt uit omdat jij er de oceaan van bent, je hebt het binnen in jezelf. je moet er alleen gebruik van maken. Als je er geen gebruik van maakt zal het niet uitwerken. Je moet er gewoon gebruik van maken en je zal versteld staan dat je zo'n bron van vreugde wordt, een bron van geluk, ik zou zeggen, een bron van echte verlichting. De boodschap van vandaag is dus: "Wanneer je mediteert, ga in gedachteloos bewustzijn." Geen enkele gedachte is belangrijk, want zij is je eigen schepping. Maar als je één moet worden met de goddelijke schepping, moet je die staat van gedachteloos bewustzijn betreden, dat is het minimum. Eens dat tot je komt, zal het geleidelijk aan groeien en je zal versteld staan hoe je in staat zal zijn om in Sahaja Yoga enorm te groeien.
 
 Dank jullie zeer!
-
- 
-
-H.H. Shri Mataji Nirmala Devi

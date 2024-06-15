@@ -73,15 +73,3 @@ Para empezar, con esta puja obtendrán la protección de la Madre y cuando mis
 Me gustaría que todos ustedes sintieran que la hacen y así podrán sentir [los beneficios] en unidad, aunque dos gentes estarán a cargo de ejecutarla. De esta manera las bendiciones de mi ser fluirán hacia ustedes automáticamente.
 
 Su Santidad Shri Mataji Nirmala Devi
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 

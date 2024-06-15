@@ -69,4 +69,3 @@ We zullen dus vandaag eerst de voetwassing houden, en ondertussen zullen we de [
 [9] Paramchaitanya: de allesdoordringende kracht van God
 
 [10] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-

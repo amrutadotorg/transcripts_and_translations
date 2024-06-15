@@ -51,4 +51,3 @@ Daarvoor moeten we Puja doen voor de Primordiale Moeder want we moeten proberen 
 Ik ben er zeker van dat we het kunnen, het is niet zo moeilijk. Alleen zijn we zo bewust van het feit dat we Indiërs zijn, Engelsen, Europeanen en zo meer. Maar dat zijn we niet. We zijn gewoon onszelf en dat moeten we bereiken.
 
 Moge God jullie allen zegenen!
-

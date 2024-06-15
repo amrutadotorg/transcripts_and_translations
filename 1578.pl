@@ -68,4 +68,4 @@ Nie ma nic pięknego ponad tym. Tak więc lepiej jest oglądać to co jest t
 
 ...
 
-Ale serce może zostać rozszerzone przez Sahaja Yogę, przez jedną rzecz, przez mówienie: "Matko, przyjdź do mojego serca". Po prostu powiedzcie dwanaście razy, to działa. A dla umysłu, możecie powiedzieć siedem razy, to działa. Jestem dostępna dla was. 
+Ale serce może zostać rozszerzone przez Sahaja Yogę, przez jedną rzecz, przez mówienie: "Matko, przyjdź do mojego serca". Po prostu powiedzcie dwanaście razy, to działa. A dla umysłu, możecie powiedzieć siedem razy, to działa. Jestem dostępna dla was.

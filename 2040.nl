@@ -111,4 +111,3 @@ Ik geef dit water aan jullie allemaal, aan alle leiders, en jullie kunnen er ook
 [3] vibhouti: betekent letterlijk ‘de as waarmee Shiva gedecoreerd is’
 
 [4]          Gyaneshwara: grote heilige en dichter die leefde in de 13de eeuw (1275-97) in Maharashtra, India. Hij  vertaalde o.a. oude spirituele Sanskriet teksten in Marathi zodat deze kennis toegankelijker werd.
-

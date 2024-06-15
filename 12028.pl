@@ -69,4 +69,4 @@ Jestem bardzo szczęśliwa, że wy ludzie zebraliście się tutaj, dla medy
 
 Do tej pory nie widziałam wielu liderów wywodzących się z Indii. Ale kiedy przywódcy zaczną wywodzić się z Indii, możemy powiedzieć, że wtedy drugą pozycję należy dać Australii i Nowej Zelandii. Z Australii i Nowej Zelandii pojawią się wspaniali ludzie. Nie ma wątpliwości. Ponieważ, korzenie mogą być w Indiach. Fundamenty mogą być z Indii, ale drzewo będzie z Zachodu. I w ten sposób Wschód i Zachód utworzą kompletne drzewo Sahaja Yogi, kwitnące i dające owoce. 
 
-Niech was wszystkich Bóg błogosławi. 
+Niech was wszystkich Bóg błogosławi.

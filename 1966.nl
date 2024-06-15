@@ -71,4 +71,3 @@ De lezing van vandaag is een beetje anders, ze is uniek en het is heel vriendeli
 [2] avatar: incarnatie van het goddelijke of van een godheid op de aarde
 
 [3] tantra: instrument; mechanisme van het subtiele systeem. (Het woord tantra wordt vaak verkeerd geïdentificeerd met tantrika’s die de Kundalini als een seksuele energie beschouwen; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga.)
-

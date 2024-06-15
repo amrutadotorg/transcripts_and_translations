@@ -59,5 +59,3 @@ Dankjewel. Moge God jullie zegenen.
 [3] Kali Yuga: ‘Dark Age’; de donkere tijden van (moreel) verval en vernietiging.
 
 [4] Satya Yuga: ‘Golden Age’ of ‘Gouden Tijdperk’. De laatste van een cyclus van (vier) yuga’s of tijdperken van elk duizend jaar waarin de mensheid zijn volledige glorie bereikt; tevens het begin van een nieuwe cyclus.
-
-H.H. Shri Mataji Nirmala Devi

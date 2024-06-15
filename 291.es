@@ -67,5 +67,3 @@ Llegáis a una conclusión lógica y finalmente lo veis claro. Como Adi Shank
 Después de mucho tiempo, el Sahasrara ha sido abierto. Tenemos que abrir nuestro Sahasrara de nuevo a través de nuestro proceso meditativo, entendiéndonos a nosotros mismos y a los demás, o quizá llegando a la conclusión lógica de que ahora no hay otra salida. Hemos llegado al final; toda la lógica ha terminado ahora. Saltad al Océano del Amor y ya está. Una vez que saltáis al océano del amor ya no queda nada por hacer, solo gozar de cada una de sus olas, de cada uno de sus matices, del contacto con este océano. Eso es lo que uno debe aprender razonando que "Sahaja Yoga no es nada más que amor".
 
 Que Dios os bendiga a todos
-
- 

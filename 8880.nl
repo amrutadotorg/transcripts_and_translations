@@ -173,4 +173,3 @@ Voel nu maar eens. Voel je het, boven je hoofd?
 [1] shraddha: volledig vertrouwen, ‘verlicht’ geloof; het soort geloof dat voorkomt uit het kennen/voelen van de realiteit, na de zelfrealisatie
 
 [2] Spirit: het Atma, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
-

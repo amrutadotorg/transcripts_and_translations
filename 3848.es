@@ -92,4 +92,4 @@ Es inglés, ¿verdad? ¡Que Dios te bendiga! Muy bien. Que venga gente australi
 
 Muy bien. Entonces deja que él lo haga. Mirad las vibraciones. Poned vuestras manos. ¿Mejor? ¿Mejor ahora? Muy bien. Que Dios os bendiga a todos. Que Dios os bendiga a todos. Que Dios os bendiga a todos. 
 
-Que Dios os bendiga a todos. 
+Que Dios os bendiga a todos.

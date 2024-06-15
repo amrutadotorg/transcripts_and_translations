@@ -64,4 +64,3 @@ Moge God jullie zegenen.
 [4] guru: meester
 
 [5] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is
-

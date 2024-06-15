@@ -69,4 +69,3 @@ Właśnie im mówiłam, że z hipokryzją i podwójną moralnością nie
 
 [Marathi] 
 Liderzy nigdy nie powinni stawiać na piedestał swoich żon czy mężów, w żadnym wypadku. W przeciwnym razie to może nas całkowicie zrujnować. Lub być może powinniśmy przyjąć zasadę, że nikt, kto ma żonę czy męża, nie zostanie liderem. Któreś z tych albo dzieci. To jest czasami okropne.
-

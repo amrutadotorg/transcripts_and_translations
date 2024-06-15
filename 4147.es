@@ -1,5 +1,6 @@
 Puja de cumpleaños (Hindi). Nueva Delhi (India), 21 de Marzo de 1999
 Parte en Hindi (de los subtítulos)
+
 (Traducción del  Hindi)
 
 Después de ver este amor, mi corazón esta lleno. Y pensar que este amor es algo tan poderoso por el cual muchas personas se sienten atraídas y se  vuelven felices. Esto es algo tan sorprendente. En este Kaliyuga, nadie ha visto la grandeza de este amor. Creo que después de ver esto, todos ustedes deberían aprender a aumentar su amor. Y esto es algo muy fácil. Y lo puedes hacer de esta manera- meditando por la mañana y a la tarde , luego los malos pensamientos en sus mentes que causan celos e ira y uno se siente herido por pequeñas cosas, todos esos pensamientos terminaran. Y luego de eso lo que queda, es Nirmal prem. Con este amor puedes darle al mundo una nueva vida.

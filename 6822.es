@@ -28,4 +28,4 @@ Ahora presten atención a Sahaja Yoga y no a otras cosas. Eso es importante. No
 En India, la costumbre es que la esposa tiene que sentarse al lado del esposo siempre para cualquier cosa, para comer o para cualquier cosa, pero en Inglaterra es al revés. 
 ¿Parejas adolescentes? (es decir: ¿solo 3 parejas?) 
 Porque, nos gustaría tener parejas hoy, ¿de acuerdo? 
-H.H. Shri Mataji Nirmala Devi 
+H.H. Shri Mataji Nirmala Devi

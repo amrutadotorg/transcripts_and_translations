@@ -24,4 +24,4 @@ Dlatego dzisiejszy dzień jest dla nas wspaniały, ponieważ Mahalakshmi tak b
 
 Dzisiaj również są urodziny Gregoire'a. Tak więc chciałabym mu pogratulować, za to, że sprowadził Mnie do Monachium, ponieważ mieliśmy tak wspaniały program. 
 
-Niech Bóg błogosławi was wszystkich. 
+Niech Bóg błogosławi was wszystkich.

@@ -55,5 +55,4 @@ Zatem dziś, pierwszego dnia w Brisbane. Błogosławię was wszystkich, żeby
 
 Zadbamy o wasze dzieci, nie martwicie się. 
 
-Niech was Bóg błogosławi. 
-
+Niech was Bóg błogosławi.

@@ -159,5 +159,3 @@ Es verdad que todo este universo fue creado, todo fue creado y también los ser
  
 
 ¡Qué Dios os bendiga!
-
- 

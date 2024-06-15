@@ -133,5 +133,3 @@ Moge God jullie zegenen. Ik zou jullie vandaag willen ontmoeten, vanavond, indie
 [4] Ruh: ‘Heilige Adem’ uit de Koran; stemt overeen met de ‘Heilige Geest’ of ‘Sanctus Spiritus’ uit de Bijbel.
 
 [5] Paramchaitanya: de allesdoordringende kracht van God
-
-H.H. Shri Mataji Nirmala Devi

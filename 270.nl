@@ -153,9 +153,9 @@ En vandaag moet Ik jullie vertellen dat Christus tot geen enkele religie behoord
 
 Hij volgde geen enkele religie. Hij volgde Zijn eigen spirituele religie.
 
-Toen Hij naar een kerk ging waar mensen waren die aan het discussiëren waren, waren het Joden. Hij ging er heen en Hij sprak met hen. Gisteren zag Ik een prachtig schilderij in de krant afgedrukt staan, een erg mooi beroemd schilderij, waar Christus spreekt met de dokters en Hij houdt en wrijft Zijn linker Swadisthan erg fijntjes en al de dokters, zie je, één van hen luistert naar Hem, één kijkt naar Hem, staart naar Hem, een ander toont een beetje belangstelling voor Hem.
+Toen Hij naar een kerk ging waar mensen waren die aan het discussiëren waren, waren het Joden. Hij ging er heen en Hij sprak met hen. Gisteren zag Ik een prachtig schilderij in de krant afgedrukt staan, een erg mooi beroemd schilderij, waar Christus spreekt met de dokters en Hij houdt en wrijft Zijn linker Swadishthan erg fijntjes en al de dokters, zie je, één van hen luistert naar Hem, één kijkt naar Hem, staart naar Hem, een ander toont een beetje belangstelling voor Hem.
 
-Hij wrijft alleen Zijn linker Swadisthan.
+Hij wrijft alleen Zijn linker Swadishthan.
 
 Het is duidelijk, het is zo duidelijk te zien en nu moeten jullie dus met deze nieuwe verworvenheden boven al deze dingen uitstijgen en we moeten begrijpen dat we erg onafhankelijk van elkaar naar onszelf moeten kijken. We behoren niet meer tot welke religie ook. We behoren tot de religie van God die Sahaja is. En Sahaja is de religie, en zij zal zich slechts uitspreiden wanneer je echt niets anders wordt dan Sahaja.
 

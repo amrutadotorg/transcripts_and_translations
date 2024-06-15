@@ -62,4 +62,4 @@ Musicie zatem uszczęśliwiać swoją Matkę poprzez uszczęśliwianie in
 
 Dziś skrócimy puję, to właśnie dlatego tyle czasu zajęło na górze, by ją skrócić. Zatem czas utracony jest czasem na wieki odzyskanym. 
 
-Niech Bóg Was wszystkich błogosławi. 
+Niech Bóg Was wszystkich błogosławi.

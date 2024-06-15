@@ -40,4 +40,4 @@ Więc odgrywacie bardzo ważną, istotną rolę i należy próbować pop
 
 Dopóki nie osiągniecie tej istotnej jakości, nic się nie wypracuje. Oto, co im mówię: "Musicie wypracować w taki sposób, abyście stali się istotnie oddani Sahaja Yodze. Nie tylko dla siebie, dla rodziny lub swojego kraju, ale dla całego Wszechświata". Więc jesteście nasionami, które stworzą tę wspaniałą atmosferę, która przyniesie wielką zmianę, której oczekujemy od Mahayogi. Bardzo ważne jest, aby zrozumieć, że tak wiele osób mówiło o tym i Ja natknęłam się na książkę, która została napisana 2000 lat temu, która opisuje tę Mahayogę i co się wydarzy. To bardzo ciekawe. 
 Po pujy i havanie, myślę, że pan Chauhan przetłumaczy wam ją i zrozumiecie o czym ona jest. 
-Zatem zacznijmy teraz. 
+Zatem zacznijmy teraz.

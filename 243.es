@@ -1,4 +1,4 @@
-Sahastrara Puja. Cabella Ligure, Italia. 10 de mayo de 1998.
+Sahasrara Puja. Cabella Ligure, Italia. 10 de mayo de 1998.
 Hoy es un gran día al coincidir en él la celebración del Sahasrara y el día de la madre. Creo que esto es un suceso muy sahaja, y lo que tenemos que entender con ello es que el Sahasrara y la cualidad de madre van juntos. Ciertamente el Sahasrara ha sido abierto y tuvo que hacerlo la Madre. Antiguamente todas las personas que vinieron a la tierra intentaron enseñar a la gente el dharma, llevarles al camino del centro, al camino recto del ascenso.
 
 Estas personas probaron todos los medios, todos los métodos que creyeron beneficiosos para cada comunidad en particular, para cada región, cada país. Así, hablaron de ello y surgieron muchos libros. Pero estos libros, en vez de formar gente religiosa, espiritual y de naturaleza armónica, formaron personas que se enfrentaban unas contra otras. Parece absurdo pero así ocurrió. De esta manera todos aquellos libros, todo el conocimiento que había sido entregado, todo fue mal utilizado por los seres humanos; simplemente para alcanzar poder para sí mismos, diría yo.

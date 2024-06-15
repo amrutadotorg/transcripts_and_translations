@@ -139,7 +139,7 @@ Om te beginnen zullen we eerst de Devi vereren, en daarna de Shiva.
 
 [3] Vishnu Tattwa: de essentie, het principe van Shri Vishnu
 
-[4] Brahmadeva: Goddelijk aspect dat in de Swadisthan chakra verblijft; godheid die deel uitmaakt van de drie-eenheid die het universum geschapen heeft. Incarneerde slechts eenmaal in menselijke vorm, als Hasrat Ali, schoonzoon van de profeet Mohammed.
+[4] Brahmadeva: Goddelijk aspect dat in de Swadishthan chakra verblijft; godheid die deel uitmaakt van de drie-eenheid die het universum geschapen heeft. Incarneerde slechts eenmaal in menselijke vorm, als Hasrat Ali, schoonzoon van de profeet Mohammed.
 
 [5] rakshasa:  demon, incarnatie of belichaming van negatieve of duivelse krachten
 
@@ -164,4 +164,3 @@ Om te beginnen zullen we eerst de Devi vereren, en daarna de Shiva.
 [15] akarma: zonder (het gevoel) iets te doen
 
 [16] Mahamaya: grote (opperste) illusie
-

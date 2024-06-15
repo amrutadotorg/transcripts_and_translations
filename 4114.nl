@@ -95,5 +95,3 @@ Met de Kundalini-ontwaking zullen dus al deze mooie kwaliteiten tot uiting komen
 Ik denk dat ik het jullie vandaag zeer duidelijk heb gemaakt welke kwaliteiten al in jullie gevestigd zijn. Ze zijn er. Het zijn geen dharma’s, maar kwaliteiten. Ze zijn er gewoon binnen in jullie. Het enige probleem is dat jullie je aandacht gekeerd hebben naar iets totaal tegenovergesteld, voor de rest zijn al deze kwaliteiten gevestigd binnen in jullie. Ze zijn er al. En niets kan ze vernietigen, behalve jij zelf. Als je ze vernietigd hebt, kan niemand je nog helpen.
 
 Moge God jullie allen zegenen!
-
-H.H. Shri Mataji Nirmala Devi

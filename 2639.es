@@ -114,4 +114,4 @@ Él es el que es elegido. Él está despierto en todos los sahaja yoguis. É
 
 Él es adorado por nuestra Madre. Él es adorado por nuestra Madre. ¿Veis? Él es muy particular. Que Dios os bendiga. ¿Habéis entendido el significado de eso? La descripción de Mahalakshmi, lo que Ella os da, y también la descripción de su relación con Vishnu, con Hari, que es Shri Krishna. Dice que Ella es la amada de Shri Krishna (Hari). Ella es la amada de Shri Krishna, y así es como explica que Mahalakshmi, si Ella es María, entonces María es Radha. Esto tienen que hacerlo chicos que no tienen la atención en el matrimonio o que no piensan en ello. 
 
-Tiene que ser así de puro. 
+Tiene que ser así de puro.

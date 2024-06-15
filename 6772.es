@@ -80,13 +80,13 @@ Hay, veis, cuatro estados de vuestro sonido, cuando ... para, pashanti, madhyama
 
 No, no, gunas virtudes no. Gunas significa modo, temperamento, talante; cualidades. Veis, tamo guna, rajo guna y satya guna: Él está más allá. Él lo ha trascendido. Para Él no hay nada como el pecado. Todo lo que hace es Divino ... "Tú estás más allá de Tu cuerpo" ... "Tú estás más allá del tiempo" ... Mooladhara Chakra ... "Tú eres los tres poderes". Tres poderes. Trigunatmika significa estos tres poderes: Mahalakshmi, Mahasaraswati, Mahakali ... "Por encima". Todo el tiempo ...
 
-Él es el Creador. Él es el Soporte. Él es también el protector. Él es el que destruye ... Indra es el Dios de los Dioses ... Él es el sonido de Dios, Aumkara ... Él es el conjunto de todo eso.
+Él es el Creador. Él es el Soporte. Él es también el protector. Él es el que destruye ... Indra es el Dios de los Dioses ... Él es el sonido de Dios, Omkara ... Él es el conjunto de todo eso.
 
 Gana significa todos los seres celestiales del lado izquierdo, se llaman ganas, ¿veis? El líder es San Miguel, y Él está incluso antes que ellos, ha nacido incluso antes que ellos. Él está incluso más elevado que ellos ... Veis, esto es el Alfa y la Omega: eso es Él, Él es la primera Palabra creada, y Él es la última Palabra, Él está por encima de la última Palabra que es creada.
 
 El bindu os da salvación ... Ved las vibraciones, No sé si podéis verlas. Parecen como comas, "anusvarah" es comas. Son como pequeñas comas, si pudiérais verlas.
 
-Mirad todo el Aumkara: primero es Ga-karah, es Ganapati, Ga. "Ga-karah purva-rupam": lo primero, veis, toma la forma de Ganesha al principio, "purva-rupam”, Ganesha está en eso. Después se toma la forma de Aumkara ... Y lo último es cuando se convierte en una coma.
+Mirad todo el Omkara: primero es Ga-karah, es Ganapati, Ga. "Ga-karah purva-rupam": lo primero, veis, toma la forma de Ganesha al principio, "purva-rupam”, Ganesha está en eso. Después se toma la forma de Omkara ... Y lo último es cuando se convierte en una coma.
 
 El sonido son los mantras. Para conocerle a través de los mantras, tenéis que aprender el Ganesha-vidya, el conocimiento de Jesús. Si tenéis que conocer los mantras, tenéis que hacerlo a través del conocimiento de toda su ciencia, que es el conocimiento de Ganesha, o podéis decir el vidya de Ganesha, significa la técnica de Ganesha. Y si tenéis que saber cómo funcionan los mantras, esta es la ciencia. La ciencia se llama Ganesha-vidya, es toda Su ciencia ... Por eso Él es llamado Ganaka, Ganaka-rishihi, por eso se Le llama así, porque Él es el maestro de eso. Él es el maestro del arte de los mantras, los sonidos.
 

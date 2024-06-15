@@ -137,4 +137,3 @@ Zeg hen ook er niet over te spreken. Het gaat je verstand voorbij. Wees stil. Di
 [4]  spondylitis: de ziekte van Bechterew, haken vormende ontsteking van de wervelkolom
 
 [5] Paramchaitanya: de allesdoordringende kracht van God
-

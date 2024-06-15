@@ -79,5 +79,3 @@ Dat moeten we zijn. Als je dit land wil redden, moet je dat zijn. Geen ruzie, ge
 Er is geen affiche nodig. Jullie zijn degenen die Sahaja Yoga zullen promoten. leder van jullie zou moeten begrijpen dat jullie leven heel belangrijk is op deze tweesprong. En je moet die speciale persoon worden die de realiteit weerspiegelt door de goddelijke liefde.
 
 Moge God jullie zegenen.
-
-H.H. Shri Mataji Nirmala Devi

@@ -45,4 +45,3 @@ Moge God jullie zegenen voor deze puja.
 Ik hoop dat jullie het allemaal op die manier aannemen dat het meest subtiele in jullie opgewekt zal worden, de gevoeligheid op welke manier ook, en de liefde die een hoogtepunt bereikt in de vreugde. Liefde die bloeit in de geurigheid van de vreugde zal zich in de puja van vandaag manifesteren.
 
 Moge God jullie zegenen.
-

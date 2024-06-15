@@ -113,7 +113,7 @@ Nu, dus eerst en vooral moeten we zelfvertrouwen hebben in onszelf, we moeten re
 
 Als je de Spirit bent, dan word je je eigen meester. Dus leg nu alsjeblieft je hand aan de linkerkant op het bovenste gedeelte van je buik, en druk er stevig op. Stel hier nu opnieuw een vraag: "Moeder, ben ik mijn eigen meester?" Vraag het drie keer, alsjeblieft, in je hart, met vol vertrouwen: "Moeder, ben ik mijn eigen meester?" Je bent het, maar stel mij gewoon de vraag.
 
-Ik respecteer jullie vrijheid, en ik kan jullie de zuivere kennis niet opdringen, jullie moeten erom vragen. Dus nu moet je je rechterhand op het lagere gedeelte van je buik leggen, druk er stevig op, aan de linkerkant. Nu moet je hier zeggen: "Moeder, geef mij alsjeblieft de zuivere kennis - shuddha vidya." "Shri Mataji, geef mij shuddha vidya." Zeg het alsjeblieft zes keer, want dit centrum heeft zes bloembladen, het Swadisthan centrum. "Geef mij alsjeblieft shuddha vidya - zuivere kennis."
+Ik respecteer jullie vrijheid, en ik kan jullie de zuivere kennis niet opdringen, jullie moeten erom vragen. Dus nu moet je je rechterhand op het lagere gedeelte van je buik leggen, druk er stevig op, aan de linkerkant. Nu moet je hier zeggen: "Moeder, geef mij alsjeblieft de zuivere kennis - shuddha vidya." "Shri Mataji, geef mij shuddha vidya." Zeg het alsjeblieft zes keer, want dit centrum heeft zes bloembladen, het Swadishthan centrum. "Geef mij alsjeblieft shuddha vidya - zuivere kennis."
 
 Zodra je om zuivere kennis vraagt, begint de Kundalini op te stijgen. Maar je moet haar beweging vergemakkelijken door je hogere chakra's te openen door middel van je zelfvertrouwen. Dus breng nu alsjeblieft je rechterhand naar het bovenste gedeelte van je buik en druk er stevig op, aan de linkerkant. Hou je voeten los van elkaar. Hier moet je tien keer zeggen, met vol vertrouwen in jezelf: "Moeder, ik ben mijn eigen meester." Zeg dat alsjeblieft, "Moeder, ik ben mijn eigen meester." "Moeder, ik ben mijn eigen guru." Want al de grote guru's, satguru's, hebben dit centrum gecreëerd voor je spirituele groei. En een Moeder wil altijd dat haar kinderen niet alleen hebben wat zij heeft, maar dat ze veel meer zouden hebben dan zij.
 
@@ -178,4 +178,3 @@ Breng morgen alsjeblieft jullie vragen mee. Breng alsjeblieft jullie vragen mee,
 [17] Kundalini: primordiale, moederlijke levensenergie, die opgerold in het heiligbeen verblijft
 
 [18] darshan: fysieke aanwezigheid van een goddelijke incarnatie
-

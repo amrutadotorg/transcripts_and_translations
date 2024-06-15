@@ -84,7 +84,7 @@ Grégoire: Estaba intentando no hablar demasiado alto, porque los vecinos se ha
 
 Bhur es el principio causal de la tierra y se expresa al nivel del chacra Mooladhara.
 
-Bhuva es el principio causal del cosmos y expresa así la creación y el chacra al cual se corresponde es el Swadhisthana.
+Bhuva es el principio causal del cosmos y expresa así la creación y el chacra al cual se corresponde es el Swadishthana.
 
 Swaha, como sabéis, corresponde al elemento fuego que consume, que tiene ese poder de consumir, así como el chacra Nabhi consume los elementos en el fuego de la digestión.
 

@@ -534,6 +534,6 @@ Shri Raktadantika, prosimy,
 zniszcz siły zła, które stworzyły materializm
 
 Om Twameva Sakshat Shri Kalki Sakshat
-Shri Sahastrara Swamini
+Shri Sahasrara Swamini
 Moksha Pradayini Mataji
 Shri Nirmala Devi Namoh Namaha.

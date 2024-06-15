@@ -169,4 +169,3 @@ Moge God jullie zegenen!
 [7] bandhan: bescherming
 
 [8] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
-

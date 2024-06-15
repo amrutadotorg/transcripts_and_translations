@@ -20,7 +20,11 @@ Aby zrozumieć życie, rozważcie przypadek czegoś co jest żywe – kieł
 
 Są to:
 
-Przywspółczulny układ nerwowyWspółczulny układ nerwowy (prawy)Współczulny układ nerwowy (lewy)Centralny system nerwowy (co nie musi być omawiane, ponieważ jest obiektywne)Wiązka promieni pada na kość ciemiączka (na szczycie głowy zwanym Taloo), przebija ją w centrum i przechodzi do rdzenia przedłużonego przez kanał Sushumna. Następnie, po opuszczeniu cieniutkiego jak nitka rdzenia przedłużonego, osiada w trzech i pół zwojach w kości trójkątnej u podnóża rdzenia kręgowego (Mooladhar). Ta spiralnie zwinięta energia zwana jest Kundalini. Subtelna energia wchodzi przez centrum mózgu (Sahasrara Brahmarandhra) i na swojej drodze w dół wytrąca kolejnych sześć centrów.
+Przywspółczulny układ nerwowy
+Współczulny układ nerwowy (prawy)
+Współczulny układ nerwowy (lewy)
+Centralny system nerwowy (co nie musi być omawiane, ponieważ jest obiektywne)
+Wiązka promieni pada na kość ciemiączka (na szczycie głowy zwanym Taloo), przebija ją w centrum i przechodzi do rdzenia przedłużonego przez kanał Sushumna. Następnie, po opuszczeniu cieniutkiego jak nitka rdzenia przedłużonego, osiada w trzech i pół zwojach w kości trójkątnej u podnóża rdzenia kręgowego (Mooladhar). Ta spiralnie zwinięta energia zwana jest Kundalini. Subtelna energia wchodzi przez centrum mózgu (Sahasrara Brahmarandhra) i na swojej drodze w dół wytrąca kolejnych sześć centrów.
 
 Materialną manifestacją tej subtelnej energii w kanale Sushumna w rdzeniu kręgowym, jest Przywspółczulny układ nerwowy. Centra czakr są odzwierciedlone na zewnątrz rdzenia kręgowego jako sploty. Zaskakująco, ilość splotów i pod-splotów na zewnątrz rdzenia odpowiada ilości czakr i ich płatków wewnątrz rdzenia kręgowego.
 

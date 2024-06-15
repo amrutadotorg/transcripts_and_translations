@@ -138,4 +138,4 @@ Zatem musimy poświęcić się oczyszczaniu siebie, swojej gloryfikacji, pon
 
 Tak wiele punktów dziś poruszyliśmy. Mam nadzieję, że posłuchacie tego jeszcze raz, ponieważ wykłady Mataji wchodzą jednym uchem a wychodzą drugim. Dzięki Bogu mamy sposób, żeby je odszukać. Mam nadzieję, że weźmiecie te taśmy i będziecie ich słuchać codziennie jedna po drugiej a także działać, nie planować na papierze czy tylko mówić. To powinno dotrzeć do waszego serca. To jest sposób, w jaki my wszyscy staniemy się dojrzałymi, pięknymi dziećmi. Mam nadzieję, że C.P. zostanie znowu wybrany na cztery lata, a potem będę musiała wyjechać, zostało zaledwie 3 lata, czas szybko zleci i potem już nie będę w stanie tak często przyjeżdżać do Wielkiej Brytanii. Taka ogromna odpowiedzialność na was ludzie. Mam nadzieję, że będziemy wspólnie świętować jeszcze kilka Diwali. 
 
-Niech Bóg was błogosławi. 
+Niech Bóg was błogosławi.

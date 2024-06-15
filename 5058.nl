@@ -39,5 +39,3 @@ Kijk: er is geen gedachte; probeer je verstand eens te vinden in je! Kijk nu! Wa
 [4] pranayama: (oefeningen voor) het beheersen van de ademhaling
 
 [5] laya: (verlichte) aandacht
-
-H.H. Shri Mataji Nirmala Devi

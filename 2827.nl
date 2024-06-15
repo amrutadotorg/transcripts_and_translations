@@ -93,5 +93,3 @@ Hij zegt dit: “Dit is uw dienaar, alles goed en wel, maar hij moet bepaalde di
 Ik ben blij dat jullie er konden zijn. En het heeft zo mooi gewerkt dat ik hier zou komen om over Shri Rama te spreken, en mijn wens voor jullie allemaal is dat jullie hem volgen. Respecteer jezelf! En het is jouw verantwoordelijkheid om goed te zijn, om zo te zijn, om het op die manier op te lossen.
 
 Moge God jullie zegenen.
-
-H.H. Shri Mataji Nirmala Devi

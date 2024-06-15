@@ -119,6 +119,4 @@ Prawdziwa religia da wam równowagę i zawsze będzie ona mówić o wzroś
 
 Kiedy rozwiniecie to rozróżnienie poprzez świadomość wibracyjną lub przez inteligencję, będziecie pod swoją własną kontrolą, wtedy stajecie się siłą Ekadasha Rudry, kiedy umocnicie swoją dojrzałość. 
 
-Dzisiaj błogosławię Was wszystkich, żebyście wszyscy stali się Ekadasha Rudrą i żebyście rozwinęli tę szczerość, która doprowadzi was do tego stanu. 
-
-H.H. Shri Mataji Nirmala Devi
+Dzisiaj błogosławię Was wszystkich, żebyście wszyscy stali się Ekadasha Rudrą i żebyście rozwinęli tę szczerość, która doprowadzi was do tego stanu.

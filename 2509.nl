@@ -80,4 +80,3 @@ Moge God jullie allen zegenen.
 [19]madhura, madhurya: zachtheid, zoetheid, melodieuze lieflijkheid (o.a. in onze relaties en onze omgang met elkaar)
 
 [20]gopa's en gopi's: de koehoedsters en koeherders die dansten met Shri Krishna en zijn vele krachten symboliseren
-

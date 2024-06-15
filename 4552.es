@@ -41,11 +41,3 @@ Este es el poder que está dentro de nosotros mismos, que piensa, regula nuestr
 Sahaja Yoga, que está ahora en tiempos modernos, Yo he reactivado y canalizado, que es como podéis llamarlo, como quiera que lo llaméis, tiene una nueva forma, es la religión práctica que explicará todas las religiones y todos los grandes líderes del Kaliyuga. Os dará las bases, las bases prácticas, las bases auténticas, las bases objetivas para probar la existencia de la Verdad. Que está descrita en todas las Escrituras. Es absolutamente científico, incluso un niño puede entenderlo.
 
 ¡Qué Dios os bendiga!
-
-H.H. Shri Mataji Nirmala Devi
-
- 
-
- 
-
- 

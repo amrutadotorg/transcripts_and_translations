@@ -3,7 +3,7 @@ Toespraak tot Sahaja Yogi’s - Europa en de lever - 20/06/1981 - Parijs, Frankr
 Translation not verified. Dear yogi, register as volunteer to do so.
 Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
-Het. eerste wat Europa moet doen, is aandacht geven aan de Swadisthan, want Europa is de lever van de wereld, en de lever is afhankelijk van de Swadisthan. De functie van de lever is alle ongezonde elementen te elimineren, alle gifstoffen die slecht zijn voor de ontwikkeling van het individu: al deze dingen kan men gifstoffen noemen. Dus, de rol van Europa bestaat erin om alles wat gif voor de gemeenschap is, te elemineren.
+Het. eerste wat Europa moet doen, is aandacht geven aan de Swadishthan, want Europa is de lever van de wereld, en de lever is afhankelijk van de Swadishthan. De functie van de lever is alle ongezonde elementen te elimineren, alle gifstoffen die slecht zijn voor de ontwikkeling van het individu: al deze dingen kan men gifstoffen noemen. Dus, de rol van Europa bestaat erin om alles wat gif voor de gemeenschap is, te elemineren.
 
 Dit land heeft belangrijke, zeer goede personen gekend, voor dewelke Ik veel respect heb; een van hen is Emile Zola, die zeer duidelijk de verdorvenheid van het mentale heeft beschreven, hoe een menselijk wezen zichzelf kan vergiftigen, en hoe de maatschappij zich vergiftigt.
 
@@ -65,7 +65,7 @@ En als de zon opkamt, schijnt het licht zeer goed in deze plaats. De Spirit is o
 
 De lever is als een lampekap van een lamp: hij bevat de ruimte die de aandacht is. Als men de lamp binnenin de lampekap zet en de lampekap is vuil, ziet men het licht niet. Als de lampekap volledig zwart is, voelt men zelfs niet dat er licht is aan de binnenkant. Dit is een analogie vertrekkende van dode zaken, en wij praten over levende zaken.
 
-Wanneer de Kundalini rijst voedt ze eerst je Swadisthan. En het is de Swadisthan die waakt over je aandacht: hij reinigt, hij zuivert uw aandacht via de lever, de pancreas en de nieren. Hij onderhoudt deze aandacht via de milt. Hij maakt de aandacht rijker door de vetcellen te transformeren in hersencellen. De hersencellen zijn zeer bijzonder; zij hebben een aandacht die naar buiten gaat.
+Wanneer de Kundalini rijst voedt ze eerst je Swadishthan. En het is de Swadishthan die waakt over je aandacht: hij reinigt, hij zuivert uw aandacht via de lever, de pancreas en de nieren. Hij onderhoudt deze aandacht via de milt. Hij maakt de aandacht rijker door de vetcellen te transformeren in hersencellen. De hersencellen zijn zeer bijzonder; zij hebben een aandacht die naar buiten gaat.
 
 Als een mens iets bekijkt dan creëert hij een gedachtengolf van zichzelf daarover. Alle dimensies van de estetiek, kleuren, vormen, zijn in de menselijke hersencellen. De dieren hebben dit niet. Als een artiest dit bloemstuk ziet, kan hij zijn aandacht op die manier projecteren dat hij iets meer ziet. Hij kan de atmosfeer creëren, de atmosfeer door dit bloemstuk gecreërd reproduceren met enkele zinnen. Een toneelschrijver kan een stuk maken waarin hij een stemming, een atmosfeer weergeeft. Een musicus kan een melodie spelen die een atmosfeer van abstracte vreugde geeft.
 

@@ -76,4 +76,3 @@ Moge God jullie zegenen.
 [3] sadhana: praktijk van devotie
 
 [4] Adi Shakti: de oorspronkelijke of primordiale vrouwelijke kracht; oermoederkracht
-

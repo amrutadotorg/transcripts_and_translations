@@ -31,11 +31,3 @@ Tercero el poder de evolución es el tercer sistema nervioso parasimpático ce
 Una vez que vuestra Kundalini, energía de la evolución que permanece inactiva, se activa entonces todo ello crece y los tres poderes se encuentran y os llevan más allá de los gunas y empujan la kundalini por encima de vuestro sahasrara.
 
 En tres dimensiones Tamo guna (izquierdo) os volvéis Sthit, estable, Rajo guna (derecho) se activa y Satva guna os coloca en el Dharma, rectitud. La cuarta dimensión es cuando el ser humano está más allá de estos tres, en Nirivichara (sin pensamientos)/ inconsciente colectivo
-
- 
-
- 
-
- 
-
- 

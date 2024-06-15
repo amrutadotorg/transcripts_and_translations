@@ -12,7 +12,3 @@ A medida que ellos comienzan a aumentar su propia sensibilidad, por si mismos de
 Espero que hoy venga mucha gente al programa, pero los seguimientos deben ser atendidos adecuadamente por todos ustedes y deberían ser capaces de tratarlos amablemente y como saben, no tenemos registros de nombres, o cosa así, pero lo mejor es hablar con ellos, con cada uno de ellos, pregunten sus nombres, qué es lo que hacen, dónde viven, es mucho mejor y si ellos lo desean, pueden dejar sus direcciones.
 Para hacer los Pujas y demás, deben ver si ellos son lo suficientemente profundos, entonces, pueden llamarlos para los Pujas, ya que el Puja puede ser un gran choque para ellos, porque nunca antes han visto estas cosas. Hay muchas formas en las que puedan anunciarles que esta es la Verdad. En cualquier caso, si tienen alguna pregunta, deben hacérmelas más tarde y así Yo puedo decirles que hacer ante el problema.
 Así que, ahora tengamos el Puja y pienso que después, la mayoría de las preguntas prácticamente se resolverán. Vamos a tenerlo. Para el lavado, un poco de agua tibia será una buena idea.
-
- 
-
- 

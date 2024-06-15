@@ -59,4 +59,3 @@ Probeer dit in je leven en je zult zien hoe liefde zichzelf terugbetaalt. Kijk n
 Dus dank jullie zeer.
 
 * eerste maal puja nadat het podium volledig verbouwd en verplaatst werd naar de andere kant van de zaal
-

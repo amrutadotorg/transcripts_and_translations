@@ -168,7 +168,7 @@ DEEL TWEE
 
 Yogi: Moeder, er was zo'n grote blokkade op het hart de laatste vierentwintig uur.
 
-Open jullie harten, dat is het punt. Waarom openen jullie je harten niet? Open jullie harten. Voor onbelangrijke dingen, onzinnige dingen openen we onze harten, maar waarom niet voor God? Open het! Jullie zijn als lotussen gemaakt, maar open de lotus. Ah! Ah! Er zou een dag moeten komen waarop we Shiva's puja in Engeland houden, laat die dag komen! Maar het is niet zo gemakkelijk Shiva's puja te doen, weet je. Jullie hebben al één stadium bereikt - Vishnumaya. Ha! Maak het maar open. Tot het moment waarop je je hart opent, kan je Brahmarandra[7] niet open zijn, kan je Sahastrara niet open zijn. Waar maak je je zorgen om - om het middagmaal? Ik kan al hun horloges doen stilstaan, als je wil!
+Open jullie harten, dat is het punt. Waarom openen jullie je harten niet? Open jullie harten. Voor onbelangrijke dingen, onzinnige dingen openen we onze harten, maar waarom niet voor God? Open het! Jullie zijn als lotussen gemaakt, maar open de lotus. Ah! Ah! Er zou een dag moeten komen waarop we Shiva's puja in Engeland houden, laat die dag komen! Maar het is niet zo gemakkelijk Shiva's puja te doen, weet je. Jullie hebben al één stadium bereikt - Vishnumaya. Ha! Maak het maar open. Tot het moment waarop je je hart opent, kan je Brahmarandra[7] niet open zijn, kan je Sahasrara niet open zijn. Waar maak je je zorgen om - om het middagmaal? Ik kan al hun horloges doen stilstaan, als je wil!
 
 Goed. Kom nu maar, laten we het doen. Nu is het beter. Ga nu maar, neem je middagmaal.
 
@@ -479,4 +479,3 @@ Moge God jullie zegenen!
 [8] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
 [9] chitta: (verlichte) aandacht
-

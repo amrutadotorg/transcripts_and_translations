@@ -77,4 +77,3 @@ We hebben elf kunda's, en we zullen de havan doen voor de elf kunda's. Want de M
 [13] Sushumna nadi: kanaal van evolutie; middenkanaal van het subtiele systeem, waarlangs de Kundalini opstijgt.
 
 [14] Ekadasha Rudra: de elf vernietigende krachten van Shri Kalki.
-

@@ -123,9 +123,9 @@ Podejdźcie tutaj. Jeszcze raz. Musicie trzymać się tej samej tonacji. Zacz
 
 Gdzie oni są? Ci, którzy śpiewają? Oni powinni być tam, widzicie to dlatego oni nie są z wami zgrani. Podejdźcie tutaj, ci którzy śpiewają. Tak jest lepiej, to była przyczyna. Musicie usiąść z muzykami i śpiewać w tonacji, dobrze?
 
-Nie fałszować. A wtedy wibracje przyjdą. Wibracje nie płyną. Lepiej śpiewać... nie w tonacji, ale po prostu. Oni tego nie umieją. Blokuje się Sahastrara. Zaśpiewajcie to w tonacji indyjskiej.
+Nie fałszować. A wtedy wibracje przyjdą. Wibracje nie płyną. Lepiej śpiewać... nie w tonacji, ale po prostu. Oni tego nie umieją. Blokuje się Sahasrara. Zaśpiewajcie to w tonacji indyjskiej.
 
-Zaśpiewaliście całkiem nie tak. Niech ona śpiewa, ona wie jak. Widzicie, wibracje nie mogły.... Moja Sahastrara zablokowała się. Usiądź, wszyscy usiądźcie.
+Zaśpiewaliście całkiem nie tak. Niech ona śpiewa, ona wie jak. Widzicie, wibracje nie mogły.... Moja Sahasrara zablokowała się. Usiądź, wszyscy usiądźcie.
 
 To są mantry, to nie jest piosenka, to mantry, widzicie? Powinno się je wypowiadać z namaszczeniem i zrozumieniem.
 
@@ -160,7 +160,7 @@ I to, że otrzymujecie tę wiedzę. Jak robić to z wdziękiem. Wszystko ma
 
 Niektóre z osób przekazujących wiedzę o Sahadża Jodze nie ma tej gracji i mówią w sposób pozbawiony wdzięku. Całą tę grację – w jaki sposób wykorzystać Boską wiedzę – przekazuje Vidya Lakshmi
 
-Saubhagya Lakshmi. Ona jest tą, która daje wam powodzenie. Powodzenie nie oznacza pieniędzy, ale oznacza łaskę pieniędzy. Wielu ludzi ma pieniądze, ale jest to tak jak pieniądze na ośle. Nie znajdziecie żadnej gracji w tych osobach. Czyli, że Saubhagya to nie tylko pieniądze – to oznacza również szczęśliwy los. Całe to szczęście we wszystkim, a przy tym z wielką łaskawością. To błogosławieństwo oznacza, że jesteście błogosławieni, i również ludzie, którzy was spotkają będą błogosławieni dzięki Saubhagyi.
+SaubhAgnya Lakshmi. Ona jest tą, która daje wam powodzenie. Powodzenie nie oznacza pieniędzy, ale oznacza łaskę pieniędzy. Wielu ludzi ma pieniądze, ale jest to tak jak pieniądze na ośle. Nie znajdziecie żadnej gracji w tych osobach. Czyli, że SaubhAgnya to nie tylko pieniądze – to oznacza również szczęśliwy los. Całe to szczęście we wszystkim, a przy tym z wielką łaskawością. To błogosławieństwo oznacza, że jesteście błogosławieni, i również ludzie, którzy was spotkają będą błogosławieni dzięki Saubhagyi.
 
 Amruta Lakshmi. Amrut oznacza „ten, który jest nektarem [bogów]”. Jeżeli będziecie go pić, to nigdy nie umrzecie. Oznacza wieczność. Ona jest zatem tą, która daje wam życie wieczne.
 

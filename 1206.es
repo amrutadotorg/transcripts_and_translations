@@ -1,4 +1,5 @@
-Holanda 17-9-86 Consejos de Madre
+Holanda 17-9-86 
+Consejos de Madre
 
 Para influir sobre otras personas debemos saber cuánto control tenemos sobre nosotros mismos, lo cual es muy importante. Por ejemplo, algunas personas no tienen imagen propia y tratan de influir sobre otros, esto es una estupidez, este tipo de gente no puede influir sobre nadie, pues no tienen una imagen de ellos mismos. Por tanto, antes de trabajar el exterior debemos trabajar el interior.
 

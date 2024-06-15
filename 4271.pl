@@ -1,4 +1,5 @@
-Mahashivaratri Puja, 1983.02.11, New Delhi, India(wersja II poprawiona, czerwiec 2015)
+Mahashivaratri Puja, 1983.02.11, New Delhi, India
+(wersja II poprawiona, czerwiec 2015)
 
 Jestem szczęśliwa, że wszyscy zmieściliście się na tej małej przestrzeni. Kiedy istnieje miłość i zrozumienie, wiele serc może się zmieścić na małej przestrzeni. Ale kiedy brakuje wielkiego serca, cokolwiek się otrzyma, to nigdy nie będzie wystarczało.
 
@@ -8,7 +9,8 @@ Wszystko inne już zostało stworzone - na przykład Tattwy Vishnu i Brahmadevy
 
 Zatem jako Sahaja yogini, musimy spoglądać do własnego wnętrza, czy pragniemy tego w pełni? Czy też wciąż mamy wiele pragnień zawieszonych wokół nas? Widzicie, największy problem związany jest z czakrą Nabhi, niezależnie czy to jest na Wschodzie czy na Zachodzie. To jest bardzo zaskakujące, że niektórzy ludzie, nawet w Sahaja Yodze, nadal odczuwają elementarne pragnienie poszukiwania jedzenia pochodzące z czakry Nabhi,
 
-Także niektórzy ludzie nadal dość mocno pragną majątku i pieniędzy. I chociaż wzrastają coraz subtelniej, to nadal nie rozwija się w nich odwiązanie. To staje się coraz subtelniejsze.Im subtelniej wzrastacie, przywiązanie staje się subtelniejsze i trudniej z tego wyjść. A szczególnie atakowani są ludzie, którzy stają się liderami w Sahaja Yodze albo są bliżej Sahaja Yogi. Są atakowani przez np. swoich mężów, żony, braci, siostry, synów, dzieci i tym podobne.
+Także niektórzy ludzie nadal dość mocno pragną majątku i pieniędzy. I chociaż wzrastają coraz subtelniej, to nadal nie rozwija się w nich odwiązanie. To staje się coraz subtelniejsze.
+Im subtelniej wzrastacie, przywiązanie staje się subtelniejsze i trudniej z tego wyjść. A szczególnie atakowani są ludzie, którzy stają się liderami w Sahaja Yodze albo są bliżej Sahaja Yogi. Są atakowani przez np. swoich mężów, żony, braci, siostry, synów, dzieci i tym podobne.
 
 A to wszystko pogarsza, ponieważ ci wszyscy liderzy, którzy są atakowani, próbują wywoływać niezadowolenie wszystkich Bóstw poprzez małe rzeczy tu i tam. Całe to zachowanie należy tak zrozumieć, że staliście się subtelniejszą osobą i wzrastacie wyżej, więc z pewnością negatywne siły będą was atakować. Zawsze atakowana jest pierwsza linia, a nie tyły. Zatem ci, którzy są z przodu, zawsze są atakowani i muszą bardzo uważać na to, w jaki sposób się zachowują. Na przykład, jeśli ktoś jest przebiegły to stanie się przebiegły, ale przebiegły subtelniej. Nie stanie się po prostu swoim przeciwieństwem, tylko jego przebiegłość stanie się subtelniejsza. Jeśli jest skąpcem, wtedy stanie się skąpy w subtelniejszy sposób, albo powiedzmy, że jest egoistyczny, wtedy będzie egoistyczny w subtelniejszy sposób.
 

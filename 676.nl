@@ -465,4 +465,3 @@ YOGI: Moeder, iemand brengt u wat te eten. Er wordt eten gebracht, moeder.
 SHRI MATAJI: Nee. Ziet u, mijn familieleden gaan met mij eten. Het spijt me. Ze zijn allemaal thuis.
 
 Het spijt me, ik moet gaan.
-

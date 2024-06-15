@@ -247,4 +247,4 @@ Ale dając nie myślcie, że to wasza własność. Wy dajecie innym to, co 
 
 I tak dzisiaj opowiedziałam wam o ośmiu etapach. Dlatego staliście się półksiężycem, tylko w umyśle. A drugą połowę zachowajcie do następnej Guru Purnimy. 
 
-Niech was Bóg błogosławi. 
+Niech was Bóg błogosławi.

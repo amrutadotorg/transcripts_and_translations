@@ -52,4 +52,3 @@ Tenemos que hacer que funcione. Yo lo he hecho con una sola mano, he trabajado m
 Me hará muy feliz saber que Sahaja Yoga se está extendiendo a pasos agigantados, a gran velocidad y que la gente está realmente entrando en el reino de paz, alegría y felicidad.
 Ese es mi sueño y espero que todos vosotros lo hagáis realidad.
 Muchas gracias
-

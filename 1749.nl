@@ -37,7 +37,7 @@ Ganesha is de basis van moraliteit. Als het moreel besef van een gemeenschap ver
 
 Het kind kijkt ernaar, zie je, en iedereen was erg stil. Dan keerde het kind zich naar zijn vader en moeder en zei: “Moeder, waarom hebben ze de president onder de aarde gestopt? De wormen zullen hem opeten! Waarom zo’n straf?”
 
-Er is zoveel op te merken aan kinderen als ze praten, hoe ze andere mensen beschrijven. Op een dag waren we naar de luchthaven gereden en één van de kinderen deed zo ... en zo ... Ik vroeg: “Wat ben je aan het doen?” Hij zei: “Ik probeer deze mensen opnieuw samen te binden, want ze hebben allemaal hun hoofd verloren.” Zoals gisteren, toen ze de Swadisthan chakra droegen, zo zijn kinderen in staat om het spel te zien, het hele absurde drama. Ze zijn heel onschuldig, daarom is het gemakkelijk om hen goede manieren bij te brengen.
+Er is zoveel op te merken aan kinderen als ze praten, hoe ze andere mensen beschrijven. Op een dag waren we naar de luchthaven gereden en één van de kinderen deed zo ... en zo ... Ik vroeg: “Wat ben je aan het doen?” Hij zei: “Ik probeer deze mensen opnieuw samen te binden, want ze hebben allemaal hun hoofd verloren.” Zoals gisteren, toen ze de Swadishthan chakra droegen, zo zijn kinderen in staat om het spel te zien, het hele absurde drama. Ze zijn heel onschuldig, daarom is het gemakkelijk om hen goede manieren bij te brengen.
 
 In het geval van Shri Ganesha kennen we het verhaal dat de ouders, vooral de vader ... zei: “Hij die rond moeder Aarde kan gaan, krijgt een geschenk.” En Ganesha dacht: “Kijk eens aan, Kartikeya kan vlugger gaan omdat hij zijn pauw gebruikt, een vogel die kan vliegen.
 

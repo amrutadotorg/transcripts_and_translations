@@ -101,4 +101,3 @@ Nu moet je gaan eten. We hebben een zeer gulle man die voor jullie kookt. Wees v
 Nu moeten alleen de Sahaja yogi's uit het buitenland en niet-vegetariërs eerst gaan en dan de vegetariërs en daarna hebben we een muziekprogramma. Zo zal het gaan.
 
 Morgenochtend verwacht ik dat je rond vijf uur 's ochtends gaat mediteren. Daarna neem je een bad in de zee.
-

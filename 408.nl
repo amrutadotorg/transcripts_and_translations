@@ -86,4 +86,3 @@ Moge God jullie zegenen.
 [13]  maun: rustig, stil, zonder te praten
 
 [14] nirikshana: weten wat het is
-

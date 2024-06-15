@@ -75,4 +75,3 @@ Maar jullie hoeven dit niet te doen. Je zult ze nu automatisch opgeven. Met het 
 [6] chaitanya: vibraties, kracht van Gods liefde
 
 [7] Ruh: ‘Heilige Adem’ uit de Koran; stemt overeen met de ‘Heilige Geest’ of ‘Sanctus Spiritus’ uit de Bijbel
-

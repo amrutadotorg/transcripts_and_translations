@@ -183,5 +183,3 @@ Het is de plicht van elke Sahaja yogi om zulk een nieuwe onderneming te beginnen
 Ik hoop dat wij volgende keer het aantal mensen kunnen verdubbelen dat hier aanwezig is van de acht landen die vanavond gastheer waren. Al mijn liefde gaat uit naar jullie allemaal. Grote dagen staan ons te wachten. We moeten nu enkel begrijpen wat onze verantwoordelijkheid is. Het allerbelangrijkste is hoeveel mensen we bekeerd hebben, dat is het record, niet hoeveel puja’s we hebben bijgewoond en dergelijke zaken meer, dat is niet belangrijk. Puja’s zijn er enkel om je sterkte te geven, om je kracht te geven, maar het is niet jullie werk, het is niet jullie werk! Voor jullie werk kunnen jullie alle kracht krijgen van puja's die jullie nodig hebben. Maar als jullie die kracht niet gebruiken, wat is dan het nut? Nu laat ik het aan jullie over om je te herinneren dat je verrezen bent, en dat je anderen kan laten verrijzen, wat een heel belangrijke taak is in deze tijd van onrust en vernietiging.
 
 Moge God jullie zegenen.
-
-H.H. Shri Mataji Nirmala Devi

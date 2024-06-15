@@ -198,5 +198,3 @@ Jullie allemaal, jullie allemaal zijn in mijn hart en ik hou heel veel van julli
 Ik weet zeker - het is echt uit de grond van mijn hart – een verlangen van mij (is) dat jullie waarlijk soldaten van liefde en vrede worden. Want dat is waarom jullie hier zijn, daarvoor zijn jullie hier geboren. Dus beleef er vreugde aan.
 
 (Shri Mataji groet met Namaste)
-
-H.H. Shri Mataji Nirmala Devi

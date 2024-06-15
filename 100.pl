@@ -222,21 +222,21 @@ Yogini: Om twameva sakshat, Shri Vidya Lakshmi Sakshat, Shri Adi Shakti Sakshat,
 
 Sakshat, Shri Mataji, Shri Nirmala Devi, Namoh Namaha.
 
-Shri Mataji: wiecie, to jest mantra na lewy Swadisthan.
+Shri Mataji: wiecie, to jest mantra na lewy Swadishthan.
 
 Trzecia
 
-Yogini: Om Twameva Sakshat Shri Saubhagya Lakshmi Namoh Namah.
+Yogini: Om Twameva Sakshat Shri SaubhAgnya Lakshmi Namoh Namah.
 
-Shri Mataji: Sau-bha-gya, Saubhagya oznacza ‘pomyślny los’. Lakshmi, która daje wam pomyślność przy każdej okazji. Tak jak daje wam pomyślność w pieniądzach, w życiu, w jedzeniu, w każdy sposób. Każda pomyślność losu jest dana przez Boga. Tylko Bóg daje pomyślny los.
+Shri Mataji: Sau-bha-gya, SaubhAgnya oznacza ‘pomyślny los’. Lakshmi, która daje wam pomyślność przy każdej okazji. Tak jak daje wam pomyślność w pieniądzach, w życiu, w jedzeniu, w każdy sposób. Każda pomyślność losu jest dana przez Boga. Tylko Bóg daje pomyślny los.
 
 Jeżeli zdobędziecie pieniądze na jakimś wyścigu, to jest zły los, ponieważ stracicie to następnego
 
-dnia lub pójdziecie do pubu, by się od nich uwolnić. Ale jeżeli otrzymacie prawdziwą [pomyślność], wtedy stworzycie coś, co jest błogosławione i wielkie to jest Saubhagya Lakshmi.
+dnia lub pójdziecie do pubu, by się od nich uwolnić. Ale jeżeli otrzymacie prawdziwą [pomyślność], wtedy stworzycie coś, co jest błogosławione i wielkie to jest SaubhAgnya Lakshmi.
 
 Teraz to wypowiedzcie.
 
-Saubhagya Lakshmi.
+SaubhAgnya Lakshmi.
 
 Yogini: Om twameva sakshat, Shri Saubaghya Shri Bhagawati Sakshat, Shri Mataji, Shri Nirmala Devi, Namoh Namaha.
 
@@ -458,4 +458,4 @@ Shri Mataji: Pyta cię teraz...
 
 Czy ona ma grypę?
 
-Ręka na Swadisthan.
+Ręka na Swadishthan.

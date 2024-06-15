@@ -62,4 +62,3 @@ Moge God jullie zegenen.
 [2] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
 
 bhootish: negatief, beïnvloed door bhoot(s)
-

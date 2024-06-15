@@ -44,4 +44,4 @@ Mam nadzieję, że zapamiętacie te słowa. Starajcie się utrzymywać swo�
 
 Nie tylko w sprawach pieniędzy, ale w każdych sprawach, powinno być zaufanie, całkowite zaufanie. Tak jak ufacie sobie, musicie zaufać innemu, który już nie jest innym. Ci, którzy kiedyś byli w małżeństwie, ci, którzy są w małżeństwie, ci, którzy będą w małżeństwie i ci, którzy dziś biorą ślub, ich wszystkich błogosławię głęboką radością tego zrozumienia. Radość z waszej czystości, piękno powinno płynąć przez wszystkie wasze życia, wiecznie. 
 
-Niech was wszystkich Bóg błogosławi. 
+Niech was wszystkich Bóg błogosławi.

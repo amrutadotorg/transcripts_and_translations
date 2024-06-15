@@ -108,7 +108,7 @@ Goed.
 Nu is het beter.
 Eerst zul je het boven je hoofd voelen, en daarna zul je het op je vingertoppen beginnen te voelen, gedurende je groeiproces. Maar sommigen van jullie zullen het al op beide plaatsen voelen.
 Voelen ze het? Is het beter? Gaat het nu beter?
-Leg je hand op je hart. Een beetje hoger. Druk er hard op. Deze kant. Breng je hand naar het midden van je hart. Naar het midden, naar het midden van je hart, aan deze kant, op het middenhart. Druk er hard op. Leg ze nu op de Kundalini. Leg je hand op de Kundalini. Druk er hard op. Een beetje hoger. Ja, zo. Leg je andere hand zo, naar buiten gericht. De linker Swadisthana. De rechter Swadisthana.
+Leg je hand op je hart. Een beetje hoger. Druk er hard op. Deze kant. Breng je hand naar het midden van je hart. Naar het midden, naar het midden van je hart, aan deze kant, op het middenhart. Druk er hard op. Leg ze nu op de Kundalini. Leg je hand op de Kundalini. Druk er hard op. Een beetje hoger. Ja, zo. Leg je andere hand zo, naar buiten gericht. De linker Swadishthana. De rechter Swadishthana.
 Sommigen van jullie moeten opnieuw zeggen: "Moeder, ik ben niet schuldig."
 Nu moet je zeggen: "Moeder, geeft u mij alstublieft mijn zelfrealisatie." Je moet erom vragen, want ik kan je vrijheid niet overtreden. Het rechterhart. Vraag het alsjeblieft zeven keer.
 Als je eenmaal de koele bries voelt dan kun je haar vastknopen... alle Sahaja yogi's moeten haar vastknopen. Wie de koele bries boven zijn hoofd voelt, steek nu alsjeblieft je handen omhoog, iedereen. Je kunt het voor jezelf nagaan.
@@ -128,4 +128,3 @@ Moge God jullie zegenen.
 [2] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht.
 
 [3] karma: de gevolgen van onze vroegere daden, die vaak generaties lang blijven doorwerken
-

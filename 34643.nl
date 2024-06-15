@@ -1,6 +1,7 @@
 HART CHAKRA – 1978
 
-Translation not verified. Dear yogi, register as volunteer to do so.Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Translation not verified. Dear yogi, register as volunteer to do so.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Nu heeft deze linkerkant van het hart betrekking tot jullie Moeder en tot Shiva, het bestaan. Je verkrijgt je bestaan via je Moeder en Shiva en Parvati zijn jullie ouders. Zij zijn allebei jullie ouders, voor zover het jullie bestaan betreft en jullie hartcentrum is zo’n prachtig centrum. Als je wil dat iemand iets voor je doet, probeer dit dan. Je wil dat iemand iets toegeeft of je ziet dat iemand erg koppig is of zoiets. Wel, Ik heb jullie verteld dat je hen kan “shoebeaten”. Doe al deze dingen, maar er is een heel simpele manier als je weet hoe het te doen. Zie je, je denkt gewoon aan hun (‐‐‐) hart en maak er een bandhan omheen en je kan het zo mooi doen, je kan een persoon doen smelten zonder enige moeilijkheid als je weet hoe met hun hart om te gaan. Je moet een beroep doen op hun hart en dat is de beste aantrekkingskracht, dat zeg Ik jullie en de beste geheime methode waardoor je het goede in hen kan aanbrengen terwijl je met iemand praat.
 

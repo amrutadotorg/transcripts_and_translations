@@ -79,4 +79,4 @@ Spróbujcie zachować wszystkie wasze moce. Szanujcie siebie. Jesteście lamp
 
 Nie krytykować innych, nie patrzeć na innych, ale indywidualnie powinniście zrozumieć swoje zdolności i ile daliście innym, i jak bardzo, w rzeczywistości zamanifestowaliście to, co otrzymaliście. Macie kontrolę nad słońcem, nad księżycem, nad falami, nad morzem i nad tymi wszystkimi rzeczami – macie. Ale do tego musicie zrobić odrobinę więcej, i o tym powiem wam innym razem. Teraz nie chcę, abyście kontrolowali te wszystkie rzeczy, siedzieli na pagórku i popisywali się. Lepiej jak najpierw wypracujecie to na ludziach, a wtedy dam wam to wszystko. Powiem wam. Dopiero co je obudziliście, ale nie powiedziałam wam triku, jak to zrobić. Najlepiej zatrzymam to dla siebie. 
 
-Niech was wszystkich Bóg błogosławi. 
+Niech was wszystkich Bóg błogosławi.

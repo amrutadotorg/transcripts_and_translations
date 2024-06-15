@@ -86,5 +86,4 @@ Me gustaría que viniesen siete mujeres casadas para que me ayudaran. Primero v
 
 Bien, vamos. Vosotras también venid, las dos. Muy bien, vosotras también, venid ambas. Sentaos, sentaos. Si hay alguna chica que no esté casada aunque sea mayor que venga. Las que no están casadas. Alguien más. Quitad esto. Pedid a alguien que quite esto. Gregoire: “Shri Mataji, antes de cantar el himno a la Diosa, nos gustaría leerte una versión corregida del Padre nuestro. 
 
-Madre nuestra que estás en la Tierra santificado sea tu Nombre venga tu Reino y tu Voluntad sobre la Tierra como está en el Cielo. Danos este día tus Vibraciones divinas. Y perdónanos nuestros errores igual que nosotros perdonamos a aquellos que actúan contra nosotros. No permitas que caigamos en la maya. ¡Y líbranos del mal! Por Ti y por el Padre. Por los niños y la gloria. Por los siglos de los siglos. Amen”. ¡Muy dulce! 
-
+Madre nuestra que estás en la Tierra santificado sea tu Nombre venga tu Reino y tu Voluntad sobre la Tierra como está en el Cielo. Danos este día tus Vibraciones divinas. Y perdónanos nuestros errores igual que nosotros perdonamos a aquellos que actúan contra nosotros. No permitas que caigamos en la maya. ¡Y líbranos del mal! Por Ti y por el Padre. Por los niños y la gloria. Por los siglos de los siglos. Amen”. ¡Muy dulce!

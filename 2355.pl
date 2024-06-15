@@ -151,4 +151,3 @@ Rozwińmy tę czystość. Wtedy w naszych oczach utrwali się niewinnośc�
 Dla Hindusów ten wykład nie ma żadnego znaczenia, pomyślą: "Dlaczego Matka tak bardzo marnuje swoją energię?" Ponieważ oni nie rozumieją. Ale dla Mnie jest to bardzo ważne. Cokolwiek zobaczyłam, usłyszałam i widziałam wokół, myślę, że dzisiejsze przesłanie powinno dotyczyć Yogeshwary. Czcijmy Yogeshwarę w naszych sercach. Kiedy dzisiaj Mnie czcicie, powinno to być czczenie Yogeshwary i niczego więcej.
 
 Niech was Bóg błogosławi.
-

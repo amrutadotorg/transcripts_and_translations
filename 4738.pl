@@ -16,4 +16,4 @@ Zatem nie martwcie się o nic. Z całą siłą, z całą odwagą, z tą ob
 Ponieważ widzę, że teraz Sahaja Yoga zacznie nowy etap. Z pewnością tak się stanie. Zaczniemy etap, kiedy tysiące ludzi połączy ręce. Ale przede wszystkim ci, od których się zaczęło, ci którzy budują fundamenty, oni muszą pracować bardzo ciężko, żeby utrzymywać się ponad wszelkiego rodzaju pokusami, ponad wszelkimi głupotami, które wcześniej robili, ponad 'Asahaja' [rzeczami które nie są Sahaja].
 Wasza mowa powinna być słodka, wasze zachowanie powinno być dobre, bardzo łagodne i delikatne. Powinniście zachowywać się jak yogini, żyć jak Święci, żeby ludzie poprzez was mogli zobaczyć wielkość Sahaja Yogi. 
 
-Niech Bóg was błogosławi. 
+Niech Bóg was błogosławi.

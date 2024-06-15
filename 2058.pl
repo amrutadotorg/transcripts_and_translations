@@ -146,4 +146,4 @@ Nie przesadzajcie w tym. Przynajmniej, jeśli już musicie kupić coś, co j
 
 Więc to jest to, co musimy dzisiaj robić, musicie także modlić się do Mnie podczas Pujy: "O Matko, Matko, proszę ocal naszą ziemię i daj ludziom mądrość, żeby się dobrze zachowywali. I aby byli świadomi". I każdy Sahaja yogin powinien być świadomy tego, jak dużo zużywa energii elektrycznej, telefonu, wody czy czegokolwiek. Musimy być w tym oszczędni. Jeśli nie weźmiemy odpowiedzialności za te rzeczy, wtedy to nigdzie indziej nie przeniknie. Do was należy, aby to robić. Musicie stosować to w codziennym życiu jako nieodłączną część waszego życia, próbując oszczędzać energię tej Matki Ziemi. To jest bardzo ważne. Więc dzisiaj jest dzień, w którym oni wysyłali specjalną modlitwę, oczywiście robią to jakieś tam kościoły, ale myślę, że to jest dobry dzień, ponieważ musieli chyba pomyśleć, że dzisiaj jest dzień Bogini i dlatego oni o to poprosili. Niech was Bóg błogosławi. 
 
-I czternaście zamężnych kobiet, które jeszcze nie były na Mojej Pujy. 
+I czternaście zamężnych kobiet, które jeszcze nie były na Mojej Pujy.

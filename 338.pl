@@ -1,6 +1,6 @@
-Sahastrara Puja, "Jak to zostało postawionione". Fregene (Włochy), 8 Maja 1988.
+Sahasrara Puja, "Jak to zostało postawionione". Fregene (Włochy), 8 Maja 1988.
 
-Dziś jest 19-y Dzień Sahasrary, jeżeli policzycie dzień, kiedy Sahastrara została otwarta po raz pierwszy.
+Dziś jest 19-y Dzień Sahasrary, jeżeli policzycie dzień, kiedy Sahasrara została otwarta po raz pierwszy.
 
 Muszę opowiedzieć wam o Dniu Sahasrary, o tym, jak to zostało postanowione długo przed Moją inkarnacją. Było wielkie spotkanie w niebie, wszystkie 35 karorów Bogów, wszystkie Bóstwa były tam obecne, żeby zadecydować, co trzeba zrobić. To ostatnia rzecz, jaką musimy zrobić dla ludzi - otworzyć im Sahasrarę, otworzyć ich świadomość na ducha, świadomość prawdziwej boskiej wiedzy, usunąć ciemność ignorancji. I to miało być spontaniczne, ponieważ to miało wypracować żywą siłę Boga. 
 
@@ -89,4 +89,4 @@ I oczyszczajcie własne czakry. Nie mówcie: "Mam to, mam tamto". Po prostu je 
 
 Mam nadzieję, że w przyszłym roku otrzymam jakieś dobre informacje. 
 
-Niech was Bóg błogosławi 
+Niech was Bóg błogosławi

@@ -98,7 +98,7 @@ Dus waar gaat deze puja vandaag over? Het is een afscheidspuja vandaag, dus late
 
 Iemand bracht een offer bij het altaar. Hij zei: "Wat ga je offeren bij het altaar? Heb je je verzoend met je broeder?" Heb je je verzoend? Verzoen je eerst, en breng dan pas bloemen naar Moeder.
 
-Hij heeft het al gezegd. Denk aan hem, hoe vergevensgezind hij was, hoe grootmoedig, hoe nobel, en hoe hij de hele tijd aan zijn Vader dacht, volkomen toegewijd, terwijl hij zijn taak volbracht. Dus met alle eerbetuigingen aan Christus en aan zijn moeder die op een heel potentiële manier werkte, moeten wij vandaag binnenin onszelf die machtige Spirit[2] ontwaken, die in werkelijkheid de Aumkara[3] is. Zelfs de herinnering, zelfs alleen al de gedachte hieraan is zo vreugdevol. Laat zijn leven weerspiegeld worden in jullie levens. Jullie moeten christenen zijn in de ware zin van het woord.
+Hij heeft het al gezegd. Denk aan hem, hoe vergevensgezind hij was, hoe grootmoedig, hoe nobel, en hoe hij de hele tijd aan zijn Vader dacht, volkomen toegewijd, terwijl hij zijn taak volbracht. Dus met alle eerbetuigingen aan Christus en aan zijn moeder die op een heel potentiële manier werkte, moeten wij vandaag binnenin onszelf die machtige Spirit[2] ontwaken, die in werkelijkheid de Omkara[3] is. Zelfs de herinnering, zelfs alleen al de gedachte hieraan is zo vreugdevol. Laat zijn leven weerspiegeld worden in jullie levens. Jullie moeten christenen zijn in de ware zin van het woord.
 
 Laten we... wat is er?
 
@@ -190,7 +190,7 @@ Hij verblijft in de Adi Agnya chakra.
 
 Hij verblijft in alles, maar bij mensen in de Agnya chakra.
 
-Hij is de Aumkara.
+Hij is de Omkara.
 
 [Shri Mataji: Hij verblijft in alles, maar bij mensen verblijft hij in de Agnya chakra.]
 
@@ -382,5 +382,4 @@ Dit moet worden gedaan door jongens die geen gevoelens rond het huwelijk hebben,
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
-[3] Aumkara of Omkara: letterteken in het Sanskriet dat de Aum of Om klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
-
+[3] Omkara of Omkara: letterteken in het Sanskriet dat de Aum of Om klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.

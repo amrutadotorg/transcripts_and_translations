@@ -48,9 +48,9 @@ moje ręce nie są czyste, nie widzę światła. Cokolwiek jest brudne, nie 
 
 To dlatego, gdy ludzie próbują podnosić Kundalini niewłaściwymi metodami, Ona pokazuje swój charakter. Tak naprawdę Ona nigdy nie jest rozzłoszczona. Jeżeli Kundalini złości się, taka osoba nigdy nie mogłaby istnieć, to jest niemożliwe, ale normalnie to się nie dzieje. Ale to Shri Ganesha, który jest bóstwem Shri Kundalini – złości się, i to On stwarza ten problem gorąca, ponieważ Ona jest ogniem a On jest Bóstwem.
 
-Więc ten ogień Kundalini pracuje w taki sposób, że wasz współczulny [układ] nerwowy jest pobudzany gorącem, i można nawet dostać pęcherzy i [różnych] rzeczy, jeżeli próbuje się jakichś sztuczek z Kundalini, każde antyboskie zachowanie... Urdhva vati Kundalini, unoszenie Kundalini, jest jej naturą, ale to, kiedy dochodzi i dotyka Sahastrary, to jest ważny moment.
+Więc ten ogień Kundalini pracuje w taki sposób, że wasz współczulny [układ] nerwowy jest pobudzany gorącem, i można nawet dostać pęcherzy i [różnych] rzeczy, jeżeli próbuje się jakichś sztuczek z Kundalini, każde antyboskie zachowanie... Urdhva vati Kundalini, unoszenie Kundalini, jest jej naturą, ale to, kiedy dochodzi i dotyka Sahasrary, to jest ważny moment.
 
-Jeżeli Ona nie dotyka Sahastrary, wtedy Łaska nie zstępuje, a Łaska musi wejść do wewnątrz nas, w oba kanały: Ida i Pingala Nadi. W ten sposób czujecie się zrelaksowani.
+Jeżeli Ona nie dotyka Sahasrary, wtedy Łaska nie zstępuje, a Łaska musi wejść do wewnątrz nas, w oba kanały: Ida i Pingala Nadi. W ten sposób czujecie się zrelaksowani.
 
 Teraz, jak ważne jest dla nas zachowanie naszej istoty, zanim dojdzie do Realizacji. Zachowanie jej takiej jaka jest. Ale my jej nie ochraniamy, popełniamy błędy. Kundalini nie jest wybaczeniem, Ona wam nie przebacza. Ona nie jest tą, która może przebaczyć, ponieważ jej natura jest gorąca jak ogień. Ona nie może przebaczyć. Tylko Duch może przebaczyć. Tylko Atma może przebaczyć, ponieważ Ona jest tą, która wskazuje wszystkie wasze problemy.
 

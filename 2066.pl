@@ -164,4 +164,4 @@ Teraz powiedzcie mantrę: "Guru Brahma, Guru Vishnu..." trzy razy.
 
 Podajcie Mi ręcznik. Bardzo powoli, powinieneś wypuścić powietrze bardzo powoli, w porządku? Można to teraz położyć, żeby mogli to zrobić. Danielle, podejdź. Połóż to na dole. Podejdź. Danielle Ci pomoże. Zrób w środku znak, dobrze?
 
-Dziękuję wam bardzo. Wszyscy powinniście tam coś położyć. Podejdźcie! Dziękuję. Zejdźcie, zejdźcie. 
+Dziękuję wam bardzo. Wszyscy powinniście tam coś położyć. Podejdźcie! Dziękuję. Zejdźcie, zejdźcie.

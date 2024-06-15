@@ -76,4 +76,4 @@ Ale jak wiecie, teraz piekło jest również pełne ludzi, więc lepiej jest,
 
 Zatem dziś jest specjalna puja, którą poświęcamy Shri Bhairavnathowi, by dał nam esencję miłości, radości i zabawy. 
 
-Niech Was wszystkich Bóg błogosławi. 
+Niech Was wszystkich Bóg błogosławi.

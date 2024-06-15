@@ -1,6 +1,7 @@
 Wywiad w Telewizji, 23.09.1983, Los Angeles, USA
 
 Właśnie dołącza do mnie Shri Mataji, znana na całym świecie jako święta. 
+
 Po raz pierwszy udało mi się spotkać świętą. I jesteś też uzdrowicielką poprzez wiarę albo uzdrowicielką poprzez psychikę. Przypuszczam, że niektórzy ludzie tak ciebie określają. Ale zapytana niedawno w wywiadzie, czy jesteś świętą albo czy uważasz się za świętą, udzieliłaś niezwykłej odpowiedzi. Jesteś więc? 
 
 Właściwie nie możesz sama sobie dać certyfikatu, czy czegoś takiego? Jakość świętego polega na tym, że może on tworzyć innych świętych. Jeśli potrafi, innych uczynić świętymi, wtedy jest świętym. W przeciwnym razie jest to po prostu samoocena.
@@ -80,11 +81,15 @@ Hm, hm.
 Czemu? Dlaczego tak jest, kiedy On to powiedział, dlaczego tak jest, że nie możemy mieć tych niewinnych oczu? Powinniśmy mieć! Powodem jest to, co powiedział: "On ma narodzić się ponownie w tobie". I jest pewne miejsce, w którym Chrystus budzi się, kiedy ta siła się podnosi.
 
 I tutaj, w jednym z artykułów, które przeczytałam, powiedziano, że czułaś, iż niektóre religie prawosławne były oparte na ignorancji i ekstremizmie. Więc zabrzmiało to dla mnie 
+
 jak fanatyzm, 
+
 że byłaś wobec nich negatywnie [nastawiona]. 
 
 Nie, nie bardzo negatywnie. Powinnam powiedzieć, jako matka, że ​​zostali sprzeniewierzeni, to oni wprowadzają ludzi w błąd. 
+
 Wprowadzają w błąd. 
+
 Widzicie, oni po prostu zaczęli myśleć, że czytając coś lub modląc się, to się wypracuje. Musicie być najpierw połączeni z Bogiem. 
 
 Jak uzyskać połączenie?
@@ -124,6 +129,7 @@ On powiedział, że nasze społeczeństwo, społeczeństwo stało się zbyt 
 Tak. Widzisz, chodzi o społeczeństwo zorientowane na ego i gdzie myślimy: "A co w tym złego?" Ale nie widzimy całości, widzimy tylko część tego. A ego nigdy nie doprowadzi nas do właściwych rzeczy. Nasza Jaźń jest tą, która daje nam całe bezpieczeństwo, całą mądrość, wszystkie wskazówki. A potem automatycznie stajemy się monogamiczni. Nie muszę tego mówić. Większość ludzi, którzy zostali prorokami, jak powiedziałam, wyleczyli się i stali się monogamiczni. Niektórzy z nich byli homoseksualistami, stali się normalnymi ludźmi, ożenili się.
 
 W porządku. Przekroczyliśmy już czas. 
+
 Chciałbym dłużej z Tobą porozmawiać, niektóre z Twoich pomysłów są bardzo fascynujące. Dla tych z was, którzy chcieliby pójść na darmowy wykład, nie wiem, czy możemy to nazwać "wykład", ale doświadczenie ze Shri Mataji, są trzy spotkania, które będą dla was dostępne - będziecie mogli spotkać ją tutaj w Los Angeles. Najpierw w sobotę w Pierwszym Kościele Metodystów przy Franklin Avenue właśnie tutaj w Hollywood. A także ponownie w poniedziałek i we wtorek o 7 rano, więc w tę sobotę w First United Methodist Church of Hollywood. 
 
 Bardzo dziękuję.

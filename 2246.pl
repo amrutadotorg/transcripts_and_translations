@@ -8,7 +8,7 @@ w nas samych.
 
 Więc zawsze pamiętajcie, że ilekroć oddajecie cześć jakiejś zasadzie na zewnątrz, staracie się czcić swoją własną zasadę w sobie. Jak wiecie, w nas, w każdym z nas, znajduje się Zasada Guru. Bardzo interesujące jest zobaczyć, jak Zasada Guru przepięknie otacza czakrę Nabhi. Nigdy nie widzimy żadnych czakr połączonych z zasadą Guru. Widzicie Nabhi, a wokół jest Bhavasagara. Zatem ten Bhavasagara, który jest Oceanem Iluzji, nie może być Guru.
 
-Ale istnieją ukryte czakry wewnątrz tego Bhavasagary, które mają zostać obudzone i wydobyte na światło dzienne, aby się objawiły. Jak możecie zobaczyć, granice tej zasady wynikają z ruchu czakry Swadisthana. Swadisthan jest tą czakrą, która daje wam przede wszystkim kreatywność. Osoba będąca Guru musi być twórcza z natury. Jeśli nie jesteście osobą kreatywną, nie możecie zostać guru.
+Ale istnieją ukryte czakry wewnątrz tego Bhavasagary, które mają zostać obudzone i wydobyte na światło dzienne, aby się objawiły. Jak możecie zobaczyć, granice tej zasady wynikają z ruchu czakry Swadishthana. Swadishthan jest tą czakrą, która daje wam przede wszystkim kreatywność. Osoba będąca Guru musi być twórcza z natury. Jeśli nie jesteście osobą kreatywną, nie możecie zostać guru.
 
 Na przykład, macie do czynienia z uczniami, z którymi musicie rozmawiać. Musicie wykreować słowo boskiej magii, aby wywrzeć wrażenie na uczniach lub ludziach, których przyciągacie do siebie jako guru, aby pokazać, że macie o wiele więcej boskiej magii niż oni. Jeśli jesteście osobą bardzo przyziemną, bardzo pospolitą, to nie możecie stworzyć przepięknego kupletu czy pięknej wypowiedzi, albo dowcipu lub żartu, czy też pięknego obrazu lub pięknego gobelinu, ani pięknego domu. Jeśli brakuje wam kreatywności, zabraknie wam Zasady Guru, ponieważ guru musi tworzyć ze zwykłych ludzi coś niezwykłego. On musi być w stanie stworzyć nową osobowość ze starej osobowości, która jest w stanie rozkładu.
 
@@ -20,7 +20,7 @@ Wielu ludzi dostaje Realizację, w porządku, oni dostają Realizację a pot
 
 w ashramach. Oni chodzą na puje, słuchają muzyki, może tańczą, śmieją się, są kolektywni, ale mimo to ich Zasada Guru nie jest obudzona dopóki nie stworzą wielu, wielu nowych Sahaja yoginów. Zatem wizja guru powinna brzmieć: "Ilu Sahaja yoginów zamierzam stworzyć? Jak zamierzam wykorzystać tę kreatywność, aby stworzyć więcej Sahaja yoginów?"
 
-Zatem, chociaż podstawą czy istotą czakry Swadisthana jest estetyka, to siłą i energią czakry Swadisthana jest uwaga. Jeśli macie chwiejną uwagę, jeśli wasza uwaga jest w jednej minucie tu
+Zatem, chociaż podstawą czy istotą czakry Swadishthana jest estetyka, to siłą i energią czakry Swadishthana jest uwaga. Jeśli macie chwiejną uwagę, jeśli wasza uwaga jest w jednej minucie tu
 
 a w następnej minucie tam, jeśli macie uwagę, przez którą możecie tylko krytykować innych i nie widzicie własnych błędów; jeśli macie uwagę, przez którą pokazujecie ludziom, że jesteście osobą niepoważną, bezsensowną, wtedy wasza Zasada Guru jest zmarnowana. Jest to wysiłek Sahaja Yogi, który jest zmarnowany, i praca waszego Guru jest też zmarnowana. To jest absolutne minimum, najpierw uwaga musi być czysta. Ale czysta uwaga nie oznacza szorstkości, nie oznacza ascetyzmu, to nie oznacza dyscyplinowania oczu klapkami jak u konia, lecz w całkowitej wolności wasza uwaga [powinna] być skoncentrowana.
 
