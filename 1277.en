@@ -1,3 +1,8 @@
+26 September 1982
+Mind Is Just Like A Donkey
+Durga Puja
+Vienna (Austria)
+Talk Language: English | Transcript (English) - VERIFIED
 Shri Durga Puja. Vienna (Austria), 26 September 1982.
 
 All of you should take bandhan. It’s better before puja.
