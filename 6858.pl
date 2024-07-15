@@ -1,5 +1,7 @@
-Devi Puja, Adelaide (Australia), 4 March 1983.
-
+4 marca 1983
+Matko Przyjdź Do Mojego Mózgu
+Devi Puja
+Adelaide (Australia)
 Bardzo miło przybyć tu do was wszystkich i przepraszam za to, co się tutaj wydarzyło przed Moim przyjazdem.
 
 Ale, jak wam już mówiłam, przyroda również może zostać przebudzona w obecności Boskiej osobowości. A kiedy zostanie przebudzona, to zaczyna zachowywać się w sposób, w jaki zachowywałaby się zrealizowana dusza. Jakby złościła się na ludzi, którzy nie są religijni, na ludzi, którzy nie chcą poznać Boga, na ludzi, którzy robią złe rzeczy w życiu, na ludzi, którzy nie są normalnymi ludźmi, w tym sensie, że nie chcą być nieodłączną częścią całości. Pustelnicy, wszelkiego rodzaju ludzie. A kiedy przyroda zostanie doprowadzona do tego poziomu to zaczyna działać na własną rękę. Jak wiecie, zgodnie z Sahaja Yogą, za każdym z elementów stoi Bóstwo. Na przykład agni [ogień] ma Bóstwo zwane Agni Devata. W czystej postaci Agni Devata jest tym, który naprawdę nas oczyszcza. Oczyszcza wszystko, oczyszcza powiedzmy złoto, jeśli włożymy złoto do ognia, to się nie zapali, tymczasem wyłoni się olśniewające, lepsze. Ale jeśli jest coś, co nie ma takiej wartości to spali się.

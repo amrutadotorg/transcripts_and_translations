@@ -1,5 +1,7 @@
-Shri Ganesha Puja 01.03.1983 Perth, Australia
-
+1 marca 1983
+On Jest Potężną Oczyszczającą Mocą
+Ganeśa Puja
+Perth (Australia)
 Myślę, że jest to jakość mądrości, która wciąż przejawia się w wielu Australijczykach, a którą wielu utraciło, ponieważ zwrócili się ku wulgarnej stronie materializmu. Shri Ganesha jest ogromną oczyszczającą mocą, ponieważ nie może być skażony przez nikogo, czegokolwiek byście nie próbowali, On nie może zostać zanieczyszczony. Jedynie może się wycofać, może się nie zamanifestować, w każdym razie, On jest w swojej Absolutnej Formie.
 
 Jeśli wiecie, jak używać [mądrości], to możecie oczyścić każdego. Zatem odpowiedzialność Australijczyków, trzeba to zrozumieć, jest bardzo jasna, ponieważ żyją oni w kraju, który jest rządzony przez Shri Ganeshę, więc przede wszystkim muszą utrzymywać swoją czystość.

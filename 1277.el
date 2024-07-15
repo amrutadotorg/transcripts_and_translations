@@ -1,69 +1,467 @@
 Shri Durga Puja. Vienna (Austria), 26 September 1982.
 
-Σήμερα είναι η πρώτη μέρα που κάνουμε αυτή την Πούτζα στην χώρα της Αυστρίας.
+All of you should take bandhan. It’s better before puja.
 
-Αυτή η χώρα είναι ιστορική και έχει περάσει από πολλές αναταραχές, για να πάρει τόσα πολλά μαθήματα στη ζωή. Αλλά τα ανθρώπινα όντα είναι τέτοια, που δεν συνδέουν τις καταστροφές με τα λάθη τους, γι'αυτό και τα επαναλαμβάνουν ξανά και ξανά. Η επίσκεψη στη Βιέννη ήταν από καιρό προγραμματισμένη και έφτασα την ημέρα που έπρεπε να γιορτάσουμε τα γενέθλια του Ματσίντρανατ. Είναι ένα ευοίωνο γεγονός για όλους σας, το ότι συμπληρώνει σήμερα τον πρώτο χρόνο της ζωής του. Τον ευλογώ με όλα τα λουλούδια, τα εκλεκτότερα λουλούδια, της ομορφιάς και της μακαριότητας, αυτόν και την οικογένεια του και όλους τους συγγενείς του. Είναι τόσα πολλά τα πράγματα που έχουν γίνει για πρώτη φορά. Ήρθα για πρώτη φορά στη Βιέννη, στην Αυστρία και επίσης παραβρέθηκα στα γενέθλια ενός παιδιού, στα πρώτα του γενέθλια. Σήμερα είναι η Αστάμι, η όγδοη μέρα του φεγγαριού, του καινούργιου φεγγαριού, Σουκλαπάκσι, και είναι η πρώτη φορά που πρόκειται να δοξαστούν όλα τα όπλα της Θεάς. Αυτή είναι μια καταπληκτική ιδέα, γιατί αυτά τα όπλα που δουλεύουν συνεχώς, όχι μόνο για να σκοτώσουν το κακό, αλλά και για να προστατέψουν το καλό, δεν έχουν λατρευτεί ποτέ ξανά. Αν σήμερα συνειδητοποιήσουν οι άνθρωποι τη σημασία τους και το πόσο σημαντικά είναι, τότε πολλά προβλήματα που έχουν δημιουργηθεί, όπως οι ατομικές βόμβες και άλλα παρόμοια, μπορούν να λυθούν, με το να τα στρέψουμε στη σωστή κατεύθυνση και να τα χρησιμοποιήσουμε για την καταστροφή των σατανικών δυνάμεων και όχι των καλών.
+Today is the first day we are having this puja in this country of Austria. This country is an historical country with different upheavals it has gone through to learn so many lessons in life. But human beings are such that they do not relate the calamities with their mistakes. That’s how they go on repeating the same mistakes again and again.
 
-Επίσης για την προστασία της ανθρώπινης ζωής και τη διαφύλαξή της. Τα ίδια όπλα μπορούν να χρησιμοποιηθούν προς τη λανθασμένη κατεύθυνση. Αλλά αν χρησιμοποιηθούν σωστά, μπορούν να αφιερωθούν στην υπηρεσία της δουλειάς του Θεού. Όλα αυτά που έχουν δημιουργηθεί από ανθρώπινα όντα, που εξωτερικά μοιάζουν με όργανα καταστροφής, αν οι άνθρωποι χρησιμοποιήσουν τη σοφία τους, μπορούν να ανακαλύψουν ότι όλες αυτές οι εφευρέσεις που τους έχουν δοθεί από το Ασυνείδητο, είναι για τη δουλειά του Θεού. Όλη η επιστημονική έρευνα, όλα όσα έχουν γίνει, όλοι οι θεσμοί που έχετε δημιουργήσει, είναι για την υπηρεσία του Θεού. Κατά κάποιον τρόπο μπορούμε να πούμε, ότι τα ανθρώπινα όντα έχουν δουλέψει για να δημιουργήσουν μεθόδους ως όργανα: κοινωνικούς, οικονομικούς, πολιτικούς θεσμούς, για να προωθήσουν το μηχανισμό της δουλειάς του Θεού. Το Ασυνείδητο έχει λειτουργήσει μέσα από τα ανθρώπινα όντα. Όλοι αυτοί οι οργανισμοί, αν τοποθετηθούν στη σωστή μεριά της δράσης και όχι της σατανικής δραστηριότητας, μπορούν να ενωθούν όλοι μαζί για να ολοκληρώσουν τη δουλειά του Θείου. Όπως, στην Ανατολή οι άνθρωποι πιστεύουν ότι ο Θεός έχει δημιουργήσει το όμορφο σώμα των ανθρώπινων όντων και έγκειται στους ανθρώπους να δημιουργήσουν όμορφα, καλλιτεχνικά ρούχα για να τονίσουν την ομορφιά που έχει δημιουργήσει ο Θεός, να δοξάσουν την ομορφιά αυτού που έχει δημιουργήσει ο Θεός, να σεβαστούν την ομορφιά που έχει δημιουργήσει ο Θεός. Αυτό έχει συμβεί σε πολλούς τομείς της ανθρώπινης δράσης και θα έπρεπε να έχει συμβεί σε όλους, αν οι άνθρωποι είχαν χρησιμοποιήσει τη σοφία τους.
+The visit to Vienna was overdue and I came on a day when we had to celebrate the birthday of Machindranath (Ed. M. is a Sahaja Yogi baby). It’s very auspicious for all of you that he should be today complete his one year of life. I bless him with all the flowers, the choicest flowers, of beauty and bliss on him, and his family, all his relations and his family. There are so many things which have been done for the first time. I should say, for the first time I’ve come to Vienna, to Austria, and [the] the first time I’ve come to the birthday of a child, on his first birthday.
 
-Το ζήτημα της γνώσης που συζήτησα πριν, είναι πολύ σημαντικό να το καταλάβετε. Η απαγορευμένη γνώση της εποχής του Αδάμ και της Εύας υπήρξε ένα μεγάλο πρόβλημα, το οποίο δεν κατανοήσει οι άνθρωποι. Ήταν όταν ο Θεός για πρώτη φορά δημιουργούσε ανθρώπινα όντα, εκτός από τα ουράνια όντα τα οποία ήταν τέλεια. Ήθελε να δει αν τα ανθρώπινα όντα μπορούσαν να αυξήσουν τον πληθυσμό τους, τη συνειδητότητά τους και την αθωότητά τους, αν θα μπορούσαν να πάρουν την Αυτογνωσία. Αλλά ήταν ένα πείραμα και τα ανθρώπινα όντα απογοήτευσαν το Θεό εκείνη την εποχή, γιατί ακολούθησαν χαμηλού επιπέδου προτροπές. Έτσι απέτυχαν και έχασαν την αθωότητά τους. Και η απώλεια της αθωότητας είναι το πρώτο αμάρτημα που διαπράχθηκε και αυτή η αμαρτία πήρε μια διαφορετική τροπή για τα ανθρώπινα όντα. Τώρα, αυτή η γνώση όπως είπα, δεν είναι η αληθινή γνώση. Ήταν η Αβίντια, η τεχνητή γνώση. Η γνώση που λέει ότι «Είμαι κάτι», ότι «Εγώ είμαι αυτός που δημιουργεί», το Εγώ.
+And on an Ashtami, that is today, is the eighth day of the moon, of the moon which is increasing, Shukla Pakshi ; that first time all the weapons of the Goddess are to be worshipped. This was a great idea because these weapons who work all the time, not only to kill the evil but to protect the good, were never worshipped before; and that today, if human beings realise their importance and significance, then lots of problems of atomic bombs and all these things that have been created could be solved by diverting them to the right direction, using them for the destructions of the evil forces and not the good; also for protecting human life, nourishing human life. The same weapons can be used in a wrong direction; but, rightly used, they can be dedicated for the use of God’s work.
 
-Μέχρι το στάδιο του ζώου, δεν υπήρχε Εγώ και μετά άρχισε να αναπτύσσεται το Εγώ. Θα μπορούσαμε να πούμε ότι αυτή είναι η αρχή του προπατορικού αμαρτήματος, αυτό το «Εγώ είμαι κάτι, εγώ κάνω κάτι, εγώ είμαι αυτός που μπορώ να το κάνω». Έντάξει; Έτσι, είπε ο Θεός: «Για να δούμε. Για να δούμε το λιγοστό τους θάρρος και ας τους αφήσουμε να αποφασίσουν». Τα σχέδια λοιπόν, άλλαξαν. Σκέφτηκε ότι θα έπρεπε να στείλουμε ενσαρκώσεις στη γη, για να βοηθήσουν αυτούς τους ανθρώπους, να τους καθοδηγήσουν, να τους εξισορροπήσουν, να τους δώσουν τη σωστή έννοια της ηθικής, του Ντάρμα, έτσι ώστε να κρατήσουν αυτή την ισορροπία. Αλλά κάθε φορά αυτό το Εγώ, αρνούνταν να δεχτεί την ισορροπία. Αυτό το Εγώ πάει πολύ μακριά από την πραγματικότητα. Ακόμα και σήμερα, όταν έρχονται στη Σαχάτζα Γιόγκα, βλέπω ανθρώπους που δεν προχωρούν πολύ γρήγορα. Εξαιτίας του Εγώ έχουν ερωτήσεις, αμφιβολίες, προβλήματα.
+All that is created by human beings, which looks apparently an instrument of destruction, but if human beings use their wisdom, they will find out that all these inventions that have come to them from the prompting of the Unconscious, are for the work of God. All scientific research, everything that has been done, all these instruments that you have produced, are for the use of God. In a way, we can say that human beings have worked to create methods as instruments, as social, economic, political institutions to advance the mechanism of God’s work. The Unconscious has worked through human beings. All these institutions, if they are put to the right side of their activity and not to the hellish activity, they all can join together to complete the work of the Divine. 
 
-Εξαιτίας του προπατορικού αμαρτήματος, οι άνθρωποι δεν εξελίσσονται πολύ γρήγορα. Λένε «Εγώ είμαι ο ένας, είμαι ελεύθερος γιατί αυτό, γιατί εκείνο;» Ποιοι είστε εσείς για να κάνετε ερωτήσεις; Ποιος σας έχει φτιάξει; Εσείς έχετε φτιάξει τον εαυτό σας; Τι έχετε κάνει για να γίνετε ανθρώπινα όντα; Γιατί έχετε αυτή την εγωιστική συμπεριφορά προς το Θεό; «Γιατί ο Θεός μας δημιούργησε; Γιατί;» Ποιοι είστε για να κάνετε οποιαδήποτε ερώτηση; Αλλά έτσι είναι τα πράγματα, η αμφισβήτηση συνεχίζονται και αυτοί οι άνθρωποι είναι πολύ επικίνδυνοι για τη Σαχάτζα Γιόγκα. Αν πρέπει να έρθουν σε Πούτζα ανησυχώ, όχι γιατί κάτι μπορεί να συμβεί στην Πούτζα, αλλά γιατί μπορεί να τους χάσουμε τελείως. Τέτοιοι άνθρωποι, εγωιστές και ανόητοι, χάνονται. Σαν μητέρα, έχω συμπόνια και αγάπη γι' αυτούς και αισθάνομαι λυπημένη, γιατί θα μπορούσαν να σωθούν, αλλά αυτό το μυαλό που θέτει συνέχεια ερωτήσεις, μπορεί να τους πνίξει. Αυτό είναι το βασικό αμάρτημα που έχουν δημιουργήσει τα ανθρώπινα όντα. Πέρα από αυτό, είχαμε προβλήματα λόγω του ότι έχουμε έρθει από το ζωικό στάδιο σε αυτό το στάδιο. Γι' αυτό υπάρχουν άγριες, ζωώδης παρορμήσεις μέσα σας. Αργότερα, περάσαμε μέσα από άλλες συνθήκες που δημιουργήθηκαν στην ιστορία και πάλι μέσα από το Εγώ που ξεκίνησε οργανισμούς, που άρχισε να οργανώνει θρησκείες. Ας πάρουμε για παράδειγμα τον Χριστιανισμό.
+Like, in the East people believe that God has created this beautiful body of human beings and it is for human beings to create beautiful artistic clothes to enhance the beauty of what God has created, to glorify the beauty of what God has created, to respect the beauty that God has created. And that’s what has happened in many spheres of life, of human activities, and should have happened in all of them if they had used their wisdom.
 
-Ο Χριστός ήρθε εδώ για να σπάσει το Εγώ σας. Αντιθέτως όμως, οι άνθρωποι έχτισαν ένα μεγάλο Εγώ πάνω σ' αυτό. Υπάρχουν μερικοί Σαχάτζα Γιόγκις που πιστεύουν ότι η Σαχάτζα Γιόγκα είναι μια χριστιανική Σαχάτζα Γιόγκα ή μια ινδουιστική Σαχάτζα Γιόγκα. Ακόμα σέρνεται αυτή η ιδέα ότι είναι μια χριστιανική Σαχάτζα Γιόγκα. Για τους Χριστιανούς πρέπει να είναι μια χριστιανική Σαχάτζα Γιόγκα, για τους Ινδουιστές θα έπρεπε να είναι μια ινδουιστική Σαχάτζα Γιόγκα, για τους Μουσουλμάνους είναι μια μουσουλμανική Σαχάτζα Γιόγκα. Πρέπει να συνδέεται με το Ισλάμ, γιατί δεν μπορούν να αποταυτιστούν από τις προσκολλήσεις τους, γι' αυτό πρέπει να συνδέεται με αυτές, πρέπει να εξηγεί οτιδήποτε βρίσκεται εκεί. Βλέπετε, δεν μπορούν να ξεφύγουν από αυτό. Θα μπορούσε να είναι μια καθολική Σαχάτζα Γιόγκα ή μια προτεσταντική, θα μπορούσε να είναι κάτι βαθύτερο από αυτό. Έτσι λοιπόν συνεχίζεται. Θέλετε να τραβήξετε τη Σαχάτζα Γιόγκα στις δικές σας κατηγορίες, μέσα στις δικές σας μικρές κούπες.
+The question of knowledge that I discussed before is very important to understand. The knowledge that was forbidden once upon a time, [such] as Adam and Eve, has been a big problem for human beings to understand.
 
-Αλλά είναι ακριβώς το αντίθετο. Η Σαχάτζα Γιόγκα είναι ένας ωκεανός, είναι κάτι το παγκόσμιο, είναι η Μάχα Γιόγκα. Δεν προορίζεται για τους Χριστιανούς, τους Ινδουιστές, τους Μουσουλμάνους, αλλά για τα ανθρώπινα όντα όπως ήταν. Έχετε ζώα που είναι χριστιανοί, ινδουιστές ή μουσουλμάνοι; Όλα αυτά προέρχονται από το προπατορικό αμάρτημα και μόνο, ότι κάτι είμαστε: είμαστε Χριστιανοί, είμαστε Ινδουιστές, είμαστε Μουσουλμάνοι. Στη Σαχάτζα Γιόγκα, πρέπει να καταλάβει κανείς, ότι όλα τα ποτάμια, είτε είναι ο Γάγγης, ο Γιαμούνα, ο Τάμεσης ή ο Δούναβης, οποιοδήποτε ποτάμι, όλα ρέουν στον ίδιο ωκεανό και γίνονται ο ωκεανός. Λένε ότι όταν όλοι οι ποταμοί ρέουν στον Γάγγη, ονομάζονται Σουράσαρι, το ποτάμι των Θεών. Οι άνθρωποι δεν τους αποκαλούν πλέον με τα διάφορα εθνικά τους ονόματα, όταν ρέουν εκεί. Κατά τον ίδιο τρόπο η Σαχάτζα Γιόγκα είναι ο ωκεανός. Δεν μπορείτε να της δώσετε ένα όνομα. Μην προσπαθείτε να την ταυτίσετε με άλλα πράγματα.
+It was the case when God created human beings first time – apart from the celestial beings, who were perfect – that He wanted to see if these human beings could grow in their population and in their awareness, in their innocence, they would become Self Realized. But it was an experiment, and the human beings failed God at that time because they listened to baser promotions or baser prompting. That’s how they failed and they lost their innocence. And [the] loss of innocence is the sin which was first committed, and that sin took a different turn for human beings. Now, that knowledge, what I’ve said, is not this real knowledge. That was the avidya, the artificial knowledge, the knowledge that “I am something,” that “I am the doer” – the ego. Till the animal stage, there was no ego, and then the ego started growing. We can say that’s the beginning of the original sin: that “I am something. I am doing something. It’s I who can do it”. All right?
 
-Αν αρχίσετε να κάνετε κάτι τέτοιο, το μυαλό σας θα γίνει σαν μια μικρή κούπα. Εάν έρχεστε από μια οργανωμένη θρησκεία είναι πολύ σημαντικό να καταλάβετε ότι οι οργανωμένες θρησκείες κάνουν την κούπα σας ακόμη πιο δυνατή και δεν μπορεί να διαλυθεί. Αι είναι μια μη οργανωμένη θρησεία, τότε είναι μία κούπα από πηλό, που μπορεί να διαλυθεί μέσα στον ωκεανό. Αν είναι μια ακέραια, ωραία πορσελάνη, Μέισεν, δεν υπάρχει καμία πιθανότητα. Τότε κολλάτε σε όλες τις ταυτίσεις, σε όλη αυτήν την ακαμψία και μετά είναι πολύ δύσκολο. Πρέπει συνέχεια να αναφέρεστε στο Χριστό, στο Μωάμεθ, στο Ζωροάστρη ή σε κάποιον άλλο που πρέπει να είναι εκεί για να σας καθοδηγεί. Ο οδηγός σας τώρα, είναι το Πνεύμα το οποίο δεν έχει όρια, γι'αυτό δεν χρειάζεται να φέρετε κανέναν από Αυτούς. Είναι όλοι μέσα σας, είναι αναπόσπαστο μέρος σας. Αλλά το να προσκολλήστε σε Έναν, είναι πάλι ένα σημάδι ότι δεν διευρύνεστε. Ξέρετε ότι είστε το όλο.
+So God said, “Let’s see. Let’s see their little courage, and let them decide.”
 
-Έχετε τον Σρι Κρίσνα μέσα σας που είναι αφυπνισμένος, έχετε το Χριστό μέσα σας, έχετε τον Γκανέσα μέσα σας, έχετε τον Μπραχμαντέβα μέσα σας και έχετε τον Μωάμεθ μέσα σας. Και τους έχετε όλους, τον Μωησύ, όλους. Πώς μπορείτε να ταυτίζεστε λοιπόν, μόνο με ένα πρόσωπο; Ο λόγος είναι ότι έχετε ακόμα προσκολλήσεις και προσπαθείτε να τη τραβήξετε μέσα σε αυτές. Έτσι προσπαθήστε να έρθετε στη θέση όπου δεν υπάρχει προσκόλληση. Μπορούμε να δούμε πως χειροτερεύει η πορεία των προσκολλήσεών μας, γιατί ως ανθρώπινα όντα έχουμε τη συνήθεια να δημιουργούμε ένα στενό πυρήνα. Πρώτα το κάνουμε με τον εαυτό μας, ότι εγώ, «Εγώ είμαι ο τάδε και ο δείνα». Μετά δημιουργούμε ομάδες, όπως για παράδειγμα αν είμαστε άνθρωποι που χρησιμοποιούμε πηρούνι και μαχαίρι. Οι άνθρωποι που χρησιμοποιούν το πηρούνι και το μαχαίρι με ένα συγκεκριμένο τρόπο δημιουργούν μια ομάδα, οι άνθρωποι που τα χρησιμοποιούν με άλλο τρόπο, άλλη ομάδα. Βλέπετε, συνεχίζονται κατά αυτόν τον τρόπο, όλων των ειδών οι ανοησίες που βρίσκουν οι άνθρωποι για να δημιουργούν ομάδες. Εντάξει, χρησιμοποιήστε τα όπως σας αρέσει, δεν έχει σημασία.
+So the plans were changed; one had to think now that we should get incarnations on this earth to help these people, to guide them, to put them into balance, to put them into [a] proper understanding of dharma, so they keep to that balance. But every time this “I” refused to accept the balance.
 
-Τρώτε το ίδιο φαγητό, χωνεύεται και λειτουργεί με τον ίδιο τρόπο. Αλλά όσον αφορά τα εξωτερικά πράγματα της ανθρώπινης δραστηριότητας, θα χρησιμοποιήσουν το πηρούνι και το μαχαίρι με διαφορετικό τρόπο, άλλοι θα φάνε με τα χέρια, με τα δάχτυλα, άλλοι, δεν ξέρω τι άλλο θα βρούνε, με στιλέτα. Δεν ξέρω πώς τα καταφέρνουν να φτάνουν σε τέτοια άκρα. Αυτό είναι όλο. Με ό,τι κάνουν, με οποιαδήποτε δραστηριότητα, δημιουργούν ένα κλειστό κύκλωμα, λέγοντας: «Εμείς το κάνουμε έτσι. Εκείνοι το κάνουν αλλιώς», εννοώντας τη μέθοδο μιας άλλης ομάδας ή άλλων ανθρώπων. Η ομαδοποίηση είναι ότι το χειρότερο και αντιτίθενται στους νόμους της φύσης. Μπορείτε να είστε ατομικιστής σε ότι αφορά την εμφάνισή σας, το χρώμα των μαλλιών σας, το χρώμα των ματιών σας, γιατί ο Θεός σας δημιούργησε με αυτό τον τρόπο. Αλλά, όλα τα άλλα πράγματα που έχετε δημιουργήσει είναι νεκρά. Όλες οι μέθοδοι ομαδοποίησης που έχετε δημιουργήσει, δεν έχουν καμία απολύτως αξία.
+And this “I” goes very far from reality. Today also, when we come to Sahaja Yoga, I see people, they don’t grow very fast. Because of this “I” they have questions, they have doubts, they have problems. Because of this original sin, people cannot grow very fast.
 
-Όλα είναι μυθικά. Δεν υπάρχει καμιά αλήθεια μέσα σε αυτά, τίποτα που να αξίζει κανείς να υπολογίσει. Είναι μόνο ένας μύθος. Καταλάβετε λοιπόν ότι δεν υπάρχει κάτι σαν χριστιανική Σαχάτζα Γιόγκα, προτεσταντική ή καθολική Σαχάτζα Γιόγκα. Το βρίσκω αυτό σε ένα πολύ λεπτό επίπεδο, όταν οι άνθρωποι μιλούν για συλλογικότητα, ότι δεν καταλαβαίνουν πως δεν είμαστε συλλογικοί, γιατί έχουμε τόσες πολλές ετικέτες κολλημένες πάνω μας, όπως οι προσκολλήσεις των πράξεών μας. Θα μπορούσαν να είναι στην Ελβετία, την Αυστρία, τη Ρώμη ή την Ινδία, οπουδήποτε. Πρέπει να απαλαγούμε από αυτές τις προσκολλήσεις. Πρέπει να γνωρίζουμε ότι είμαστε ανθρώπινα όντα, δημιουργημένα από το Θεό και οτιδήποτε υπάρχει μέσα μας και είναι αληθινό έχει δημιουργηθεί από Αυτόν και αυτό είναι το μοναδικό πράγμα που πρέπει να είμαστε. Από όλες τις υπόλοιπες προσκολλήσεις, πρέπει να προσπαθούμε να απαλαχθούμε. Όλα είναι συμπληρωματικά.
+That, “I am the one, I am free. Why that? Why this?” Who are you to ask questions? Who has made you? Have you made yourself?
 
-Από το ένα μέρος πρέπει να μάθουμε κάτι, από το άλλο πρέπει να μάθουμε κάτι άλλο. Από κάθε μέρος μπορούμε να μάθουμε και να καταλάβουμε κάτι. Δεν υπάρχει τίποτε που να μπορεί να θεωρηθεί από κάποιους ανθρώπους σαν κάτι ανώτερο ή κατώτερο. Αλλά φυσικά, όπου έχει αναπτυχθεί περισσότερο το Εγώ, αυτό το προπατορικό αμάρτημα έχει αναπτυχθεί περισσότερο και υπάρχει η πιθανότητα τέτοια ανθρώπινα όντα να έχουν δημιουργήσει περισσότερες προσκολλήσεις. Είναι φυσικό να έχουν δημιουργηθεί περισσότερες προσκολλήσεις. Σε μέρη, όπου δεν ενδιαφερόντουσαν για τη θρησκεία, για το Θεό, και προσκολλούνταν, όπως στην Αφρική και σε όλα αυτά τα μέρη, μπορεί οι προκαταλήψεις να δημιουργούνταν από άλλες δυνάμεις. Ονομάζονται «Αντιμπάουντικ» και σημαίνει αυτά που έχουν δημιουργηθεί από ότι έχει δημιουργήσει ο Θεός. Όπως αν δουν το φεγγάρι, φοβούνται το φεγγάρι, αν δουν, τα δέντρα φοβούνται τα δέντρα. Είναι ένα είδος μυθικών ιδεών για την ίδια τη φύση. Βλέπετε, υπάρχουν λοιπόν δύο τύποι, όπως ήδη ξέρετε.
+What did you do to become a human being? Why this kind of egoistical behaviour towards God?
 
-Το ένα είναι εκεί όπου δημιουργούν μυθικές ιδέες σχετικά με τη φύση, η μυθική πλευρά της φύσης που είναι «Αντιμπάουντικ» και η άλλη «Αντινταϊβικ» είναι οι μυθικές ιδέες για το τι μπορείτε εσείς να παράγετε, ότι είστε Θεός, είστε οι Θεότητες και θέλετε να το δημιουργήσετε. «Είμαι αυτό, είμαι το άλλο». Υπάρχουν λοιπόν, δύο ειδών προσκολλήσεις που λειτουργούν, αλλά στη σύγχρονη εποχή υπάρχει τέτοια σύγχυση που δεν ξέρω πια που δρουν αυτές οι δυο πλευρές. Τις προάλες περνούσα κοντά από το νεκροταφείο της Βιέννης. Έμεινα έκπληκτη, επειδή ενώ ήταν νεκροταφείο μπλόκαρε το δεξί Σβάντισταν. Έτσι είπα: «Όλα τα νεκρά πνεύματα πρέπει να είναι ενεργά τώρα, γιατί δεν μπορώ να καταλάβω πως αλλιώς μπορεί να μπλοκάρει το δεξί σβάντισταν στο νεκροταφείο». Έτσι εξηγείται το γιατί τα νεκρά πνεύματα είναι πολύ ενεργά σήμερα ή έχουν ξαναγεννηθεί. Βλέπετε, πρέπει να έχουν πεθάνει εκατοντάδες φορές, πρέπει να έχουν σκαφτεί άπειροι τάφοι και σήμερα αυτοί οι τάφοι είναι άδειοι και αυτά τα πνεύματα είναι ενεργά. Ή ίσως αυτά τα νεκρά πνεύματα να είναι τώρα ενεργά, να μην είναι πλέον εκεί και έχουν φύγει. Μπορεί να είναι αυτό.
+“Why God has made us? Why this thing?”
 
-Γι'αυτό πρέπει να κρίνουμε πλέον, βάση των δονήσεων και όχι της κατανόησής μας ή αυτού που σκεφτόμαστε ή που καταλαβαίνουμε μέσα από αυτό το μυαλό. Κάνοντας ερωτήσεις και μιλώντας πολύ γι’αυτό, δεν μπορείτε να καταλάβετε τη Σαχάτζα Γιόγκα. Για τη Σαχάτζα Γιόγκα, πρέπει να έχετε αυτό το υψηλότατο επίπεδο μυαλού, στο οποίο μπορείτε να δεχτείτε τις δονήσεις, να νιώσετε τις δονήσεις και να συμβιβαστείτε απόλυτα με αυτές. Εάν υπάρχει το κόλλημα του Εγώ, σε σημείο που κάποιος ακόμα να αμφισβητεί τη Σαχάτζα Γιόγκα και να έχει μεγάλη ιδέα για τον εαυτό του, είναι καλύτερο για τέτοιους ανθρώπους να μην παραβρίσκονται σε Πούτζα. Είναι καλό για τους ίδιους. Είναι καλό για αυτούς τους ανθρώπους που έχουν αμφιβολίες, να μην παραβρίσκονται σε Πούτζα. Γιατί η Πούτζα προορίζεται για αυτούς που έχουν φτάσει, που έχουν δεχτεί αυτό το επίπεδο μυαλού που ονομάζεται Νιρβικάλπα, εκεί όπου δεν υπάρχει βικάλπα, όπου δεν υπάρχει αμφιβολία στο μυαλό σας. Αν υπάρχουν ακόμα αμφιβολίες στο μυαλό σας, το μυαλό σας είναι ακόμα πολύ δυνατό και θα σας τραβήξει κάτω. Έτσι, πριν την Πούτζα, πρέπει να πείτε στο μυαλό σας να κάτσει ήσυχο. «Καλύτερα κάτσε ήσυχα, τώρα πρέπει να εξελιχθώ.
+Who are you to ask any question? But it is so, the questioning goes on, and such people are very dangerous for Sahaja Yoga. If they have to come for puja, I’m worried, not because anything will happen to puja, but [because] we may lose them completely. Such egoistical stupid people get lost. As a mother, I have simple compassion and love for them, and I feel sad that they could have been saved. But this questioning mind of theirs can drown them. This is the basic original sin that human beings have created.
 
-Και να δεχτώ τις ευλογίες του Θείου. Γι' αυτό κάτσε ήσυχα, γιατί αλλιώς δεν μπορώ να εξελιχθώ». Σας έχω πει πολλές φορές ότι το μυαλό είναι σαν ένας γάιδαρος. Αν πάτε πίσω από το γάιδαρο, θα σας κλωτσήσει, θα σας πει ότι είστε ένας κακός άνθρωπος, ο χειρότερος άνθρωπος και θα γεμίσετε αυτολύπιση. Αν πάτε μπροστά του, θα βάλει τα αυτιά του επάνω σας, για να μπορέσετε να τον κρατήσετε όπως το Εγώ. Μπορείτε να πάτε όπου θέλετε, να κάνετε ότι σας αρέσει, «Τι πειράζει;» Δεν θα σας ελένξει. Αν καθίσετε πάνω στο γάιδαρο θα προσπαθήσει να σας ξανακοροϊδέψει, για να δει πως θα ανταποκριθείτε. Έτσι, αν επιτρέψετε στο μυαλό σας να πηγαίνει από εδώ και από εκεί, μέσω των ματιών σας ή μέσω της προσοχής σας, ή μέσω της γλώσσας σας ή των αισθήσεών σας, αυτό θα πει εντάξει. Θα τρώει το γρασίδι από τις άκρες του δρόμου και θα πηγαίνει από την μια μεριά στην άλλη όπου υπάρχει γρασίδι. Γκρεγκουάρ: Σε αυτή τη φάση, καθώς μιλάτε γι’αυτό, θα μπορούσα να μεταφράσω γρήγορα για τους Γάλλους που δεν καταλαβαίνουν αγγλικά; Ω!
+Apart from that, we had [the]problem that we have come from [the] animal stage to this stage. So there are animal brutal conditionings within you. Then we have gone through other conditionings, which were created in the history by the same mister “I” who has started institutions, who started organizing religions. 
 
-θέλεις να μεταφράσεις όλα αυτά; Γκρεγκουάρ: Μπορώ μέσα σε δύο λεπτά. Νομίζω ότι θα ήταν καλύτερα να μεταφράσεις αργότερα, Γκρεγκουάρ, γιατί τώρα η ροή είναι καλύτερη, εντάξει; Έτσι, αυτός ο γάιδαρος θέλει να φάει γρασίδι. Ξέρει ότι δεν σας πειράζει να τρώει γρασίδι Εντάξει. Γυρνάει ολόγυρα, τρώει γρασίδι, κάθε είδους βρωμιά, οτιδήποτε βρει. Τρώει οτιδήποτε εσείς του επιτρέπετε, συνεχίζει να τρώει, κάθε τι βρώμικο, κάθε βρώμικη σκέψη και κάθε τι άλλο, χωρίς να αναρωτιέται. Μόνο στη Σαχάτζα Γιόγκα έρχονται και κάνουν ερωτήσεις. Όταν είναι να φάνε βρωμιά και κάθε είδους ανίερο και αμαρτωλό πράγμα, τότε δεν το εξετάζουν. Τότε λένε: «Ποιο είναι το πρόβλημα;» Αλλά όταν πρόκειται για τη Σαχάτζα Γιόγκα, θα το εξετάσουν, αυτό που είναι ιερότερο από ιερό, σπουδαιότερο από σπουδαίο. Μόνο αυτές οι πύλες είναι ανοικτές για σας. Μόνο έτσι μπορείτε να το επιτύχετε και όχι με άλλο τρόπο, είναι απαγορευμένο για όλους τους άλλους ανθρώπους να το φτάσουν.
+For example, take Christianity. Christ came here to break your ego. On the contrary, people built a big ego out of it. Now, there are some Sahaja Yogis who believe that Sahaja Yoga is a Christian Sahaja Yoga or a Hindu Sahaja Yoga. Still, that lingers on, that lingers on, that it is a Christian Sahaja Yoga. For Christians it has to be Christian Sahaja Yoga; for Hindus, it should be a Hindu Sahaja Yoga. For Muslims it is a Muslim Sahaja Yoga; it must relate to Islam because they can’t get out of their own conditioning, so it must relate to that, it must explain everything that is there. They can’t get out, you see? It could be also a Catholic Sahaja Yoga or a Protestant Sahaja Yoga. Could be even deeper than that.
 
-Το νερό που πλένει τα πόδια Μου είναι αμβροσία, είναι «Τίρτα» που ήταν απαγορευμένη ακόμη και στους γιατρούς στο παρελθόν. Δεν επιτρεπόταν στους Βάιντας και έπρεπε να αγωνιστούν γι' αυτό. Μόνο στους Θεούς επιτρεπόταν να το πιούν. Μόνο στους Θεούς επιτρεπόταν να το πιούν. Σήμερα έχετε τοποθετηθεί στη θέση των Θεών. Αλλά είστε ικανοί για κάτι τέτοιο; Το αξίζετε ή ακόμα αναρωτιέστε και έχετε προβλήματα; Τότε είναι καλύτερα να σας είναι απαγορευμένο. Είναι σπάνιο πράγμα να μπορείτε να πιείτε την αμβροσία. Είναι μέσα στο Ντέβι Πουράνα Μπαγκάβαταμ. Αν το διαβάσετε, θα δείτε ότι απαγορευόταν να το πάρουν. Λοιπόν έτσι είναι τα πράγματα.
+Like that, you see, it goes on. So, you pull Sahaja Yoga into your own categories, into your own small little cups. But it’s just the other way round. Sahaja Yoga is the ocean, is a universal thing, it is a Maha Yoga. It is not meant for Christians, Hindus, Muslims or anything; it is meant for human beings as they were. Have you got animals who are Christians, Hindus or Muslims? This all comes because of the original sin only, that we are something – we are Christians, we are Hindus, we are Muslims. In Sahaja Yoga, one has to understand that all the rivers, whether it is the River Ganges or the River Yamuna or it is the River Thames or River Danube, any river, that all of them flow into the same ocean and become the ocean. They say that when all the rivers flow in the River Ganges, they are all called as Surasari means “the River of the Gods.” No more people call them by the different names of the tributaries that are there. In the same way, Sahaja Yoga is the ocean. You cannot name it. Do not try to find its identity with other things. If you start doing that, then your mind will start becoming that small little cup. And moreover, if you are coming from some organized religion, it is  very important to understand that organized religions make your cup even stronger, it doesn’t dissolve. If it is a disorganised religion, then it is a cup of earthenware, which can dissolve into this ocean.
 
-Ότι το μυαλό συμπεριφέρεται σαν γάιδαρος. Αν όμως ο γάιδαρος γνωρίζει ποιος είναι ο αναβάτης, γνωρίζει τους τρόπους του και ξέρει πώς να ελένξει το μυαλό και ξέρει πως να λειτουργήσει, ο ίδιος γάιδαρος, τα ίδια όργανα, οι ίδιοι θεσμοί, τα ίδια πράγματα που έχετε γύρω σας, θα σας πάνε εκεί με μεγαλύτερη ταχύτητα και πολύ άνετα. Γι’ αυτό πείτε σήμερα στο μυαλό σας ότι αρκετά, αρκετά παίξαμε με το μυαλό. Τώρα θέλουμε να είμαστε εκεί, στο βασίλειο του Θεού. Πείτε το στο μυαλό σας απόλυτα, πείτε στο μυαλό σας. Είναι σημαντικό. Αυτό είναι το μυαλό που σας έχει οδηγήσει σε κάθε λογής πράγματα. Σας έχει δώσει όλη τη βρωμιά. Έτσι απλά πείτε το στο μυαλό σας. Είθε ο Θεός να σας ευλογεί.
+But if it is a solid, nice porcelain – Meison – there is no possibility. Then you are adhering to all that conditioning, all that solidness, and then it’s very difficult. All the time you have to bring in Christ or you have to bring in Mohammad or you have to bring in Zoroaster, or someone like that who should be there to guide you. Now your guidance is your Spirit, which is unlimited, so you don’t have to bring any one of Them. They are all within you. They are part and parcel of you. But to stick on to one person is again a sign that you are not expanding.
 
-Έτσι για σημερινό θέμα, θα πρέπει να πούμε ότι πρέπει να κατακτήσουμε την αθωότητα μέσα μας και να αισθανθούμε την αθωότητα του Βιράτα. Το ερώτημα του Γκανέσα στο Βιράτα, ή του Βιράτα Γκανέσα, εκεί, στο Βιράτα, πρέπει να νιώσουμε την αθωότητα, έτσι ώστε να γίνουμε αθώοι, οι αμαρτίες μας να ξεπλυθούν, να καθαριστούμε μέσα από την αθωότητα και αυτός ο εγωκεντρισμός να χαθεί από σας. Αυτό το προπατορικό αμάρτημα φεύγει από πάνω μας και γινόμαστε αυτό το όμορφο πλάσμα που είναι το περήφανο παιδί του Θεού και είναι το επιστέγασμα της δημιουργίας. Είθε ο Θεός να σας ευλογεί! Τώρα μπορείς να μεταφράσεις Γκρεγκουάρ. Είναι εντάξει, μπορείς να μεταφράσεις. Ξέρω ότι είναι εκτενής, αλλά μερικές φορές διαπιστώνω ότι αν η ροή δεν διατηρείται... Γκρεγκουάρ: Συγνώμη Μητέρα, δεν έπρεπε να διακόψω. Όλα είναι εντάξει. Μπορείτε να τη ξαναπαίξατε και να την βάλετε χαμηλά σαν υπόκρουση για να μπορείτε να λέτε κάτι αυθόρμητα. Θα είναι εντάξει να την επαναλάβετε; Αυτό θα σας δώσει ... Γκρεγκουάρ: Σκεφτόμουν τρία λεπτά για τα γαλλικά και τρία λεπτά για τα ιταλικά, πολύ συμπυκνωμένα.
+You know that you are all. You have got Shri Krishna within you, who is awakened, you have got Christ within you, you have got Ganesha within you, you have got Brahmadeva within you, and you have got Mohammad within you. And you have got all of Them: Moses, everyone, within you; so how can you be identified with one person? The reason is, you are still conditioned, and you want to drag it into your own conditioning. So try to bring it at a position where there is no conditioning. We can see our conditioning works so much with our style because, as human beings, we have a habit of forming a closed sect, whether it is ourselves – first we close ourselves as “I.” “I am XYZ. Then we can club together as, say, “We are, say, people who use forks and knives”. There could be people who just use the fork and knives this way can be clubbed together, [and] the others who use this way can be another way. See, it goes on like that, all kinds of stupidity that human beings have to club together. All right, use the way you like, [it] makes no difference. You eat the same food, it digests the same way, [and] it works the same. But as far as the outside is concerned, when it comes to human activity, they will use the fork and spoon in a different way, somebody will use their hands’ fingers, and somebody will, I don’t know, may use daggers. I don’t know how they can manage to go to what limit. So, this is what it is. In doing something, in doing any activity, then only human beings make it a closed circuit, that “This is how we do it. This is how they do it,” how it is – the method of another party or people.
 
-Μπορείς; Γκρεγκουάρ: Ναι, μπορώ. Εντάξει. Πολλοί με έχουν ρωτήσει και στο παρελθόν: «Μητέρα, γιατί γίναμε έτσι; Γιατί ο Θεός δεν μας έδωσε αυτοεπίγνωση, χωρίς να χρειάζεται να διαπράξουμε όλα αυτά τα λάθη; Γιατί έπρεπε να περάσουμε από αυτόν το μάταιο κύκλο;» Εκείνη την εποχή, δεν ήθελα να πω ότι έχετε διαπράξει το προπατορικό αμάρτημα, ότι έχετε παρακούσει το Θεό. Αλλιώς τα πράγματα θα είχαν πάρει άλλο δρόμο, δεν θα είχαν πάρει τόσο πολύ χρόνο. Γιατί αν τους το πεις, τότε τους συμβαίνει ένα άλλο πράγμα ότι πέφτουν στην αριστερή πλευρά και αρχίζουν να αισθάνονται ένοχοι για το προπατορικό αμάρτημα, βλέπετε. Πρέπει λοιπόν να πάμε από το Εγώ, στο κομμάτι του προπατορικού αμαρτήματος. Πέρα όμως από αυτό το κομμάτι, το μόνο που μπορείς να πεις είναι ότι στην αρχή δεν μπορούσε να συνεχιστεί η εξέλιξη χωρίς να σας δοθεί αυτή η ελευθερία, γιατί η ελευθερία δοκιμαζόταν για να σας δοθεί. Είχατε ένα ωραίο μέρος για να ζήσετε. Ζούσατε κάτω από την απόλυτη προστασία του Θεού, στον κήπο της Εδέμ, όπου όλα ήταν τόσο όμορφα, όλα ήταν υπέροχα. Τίποτα δεν έλειπε από εκεί.
+This groupism is the worst of all and is against the laws of nature. You can be an individual, as far as your appearance is concerned, as far as your hair colour is concerned, or your eye colour is concerned; that’s what God has created you that way. But all other things that you have created are dead. All other clubbing methods you have created are absolute of no value. They are just mythical. There’s nothing truth in it, nothing that should be worth [of] considering. It is just a myth!
 
-Παρόλα αυτά οι άνθρωποι, όταν έχουν ελευθερία και η ελευθερία αυτή έπρεπε να δοκιμαστεί, αμέσως έπεσαν στα χαμηλά πράγματα. Γι' αυτό και ο Θεός έπρεπε να αλλάξει όλα του τα σχέδια, επειδή όλα αυτά τα χαμηλά πράγματα προσέλκυαν τους ανθρώπους παρόλες τις ευλογίες που είχαν. Όλα τα ζωώδη και τεχνητά συναισθήματα προσελκύουν τους ανθρώπους και αυτό προκαλούσε έκπληξη. Όταν έγιναν όλα αυτά τα πράγματα, επόμενο ήταν η ελευθερία να περάσει από τη δοκιμασία της καλυτέρευσης. Ήταν αυτή η δοκιμασία που έκανε την ανθρώπινη δημιουργία να λάβει χώρα. Αλλά αν τους πεις ότι το προπατορικό αμάρτημα δημιούργησε το πρόβλημα, ύστερα λένε: «Γιατί Θεέ μου, έκανες το προπατορικό αμάρτημα;» Έτσι καλύτερα να τους λέμε ότι είναι αναπόφευκτο για την εξελικτική τους πορεία, να δοκιμαστεί η ελευθερία τους, επειδή αν είναι να μπουν στην υπέρτατη ελευθερία, πρέπει πρώτα να γνωρίζουν αν μπορούν να την αντέξουν ή όχι. Και βλέποντας ότι... Πήρε τόσα πολλά χρόνια στους ανθρώπους να ωριμάσουν μέσα από αυτή και να φανεί ότι δεν μπορούν να αντέξουν τίποτα. Ο άνθρωπος δεν μπορεί να αντέξει την ελευθερία, δεν μπορεί να αντέξει να έχει κάποια θέση, δεν μπορεί να αντέξει την άνεση, δεν μπορεί να αντέξει τίποτα. Αυτό έχουμε δει και στη Σαχάτζα Γιόγκα, ότι όταν βολεύονται, στρογγυλοκάθονται. Όταν δέχονται κάποιες ευλογίες υλικού πλούτου, ξαναγυρίζουν πίσω σε ότι είχε συμβεί στον κήπο της Εδέμ, αρχίζει να ξαναέρχεται σε αυτούς και γυρίζουν πάλι σε εκείνο το επίπεδο.
+So one has to understand that there is nothing like a Sahaja Yoga which is a Christian Sahaja Yoga, Sahaja Yoga which is a Protestant Sahaja Yoga or a Catholic Sahaja Yoga. I find this at a very subtle point, where people talk of collectivity, that they don’t understand that we are not collective because we have so many tags, you see, attached to us, like the conditionings of our own doings. It could be in Switzerland, it could be in Austria, it could be in Rome, or it could be in India, anywhere. These conditionings, we have to get rid of [these]. We should know we are human beings, created by God, and whatever is within us that is real, created by Him, is the only thing that we have to be; and all the rest of [the] conditionings we should try to give up.
 
-Αυτό δεν είναι καλό. Πρέπει πλέον να καταλάβετε ότι πρέπει να γίνετε υπέρτατοι, έτσι ώστε να κυριαρχήσετε πάνω σε όλο αυτό. Τίποτα δεν είναι σημαντικό, τίποτε, μόνο το Πνεύμα είναι σημαντικό. Μόνο έτσι μπορεί κάποιος να ξεφύγει. Ακόμα και αυτό μπορεί να λειτουργήσει σαν πειρασμός σε εσάς. Όλες οι ευλογίες που δέχεστε, για σας είναι πειρασμοί. Γι' αυτό πρέπει να είστε έτοιμοι. Τίποτε δεν είναι πιο σημαντικό από το Πνεύμα σας. Πρέπει να είμαστε έτοιμοι να κάνουμε το κάθε τι για να φτάσουμε στο Πνεύμα, να μην μας νοιάζει ποιες ευλογίες θα δεχτούμε ή οτιδήποτε άλλο. Αυτό που θέλουμε είναι η ελευθερία του Πνεύματος που δεν τρέχει πίσω από τίποτε, πίσω από υλικά πράγματα.
+Everything is complementary. From this place you have to learn something, from that place you have to learn something. Every place has something to learn and to understand. And there is nothing that can be retained by some people as something higher or lower. But of course, where this ego has developed more, this original sin has developed more, there is a possibility that such human beings must have created more conditioning. Naturally, the conditioning is much more. Or where they have been not at all moving about religion, about God, and have been sticking on – like, you can say, in Africa and all these places – could be that the conditioning could have been by the other forces, called as Adhibhautik, means the ones which are created out of what God has created. Like, if they see the moon, they are afraid of the moon, if they see the trees, they are afraid of the trees. Sort of a mythical ideas about the nature itself. See, so there are two styles, as you always know. One is where they create mythical ideas about the nature, the mythical side of nature, that is Adhibhautik and Adhidaivik are the mythical ideas about what you can produce, you are God, you are the devas, and you want to create this. “I’m this, I’m that.”
 
-Κατά αυτόν τον τρόπο, θα είστε σαν μια λάμπα, η οποία δίνει φως χωρίς να ενδιαφέρεται καθόλου για την ίδια τη λάμπα, είτε είναι χρυσή, ασημένια, ή από οποιοδήποτε υλικό. Μπορεί να μεταδώσει το φως, ακόμα και αν είναι φτιαγμένη από λάσπη. Αυτό πρέπει να κατακτηθεί από τους Σαχάτζα Γιόγκις και να κατανοηθεί, γιατί αυτό είναι ένα πολύ επισφαλές στάδιο και διαπιστώνω ότι οι άνθρωποι χάνονται. Πρέπει να γίνουμε ταπεινοί Να πούμε: «Δεν έχω τίποτα μέχρι τώρα στη ζωή μου. Πρέπει να μάθω». Επειδή αυτή είναι η γνώση της ρίζας την οποία δεν γνωρίζετε. Είναι μια καινούργια γνώση για σας. Για ποιο πράμα μπορείτε να ανρωτηθείτε, αφού δεν ξέρετε τίποτα; Πρέπει να γνωρίζετε τη γνώση της ρίζας, γι' αυτό γίνετε ταπεινοί και μόνο τότε θα δεχτείτε τις ευλογίες αυτής της καινούργιας ανάπτυξης. Αυτή είναι μια εσωτερική ανάπτυξη, η Άνταρ Γιόγκα. Μέχρι να γίνετε ταπεινοί, δεν πρόκειται να λειτουργήσει.
+So there are two types of conditionings which work out, and in modern times it is such a confused thing that both these sides – I don’t know where they act. For example, the other day I was coming near the cemetery in Vienna, and I was amazed that it was a cemetery but it was catching on right Swadishthana.
 
-Πρέπει να γίνετε ταπεινοί, γιατί όταν αρχίζετε να κάνετε ερωτήσεις, αυτό το κάνει το Εγώ σας. Γι' αυτό γίνετε ταπεινοί για να αναπτυχθείτε σε αυτό και να πάτε βαθύτερα στη γνώση των ριζών. Εκπλήσσει ότι αυτή η γνώση μόνο στην Ινδία έχει πραγματικά φροντιστεί και οι άνθρωποι έχουν εντρυφήσει τόσο πολύ. Γι’ αυτό όλοι έπρεπε να έρθουν στην Ινδία. Ακόμα και ο Χριστός ήρθε στην Ινδία για να γνωρίσει τον τρόπο που έψαχναν οι άνθρωποι, να τους υποστηρίξει, να τους βοηθήσει. Είναι λοιπόν, σημαντικό οι γνώσεις της ρίζας να αποκτηθούν στην περιοχή που αυτό είναι πιο πιθανό. Είναι ευκολότερο εκεί όπου οι ρίζες είναι λιγότερο διαταραγμένες και αυτή ήταν η γη της Ινδίας αι εκεί οι άνθρωποι τις αναζήτησαν. Αλλά όταν άρχισαν να στρέφονται προς το εξωτερικό ξανά, έγιναν χαζοί και ανόητοι και όταν τους βλέπουμε, καταλαβαίνουμε ότι είναι επιφανειακοί. Αλλά δεν βλέπουμε την απίστευτη δουλειά που έχουν κάνει οι Άγιοι στην Ινδία, απίστευτη! Θέλω να πω, πάρτε έναν από αυτούς και αρκεί για να σας δώσει την πλήρη εικόνα της Σαχάτζα Γιόγκα.
+So I said, “All the bhoots must be acting now because I can’t understand how can a cemetery have a right Swadishthana?” This is how it can be explained, that all the bhoots are now active; or maybe they are again born, you see. They must have been dead hundreds of times, they must have created graves after graves and only there are empty graves, and they are active now. Or maybe that the  bhoots themselves are active, they are no more there, they have all disappeared from there. It could be that.
 
-Βλέπεις έναν απλό άνθρωπο, έναν πολύ απλό άνθρωπο όπως ο Σρι Σάι Νατ, που είχε ένα πολύ απλό παρουσιαστικό, αλλά κατείχε έναν απίστευτο ωκεανό γνώσης. Δεν ήταν μορφωμένος. Κανείς δεν ξέρει που γεννήθηκε, τι συνέβη, από που ήρθε και που ζούσε και πως έφτασε σε αυτή την ηλικία. Κανείς δεν ξέρει την καταγωγή του. Ή πάρτε τον Άντι Σανκαρατσάρια ή τον Καμπίρ, οποιονδήποτε. Για παράδειγμα, πάρτε τον Ματσίντρανατ. Αν διαβάσετε τον Ματσίντρανατ, δεν θα ξέρετε, θα νομίζετε ότι δίνει κάποια είδος μυστηριώδους γνώσης. Έκαναν μια καταπληκτική δουλειά! Πήγαν μέσα στη δεξιά και την αριστερή πλευρά και έκαναν τα πάντα, κάθε είδος πειραματισμού. Δείτε τα βιβλία που έγραψαν για τους Ναβ Νατς, για τους Εννέα Νάτας και για τον Ματσίντρα.
+So we have to judge now on vibrations and not on our understanding or what we think or what we understand through this brain. By asking questions and by talking too much about it, you cannot understand Sahaja Yoga. For Sahaja Yoga, you have to have that super state of mind, where you can receive vibrations, can feel vibrations and have to be absolutely [un]compromised on that part. If there is still the tag of that ego so much that you still question Sahaja Yoga and think no end of yourself, it is better that such a person should not attend the pujas, not attend the pujas. It is kind to himself. It is being nice to himself that such a person who has doubts should not attend a puja, because puja is only meant for people who have achieved, [and] received that state of mind which is called as Nirvikalpa, where there is no vikalpa, where there is no doubt in your mind. If there are still doubts in your mind, your mind is still very powerful, and it is going to put you down.
 
-Ο Ματσίντρανατ έφτασε σε τέτοια βάθη και ανακάλυψε τόσα πολλά για το μέρος όπου κυβερνούσαν οι γυναίκες. Νομίζω ότι πρέπει να είχε βρεθεί στο Βέλγιο, όπου οι γυναίκες ήταν οι κυβερνήτες και οι άντρες ήταν σαν λάχανα. Ανακάλυψε τόσα πολλά πράγματα και τι συνέβη αργότερα και πως προσπάθησε να το γιατρέψει. Είναι η κίνηση προς μια άλλη κατεύθυνση, όπως βλέπετε, προς την κατεύθυνση της ρίζας, αλλά το πως οι ρίζες έφτασαν να δώσουν τόσο απαίσια δέντρα εδώ και εκεί και έτσι το δούλεψε. Είναι πολύ συμβολικό και για να καταλάβει κανείς τη δουλειά τους, πρέπει να είναι πολύ βαθύς και διεισδυτικός, γι ́αυτό το ανθρώπινο μυαλό, μέχρι σήμερα, δεν είναι ικανό να δει το μέγεθος της δουλειάς που έχουν κάνει. Δεν είναι δυνατόν κανείς να το δει. Όπως αν δείτε τις περιγραφές του Άντι Σανκαρατσάρια ή ακόμα και του Μαρκαντέυα για τη Μητέρα σας, είναι πράγματι αξιοθαύμαστο πως μπορούσε να δει λεπτομέρειες, από που, από ποια γωνία. Κάθε λεπτομέρεια της Μητέρας μπορούσε να δει, όπως θα το έβλεπε ένα παιδί, όταν είναι απόλυτα κοντά στη Μητέρα. Αυτό σημαίνει ότι η αθωότητά, ήταν ολοκληρωμένη και τελειοποιημένη. Αλλιώς δεν μπορεί κανείς να διακρίνει τα πράγματα που εκείνοι έβλεπαν, όλα τα μικρά πράγματα, όπως τις τρεις πτυχές της Μητέρας.
+So either before [the] puja you tell your mind to keep quiet. Tell him not to talk now, “Better keep quiet, now I have to ascend and I have to receive the blessings of the Divine. So just keep quiet, and if you cannot keep quiet then I cannot ascend.” I have told you many a times it is like a donkey, [the] mind is just like a donkey. If you go behind the donkey, it kicks you, it will tell you, that you are the bad man, you are the worst man; all the self-pity will come into you. If you go ahead with the donkey, then he’ll put his ears to you, you can hold him like an ego, you see. You can go wherever you want, [and] do what you like, “What’s wrong?” It will not control you. If you sit on top of the donkey it will still play about with you, to see how you work out. So, if you allow the mind to go here and there, through your eyes or through your attention, or anywhere, or through your tongue or your senses, it will say, “All right.” It will eat the grass on the sides, it won’t move. It will move [to] this side, eat some grass, that side.
 
-Πώς μπορεί κανείς να δει, εκτός αν είναι παιδί, ότι έχει τρεις πτυχές στο σώμα Της; Μόνο ένα παιδί μπορεί να το δει. Είναι φοβερό. Σας λέω ότι είναι φοβερή αυτή η αθωότητα, η διεισδυτικότητα και το θάρρος. Χρειάζεται πραγματικό θάρρος για να φτάσει κανείς σε τέτοια διείσδυση. Η αθωότητα είναι αυτό που πρέπει να κατακτήσει κανείς πρώτα από όλα, αλλά δεν πρέπει να είναι μέσα από το Χριστό ή τον Γκανέσα, πρέπει να το έχετε εσείς οι ίδιοι. Αυτό σημαίνει, ότι εσείς, εσείς είστε η αθωότητα. Δεν χρειάζεται να το πείτε, ούτε να έρθει μέσω κάποιου. Είστε αυτό, μπορείτε να το έχετε άμεσα. Αυτή η δουλειά είναι για ανθρώπους που δεν είναι αφυπνισμένοι, για ανθρώπους ανόητους, για τους ανθρώπους που δεν μπορούν να το αποκτήσουν άμεσα. Όλοι εσείς μπορείτε να το αποκτήσετε άμεσα.
+Gregoire: At this stage, as You speak about it, should I quickly translate for the French who don’t understand English?
 
-Αυτή είναι η ευλογία σας, αυτό είναι το σπουδαιότερο πράγμα ότι μπορείτε άμεσα να τα κατορθώσετε όλα αυτά. Αλλά πρέπει να φτάσετε σε αυτή τη θέση της αθωότητας, μέσω της οποίας γίνεστε τόσο ευαίσθητοι, τόσο Σούκσμα, γιατί η αθωότητα είναι ότι πιο λεπτό και μπαίνετε μέσα σε όλες τις περιοχές για να γνωρίσετε τη γνώση των ριζών, τη γνώση του Δέντρου της Ζωής. Δεν προορίζεται για τους ανόητους, εγωιστές, παράλογους ανθρώπους. Γίνονται ράκσασας, σας λέω, είναι δαίμονες. Γι’αυτό δεν πρόκειται να ακολουθήσουμε το δρόμο τους, πρέπει να πάμε προς την αντίθετη κατεύθυνση. Πρέπει λοιπόν να ταπεινώσουμε μέσα μας και να προσπαθήσετε να αφυπνίσετε την αθωότητά σας, αυτή που είναι η ιερή αθωότητα η Παβίτρα αθωότητα μέσα σας. Στη σανσκριτική γλώσσα, δεν υπάρχει λέξη για την αθωότητα, θα εκπλαγείτε. Επειδή γι’αυτούς ότι είναι ιερό, ευοίωνο, όλα είναι μέσα σε αυτήν Δεν υπάρχει ξεχωριστή λέξη για την αθωότητα, γιατί δεν μπορούν να σκεφτούν ότι μπορεί η αθωότητα να κρέμεται έτσι στον αέρα. Πρέπει να εμπεριέχεται σε κάτι βλέπετε, όπως κάποιο είδος δοχείου μπορεί να περιέχει το νερό. Δεν μπορούν να σκεφτούν, δεν μπορούμε να σκεφτούμε το νερό να κρέμεται στον αέρα.
+Shri Mataji: Oh, you want to translate the whole thing?
 
-Πρέπει να είναι σε ένα δοχείο. Γι’αυτό θα πουν ευοίωνη ώρα, ευοίωνο άτομο ή ευοίωνο πράγμα, ευοίωνη νύχτα, ευοίωνη μέρα. Όλα εμπεριέχονται, σε ένα δοχείο, σαν σ’ ένα δοχείο. Το δοχείο που μπορεί να έχει αθωότητα, βλέπετε. Έτσι η ευοιωνότητα, ξανά ευοίωνο, είναι ένα επίθετο. Δεν υπάρχει κάτι που να μπορούμε να αποκαλέσουμε ακέραιη αθωότητα, Σούμπα. Ακόμα και η λέξη Σούμπα είναι ένα επίθετο, δεν υπάρχει ουσιαστικό για την αθωότητα. Μπορεί κάτι να είναι αθώο, αλλά η αθωότητα από μόνη της δεν υπάρχει για αυτούς, Επειδή υπάρχει σε ό,τι είναι αθώο. Είναι μια τόσο πλατιά ιδέα. Είναι μια πιο ευρεία ιδέα από τον Βιράτα Γκανέσα, όταν Αυτός είναι στο Βιράτα ολοκληρωτικά πώς μπορείτε να τον υποβαθμίσετε μόνο ως αθωότητα; Είναι τόσο λεπτό, πολύ λεπτό για να γίνει, να χωρέσει, σε ένα ουσιαστικό, πολύ λεπτό πράγμα, και πρέπει να γίνουμε τόσο λεπτοί.
+Gregoire: I can in two minutes.
 
-Είθε ο Θεός να σας ευλογεί όλους. Μπορείτε να αρχίσετε να πλένετε τα πόδια Μου. Αυτό που μπορούμε να κάνουμε αρχικά, είναι να σηκώσετε το χέρι σας όσοι δεν έχετε πλύνει τα πόδια Μου μέχρι τώρα. Αυτός δεν τα έχει πλύνει; Εντάξει, έλα. Αυτά είναι τα εικοσιένα ονόματα, αυτά είναι τα εικοσιένα ονόματα του Σρι Βίσνου, ο οποίος είναι η πλευρά της εξέλιξής σας, του Ντάρμα σας. Πρώτα η ουσία και μετά η εξέλιξη. Αυτός είναι ο Πατέρας μέσα σας. Γι’αυτό αρχικά, επειδή όλοι αναζητάτε την εξέλιξή σας, θα επικαλεστούμε τις εικοσιμία δυνάμεις, τις εικοσιμία δυνάμεις αυτής της πλευράς του Θεού ως Πατέρας. Εικοσιμία δυνάμεις. Αυτά είναι τα εικοσιένα ονόματα που συμβολίζουν τις εικοσιμία δυναμεις της εξέλιξης μέσα μας.
+Shri Mataji: I think later on, Gregoire, would be better, if you could translate, because the flow is better now, all right?
 
-Το κανάλι Σουσούμνα περιέχει εικοσιμία δυνάμεις. Μπορείτε να μεταφράσετε στα Γαλλικά, είναι καλύτερα Βίσνου, ο Βίσνου, είναι η δύναμη του Βίσνου ή θα μπορούσαμε να πούμε ο Ναραγιάνα. Ο Βίσνου είναι ο Πατέρας. Κρίτα Γιούγκα. Αυτή είναι η Κρίτα Γιούγκα. Κρίτα σημαίνει όταν θα είναι αποτελεσματική, πότε και που πρόκειται να είναι αποτελεσματική. Η δουλειά θα γίνει. Αυτή είναι η Γιούγκα, οι καιροί που πρόκειται να γίνει: η Κρίτα Γιούγκα. Αυτή είναι μια ιδιαίτερη εποχή που βρίσκεται ανάμεσα στην Κάλι Γιούγκα και τη Σάτυα Γιούγκα. Είναι η Κρίτα Γιούγκα όπου τα πράγματα θα γίνουν, η δουλειά θα γίνει.
+So this donkey, the donkey wants to eat the grass. He knows that you don’t mind him eating the grass. All right, it goes round, eats grass, all sorts of dirt, filth, whatever it is. Whatever you allow he eats, goes on eating, all filthy things, all filthy thoughts, all dirty thoughts and every sort of thing, without questioning, you see? Only in Sahaja Yoga they come here and question, but not when they have to eat filth and dirt and all kinds of unholy things and sinful things, they never question. Then they’ll say, “What’s wrong?” But when it comes to Sahaja Yoga, they will question [it]. Which is the holiest of holy, which is the greatest of greatest. Only these gates are open to you. That’s how you get it; otherwise it is not, it’s prohibited to all the people to achieve this.
 
-Η ώρα της Ανάστασης, όπου τα χέρια σας θα μιλήσουν. Αυτό είναι το θέμα, βλέπετε. Μεταφράστε το, η Κρίτα Γιούγκα. Κρι σημαίνει το να κάνεις. Βλέπετε, Σβατο Τζαγιάτε, σημαίνει η Αρχή, Εσύ ξυπνάς την Αρχή όλου του σύμπαντος, την αρχή του σύμπαντος και Πράτυε σημαίνει ότι Εσύ επίσης δίνεις την εμπειρία όλου αυτού. Αυτός είναι λοιπόν που τροφοδοτεί την Αρχή και επίσης Εκείνος σας δίνει την εμπειρία. Πράτυε σημαίνει η εμπειρία που αποδεικνύει, που αποδεικνύει την υπαρξή Του. Εσύ δίνεις τη δική σου Πράτυε, σημαίνει ότι προσφέρεις την εμπειρία σου, μέσα από την οποία αποδεικνύεται ότι υπάρχεις. Πρέπει να είναι: «Εσύ είσαι ο Θεός μέσα στον άνθρωπο» θα είναι καλύτερα. Ο Θεός μέσα στον άνθρωπο.
+The water that washes My feet is the ambrosia, is the tirtha, which was even prohibited to doctors in [the] olden days. Vaidyas were not allowed, and they had to fight for it. Only the Gods were allowed to drink it. Only the Gods were allowed to drink it.
 
-Δεν είναι άνθρωπος σε καμία περίπτωση, οπότε πώς να Τον αποκαλέσεις
+Today you are placed at the position of Gods. But are you capable of that? Are you deserving that? Or you are still questioning, you have still problems? Then it is better you are prohibited. It’s a rare thing that you should take that ambrosia. It’s in the Devi Purana Bhagavatam, if you read, that they were prohibited to take it. So this is what it is, that the mind goes like a donkey. But if the donkey knows the one who is the rider, knows his ways, and he knows how to control the mind and he knows where it has to work, the same donkey, the same instruments, the same institutions, the same things you have got around you, will take you there with a faster speed, with a very comfortable thing. So tell your mind today, that we have had enough of it, playing with the mind. Now we want to be there in the realm of God. Tell your mind, fully, tell your mind. It is important. This is the mind which has taken you to all kinds of things; it has given you all the filth and dirt and all that. So just tell your mind.
+
+May God bless you!
+
+So for today’s theme, we should say that we have to achieve our innocence within ourselves, and feel the innocence of the Virata. The question of Ganesha Virata, we can say, or Virata Ganesha, where, in the Virata, the innocence we have to feel so that we become innocent, our sins are washed out, that we are cleansed by that innocence so that this “I-ness” is lost from you, this original sin is washed away from us, and we become that beautiful being who is the proud child of God, and who is the prize of this creation.
+
+May God bless you!
+
+Now you can translate, Gregoire. It’s all right. You can translate. I know it is long, but sometimes I find that if the flow is not kept...
+
+Gregoire: I’m sorry, Mother, I should not have interrupted.
+
+Shri Mataji: No, it’s all right, it’s all right.
+
+Gregoire translates into French....
+
+Shri Mataji: You can replay, and in that background, you will be able to – keep it low – so that you can spontaneously go on saying something. Will it be all right? To replay? That will give you a proper...
+
+Gregoire: I was just thinking three minutes for the French, and three minutes for the Italian, in a very condensed manner.
+
+Shri Mataji: You can?
+
+Gregoire: I can, yes.
+
+Shri Mataji: All right. [Gregoire continues to translate]
+
+(s.y. lady translates into Italian)
+
+Shri Mataji: Many people ask Me, before also, that, “Mother, why we became like this? Why didn’t God just made us aware of ourselves, without committing all these mistakes? And why we had to go through this all vicious circle?”
+
+At that time, I didn’t want to say that you have committed the original sin, that you have disobeyed God. Otherwise, things would have worked out in a different way, [and] not have been so lengthy.
+
+Because if you tell them that, then there is another thing that happens to them is that they become left-sided, and they start feeling guilty about the original sin, you see. So we have to jump from ego to [the] original sin part of it. But that part if you avoid [it], only one can say, in the beginning, that evolution could not take place without this freedom being given to you, you see, because freedom was first tested. That you were given a freedom, you had a nice place to live in, you lived in the complete protection of God, in the garden of Eden, you can say, in the beautiful... everything was wonderful. Nothing was missing there. But, despite that, human beings, you see, when they had the freedom, just the freedom was going to be tested, immediately they took to these baser things, you see.
+
+And that is the way God had to then change the whole plans, because the baser things of life were attractive, even with all the blessings that they had. All the animosity and the, we can say, all the animal feelings, we can say, were still attractive to human beings, and that’s what was most surprising. And when these things happened, naturally the freedom itself had to go through the test of improvement. And that test was all this whole creation of human beings that took place. But to tell them all that it is only the original sin which has created a problem.” Then they feel then: “Oh, God, why did You create the original sin?” So it is better to tell them that it is inevitable, for your evolutionary process, that your freedom must be tested because if you have to enter into the supreme freedom, you must first know whether you can bear it or not. And in seeing that ... So, it took so many years for human beings to grow into it, to understand that the man cannot bear anything. He cannot bear freedom, he cannot bear money, he cannot bear position, he cannot bear comfort, he cannot bear anything.
+
+And that’s what now we are seeing in Sahaja Yoga also: when they get comfort, they are just sitting down again. When they get any blessings of material wealth, it will happen which it was – again the same – that Garden of Eden is coming back to you, and when it starts coming back to you, again you go back to the same stage. It’s not good. Now you must understand that you have to be supreme, so you must master all this. Nothing is important, nothing is important, only the Spirit is important. Then only you can get out of ... This is also can act as a temptation for you, you see.
+
+All the blessings that are coming to you are temptations. So you should be prepared. Nothing is more important than the Spirit, you see. We are prepared for any kind of thing to achieve the Spirit. We are not bothered as to what blessings we get or anything but what we want is the freedom of Spirit which is not hankering after anything, hankering after material things, so that you will be like a lamp which is giving light, without getting involved into the lamp itself. Whether it is of gold or silver or anything, it can burn, the light, even if it is made of mud. That’s what is to be achieved by Sahaja Yogis, to be understood because this is a very precarious stage where I find, people are again drifting down.
+
+(Gregoire and the lady translate ...)
+
+So now we have to humble down ourselves, to say, “I have not known anything, Mother, so far, I have to know.” Because, this is the knowledge of the root, which you do not know. This is a new knowledge for you. What can you question about [it]? You don’t know anything. You have to know about the knowledge of the root. So humble down yourself, and then only, you will receive the blessings of this new growth. That is the growth that is inward, inside, the Antar Yoga. Unless and until you humble down, it won’t work out. You have to humble down because as soon as you start asking questions, it’s your ego that is asking questions. So humble down to grow into it, and to go further with the knowledge of the roots.
+
+It is surprising that in India only this knowledge has been really sought after, and people have gone very deep down. That’s why every one of them had to come to India. Even Christ came to India to know about how people are searching it out, to support them, to help them. So it is important that the knowledge of the root has to be done in the area where it is more possible. It is easier to do where the roots are not disturbed; and that’s what was the country, India, where people searched it out.
+
+But when they started growing out again, they became stupid and foolish; and when we see them, we see them, they’re outside. But we don’t see what tremendous work the seers have put in India, tremendous. I mean, you take one of them and it is sufficient to give you a full idea of Sahaja Yoga.
+
+You take a simple person, a very simple person like, say, Sai Nath, who was, to look at, very simple, but what [a] tremendous ocean of knowledge he had.
+
+Who was not educated or anything. Nobody knows where He was born, what happened, from where He came and where He lived, and how He came up to that age. No one knows about His background. Or you take Adi Sankaracharya, or you can take Kabira, or anyone. For example, you take Machindranath.  If you read about Machindranath, you won’t know, you’ll think it’s some sort of a mysterious knowledge he’s giving. It’s a tremendous work they did! They went into all the left and the right, and everything they did, all kinds of experimentations. If you see the books they have written about the NavNaths, the Nine Nathas, and about Machindra’s life. Machindranath went into such depth, and he found out so much about the places where women were rulers. I think it must be the Belgian place he must have been, where women were the rulers and husbands were just like cabbages; and this and that and all kinds of things He discovered and then what happened and how he tried to cure that.
+
+It’s the movement in another direction, you see, in the root direction, that how these roots have gone and given rise to such horrible trees here and there and that’s how he worked out. And it’s such a symbolic thing that to understand their work, you have to be really very deep and very penetrating for which the human mind so far is not able to see the amount of work they have done. It’s not possible to see. Like, if you see Adi Shankaracharya’s descriptions or that even Markandeya’s descriptions about your Mother, it’s remarkable how little-little things He could see. From where, from what angles? And every little bit of Mother he could see, as a child would see, you see, absolutely close to the Mother.
+
+That means the innocence was complete and perfected. Otherwise, you can’t see these points that they have seen, all the little things like the three folds of the Mother. How can anyone see, but [a] child can see that three folds of the mothers are there, that she has three folds in her body. Only a child can see. It’s tremendous, I tell you it’s tremendous, that innocence, their penetration and their courage. Need real courage to grow into that penetration.
+
+So innocence is the thing which one has to achieve first of all, but it should not be like this through Christ or through Ganesha, it should be you who should have it. Means you are, you are the innocence. You don’t have to say that, you don’t have to come through someone. You are that you just directly can have. That business is meant for people who are not realized, meant for people who are stupid, meant for people who can not directly attain. You all can directly attain it. That is your blessing, that’s the greatest thing that you can directly achieve all that. But you have to get to that position of innocence by which you become so subtle, so sukshma, because innocence is the subtlest thing that you enter into all the areas to know the knowledge of the roots, knowledge of the Tree of Life. And it’s not meant for the stupid egoistical nonsensical people. They become rakshasas I tell you, they are rakshasas.
+
+So we are not going to go their way, we have to go the other way round. So we have to humble down within ourselves and try to awaken your innocence, once that is the holy innocence, that pavitra – innocence within you. In Sanskrit language there’s no word for innocence, you’ll be surprised.
+
+Because for them whatever is holy, auspicious, everything is in it. There’s no word separate for innocence, because they can’t think that there can be innocence existing in the air like that. It has to be inside something, you see, it is always sort of a cup [that] can only contain the water like that.
+
+So they cannot think, we cannot think of water hanging in the air like that, you see. It has to have some cup. So they will say “auspicious time,” “auspicious person” or “auspicious thing,” “auspicious night,” “auspicious day.” Everything is contained, container, like a container. The container that can have innocence, you see.
+
+So the auspiciousness. Again, auspicious. It’s an adjective. There is nothing like saying that this is a solid innocence, the shubha. Shubha itself is an adjective, there’s no noun for innocence. Innocent it can be, but innocence itself doesn’t exist for them because it exists everywhere that is innocent. It’s such a wider idea, it’s a wider idea of the Virat Ganesha. When He is in the whole of Virata, how can you put Him down as ‘innocence’? Is so much subtler, too subtle to be made into a noun. Is too subtle a thing, and we have to become that subtle.
+
+May God bless you! May God bless you all!
+
+(Now, the Puja protocol begins. Below are a few of Shri Mataji’s comments made during the Puja protocol.)
+
+You can start washing My Feet. First, what we can do, [is] that those who have not washed My Feet please raise your hands – so far. ...He has washed? (s.y.: “Everybody has.”) Everybody has. He has not washed? All right, come.
+
+A lady translates into Italian what Shri Mataji said.
+
+First like that. When they start puja then you can remove it (the weapons). Now, today I think, first of all, those who want to do My puja  and decided,  should  wash My feet first of all. And then you can wash My feet.
+
+Who are the people who want to do the puja? You. And who? Your wife. Let’s first get Machindranath for the puja of Ganesha. Who else? She has done puja, this lady? She has done. So we can get one from, she’s from Switzerland, another from Rome, two persons. That’s to help you out here. All right. Let her come, from Switzerland. And we can have Guido from...Guido, can you sit on the ground? Will you be able to sit on the ground? You’ll be able to sit? All right. So we’ll have two persons. Alright? Now you should help here. Is to get all these things out, now (...)
+
+Yes, come along. First what you do is to wash (your?) feet.  Let him wash My feet and go away, and you can all  one by one. All right?
+
+You better take out your watch...What’s your name? (s.y.: Giovanni). Very good. May God bless you. Now see your vibrations. With your hands see. All right, good. May God bless you.
+
+Shri Mataji: Give her some water from there....
+
+... bring it, you can throw it in the garden....That water could be in there, for washing. (...) It could go in that one. Or [do]you have something else, a jug or something? Or could we take it out as it is.
+
+If you can (...). So you can take this out and throw it in there, you see. Ask  someone, to throw it in the garden.  And anyone can go and throw it in the garden, and wash it and bring it.  This one also wash it and bring it.
+
+s.y. ...something to take because is too much water.
+
+Shri Mataji: Machindranath, you come here. You come here. You have to  wait.  Just see, you can play in the water. Take his sleeves up because he makes them (...) Absolutely up there. Ya, he’s now, let him come and ...  It’s alright. Children nothing puts dirty. It’s alright. Now good. Now that’s it. He’s done his job. (...) As it is the water is sufficient. You just wash.
+
+s.y. I just wanted to take some water out.
+
+It’s alright. You just do it slowly. Ah, this... is going to do really. Now can you come and rub My feet? Come along, rub My feet. Ah good. Rub it here. This one. It’s alright. Now it’s over, it’s alright.. Take him away.  [Shri Mataji is laughing]. He is still playing. Is good, he is enjoying [it]. He is enjoying [it] now. Oh, yes where is the Kundalini now?All right, now let him go,  take him away.
+
+Now what you can do is to wash My feet  as it is the water, or you take out some more water, ...a little bit ... Machindranath has already spilt it. The best water (... think of it). You can put it on the Sahasrara of everyone. You put it on the Sahasrara of everyone. Let’s take it. Now you wash My feet.  Is to put it on the Sahasrara, take it. You rub your hands then Mine,... you rub it like that. Your hands must be rubbed. Rub your left because you are left-sided, rub your left more...Gregoire is doing it, that’s how you should do it. Yes. Hold it...
+
+[Recitation of mantras begins]
+
+Aum twameva sakshat Shri Ganesha sakshat,
+
+Shri Adi Shakti Bhagwati Mataji, Shri Nirmala Devi namo namah.
+
+Aum twameva sakshat,
+
+Shri Mahalakshmi Mahasaraswati Mahakali, Trigun’atmica Kundalini sakshat,
+
+Shri Adi Shakti sakshat, Shri Bhagwati sakshat, Shri Mataji Shri Nirmala Devi namo namah.
+
+Aum twameva sakshat, Shri Kalki sakshat, Shri Adi Shakti sakshat,
+
+Shri Bhagwati sakshat, Shri Mataji Shri Nirmala Devi namo namah.
+
+Aum twameva sakshat, Shri Kalki sakshat, Shri Sahasrara-swamini Moksha-pradayini Mataji, Shri Nirmala Devi namo namah.
+
+[Recitation of the 21 names of Shri Vishnu]
+
+Om, Shri Keshavaya Namaha,
+
+Om Shri Narayanaya Namaha,
+
+Om Shri Madhavaya Namaha,
+
+Om Shri Govindaya Namaha,
+
+Om Shri Vishnave Namaha,
+
+Om Shri Madhu-sudanaya Namaha,
+
+Om Shri Tri-vikramaya Namaha,
+
+Om Shri Vamanaya Namaha,
+
+Om Shri Shri-dharaya Namaha,
+
+Om Shri Hrishikeshaya Namaha,
+
+Om Shri Sankarshanaya Namaha,
+
+Om Shri Vasudevaya Namaha,
+
+Om Shri Pradyumnaya Namaha,
+
+Om Shri Aniruddhaya Namaha,
+
+Om Shri Purush’ottamaya Namaha,
+
+Om Shri Agho’kshajaya Namaha,
+
+Om Shri Narasimhaya Namaha,
+
+Om Shri Achyutaya Namaha,
+
+Om Shri Janardanaya Namaha,
+
+Om Shri Padma-nabha Namaha,
+
+Om Shri Damodaraya Namaha,
+
+Om Shri Upendraya Namaha,
+
+Om Shri Haraye Namaha,
+
+Om Shri Krishnaye Namaha.
+
+Sakshat Shri Adi Shakti Bhagavati Mataji Shri Nirmala Devi Namo Namaha
+
+Shri Mataji: These are the twenty-one names, these are the twenty-one names of Shri Vishnu which is the aspect of your evolution, of your dharma. First the sustenance and then evolution. That’s the Father within you. And so first, because you are all seeking your evolution, we invoke the twenty-one powers, twenty-one powers of this Father aspect of God. Twenty-one powers. These are the twenty-one names which represent the twenty-one powers of evolution within us. Sushumna Channel has got twenty-one powers.
+
+You can translate [it], in French, it’s better.
+
+Vishnu, Vishnu, it’s the Vishnu power or, we can say, the Narayana. Vishnu is the Father.
+
+(s.y. lady translates into Franch)
+
+(Gayatri mantra was read after)
+
+Gayatri Mantra
+
+Aum bhuh, Aum bhuvah, Aum swah, Aum mahah, Aum janah, Aum tapah, Aum satyam
+
+Aum tat-Savitur-varenyam, bhargo devasya dhi-mahi Dhiyo-yo’nah prachodayat,
+
+Aum apo jyotiras’omṛutam Brahma bhur-bhuvah swar’om.
+
+Shri Mataji: This is to raise your right side because it’s activity now going on.
+
+s.y. Now we will say the mantras which will ... all the deities that are here.
+
+Aum Shriman Maha Ganadipataye namaha, Ishta-devata’bio namaha, Kula-devata’bio namaha, Brahma-devata’bio namaha, Sthana-devata’bio nomo namah, Vastu-devata’bio namaha, Matapitru-bia namaha, Shri Lakshmi Narayana-bia namaha, Save’bio deve’bio namaha, Save’bio Brahmane’bio namaha.
+
+Now we’ll say a mantra which is for Lord Ganesha to remove all the obstacles.
+
+Sumukhash-ch’aika-dantash-cha, Kapilo Gaja-karnakah Lambodarash-cha Vikato, ighna-nāsho Gan’ādhipah Dhūmra-ketur-Gan’ādhyaksho, Bhāla-chandro-Gaj’ānanah.....
+
+Now we’ll say the mantra to Lord Vishnu. .... min 1:36:00
+
+[Recitation of mantras for the worship of Shri Durga from the “Devi Mahatmya”]  min: 1:37:10
+
+Shri Mataji: Krita Yuge. This is the Krita Yuga. Kruta means when where it will be effective,  where it is going to be effective. The work will be done. This is the Yuga, the times where it will be done. Krita Yuga. This is the special time which is in between Kali Yuga and Satya Yuga, [which] is the Krita Yuga where things will be done, work will be done. Resurrection time where your hands will speak. This is the thing. You see. Translate it. Krita Yuga. “Kri” means “to do.”
+
+(s.y. lady translates into French)
+
+(s.y. recites mantras in Sanskrit)
+
+Shri Mataji: (To Machindranath): Come here, you sit down. You have to do the puja. Come along, come here. Come this side. You have to do the puja. All right?
+
+Recitation of Sanskrit mantras...
+
+Mother, Shri Mataji puts [the] child down from Her’s lap: “All right. He gets excited with flowers, this  that.”
+
+(s.y. asks something ... sugar first?)
+
+Shri Mataji: ...  the milk now, but not very hot, just warm. It’s all right. Someone can ... (to a yogi) vibration are tremendous today, so much so that...
+
+(Recitation of Shri Ganesha Atharva Sheersha)
+
+...Twam  bhoomir-apo-’nalo’nilo nabhah........ Mother Shri Mataji stops the  recitation of Shri Ganesha Atharva Sheersha to explain.....
+
+See  now, ‘twatto jāyate’ -the principle, you awaken the principle of the whole universe, the principle of the universe and Pratye means you give also the experience of that so that He is the one who generates the principle and also He gives you the experience.
+
+(Translation into Italian)
+
+Shri Mataji: Pratye, pratye is the experience that proves, that proves your existence, you see. You give your own pratye, [wich] means you give your experience by [which]  you proves that you exist.
+
+(The recitation of Shri Ganesha Atharva Shirsha continues)
+
+Shri Mataji: Now,, the translation, somebody should read. Gregoire can read the  translation. So, when it starts, that the Brahma Twam, what is it?
+
+(sy: Twam Brahma, twam Vishnus, twam Rudras...)
+
+Shri Mataji: So He is called as Rudra, see? But not as Sadashiva, you see, because at Rudra state, because He’s the Tattwa the Tatwa , He’s the Tattwa, He’s the Principle. Rudra... (Shri Mataji indicates the location line of Ekadasha Rudras on Her forehead).
+
+(  Gregoire reads then the Divine Essence to the Prayer to Shri Ganesha)
+
+Shri Mataji: It should be ‘You are God in man, it would be better. God in man.... He is not man, by any chance, how can you call Him?
+
+(Recitation from the ‘Devi Mahatmyam’....)
+
+The second part of the puja.
+
+Shri Mataji: (What Shri Mataji sad it sound like this) - ‘Sab.ko dua denam’ is for Aarti. After they are (...) to say the mantras, mostly they (?) should give Me, I mean it’s all done, then you should do the 108 names of the Devi.
+
+Gregoire: Should we take it in your hand Mother?
+
+Shri Mataji: First let Me dress up and then I will take it in My hand. Alright? Where is My pearls?
+
+(s.y asks something...)
+
+Shri Mataji: yes, you get the water for the land?
+
+(inaudible)
+
+(Shri Mataji is putting on the bracelets and the pearl necklace and other necklaces, and then a Sahaja yogi recites the Sanskrit mantras). Shri Mataji to a Sahaja yoghini: you can tie,... but not the complete knot, the half one.
+
+(Shri Mataji asks for Mangala Sutra.)
+
+Shri Mataji to Machindranath: Let him put Mangala Sutra. He’s the one... Shri Ganesha has the power to give Mangala Sutra. Make Me wear this one. Come along. [Shri Mataji is laughing and kisses the baby]. Thanks. You have the greatest right (Shri Mataji shows the Mangala Sutra).  Because the other way round, which is used this way when there is the first year of the marriage – you see,  It’s put like this, that’s right, that’s how it is put.
+
+(s.y. recites the mantra)
+
+Shri Mataji: Just married women. Married women have to do this. (Shri Mataji spoke about something that was going to be offered to Her). All right? All the married women and then the kanya (unmarried women) has to do something else. All of you, let us have two of each otherwise it won’t be all right. (unfortunately, we can’t see what is offered to Her). You can mix them up, no harm. Wait for all the married women. You come along. ...So here we go. I didn’t bring all My ornaments...
+
+Shri Mataji: That’s good. May God bless you all. Akhanda Saubhagnya. This is the blessing given to all the married women that - let your Saubhagnya remain all your life without any obstacles. No obstacles in your married life should be all the time there till you live.
+
+May God bless you.
+
+Shri Mataji: ... Now for the kumkum. You people can come, unmarried girls can come.
+
+(Shri Mataji is rubbing something in Her hands though we cannot see what as the video only shows [the] upper, maybe is perfume then She says)
+
+Shri Mataji: Keep a little bit for everyone and take it round and they can put it on their hands. It’s good for them. Guido, you take it round. And give it in the hands of everyone, so that they rub little-little...
+
+(about the vibrated water) It’s still too much water in it.... Water is the only thing that can work it out.....  (Shri Mataji speaks to the unmarried girls who make the swastika on Her Feet). First of all, make lines...properly, be careful...
+
+(s.y. recites the mantra, the nine names of Shri Durga)
+
+Shri Mataji: Gregoire, you read your names that you have , where are your names?
+
+(Gregoire asks “For Shri Shiva or Shri Mahakali?”)
+
+Shri Mataji: Yes....Shri Shiva...All this is for His enjoyment only, isn’t it?
+
+(Gregoire asks something about the names.)
+
+Shri Mataji: ...that you are made, and translate them.
+
+Gragoire: Yes Mather.
+
+Aum twameva sakshat, Shri Shiva sakshat, Shri Adi Shakti Bhagawati Mataji, Shri Nirmala Devi Namo NamahY Gregoire: Om Twameva Sakshat Shri Nav Jerusalemeshwara – He is the Lord ...
+
+Shri Mataji: Ha? Again!
+
+Y Gregoire: Om Twameva Sakshat Shri Nav Jerusalemeshwara – He is the Lord of the New Jerusalem
+
+(Shri Mataji is laughing).
+
+Om Twameva Sakshat Shri Adi Nirmalatma – He is the Primordial Self of Shri Mataji.
+
+(Shri Mataji is smiling).
+
+Om Twameva Sakshat Shri Sahaja Yogi Priya – He is fond of Sahaja yogis
+
+Shri Mataji: So this means that He is the Beloved of the Sahaja yogis.
+
+Gregoire: This is another name, there is another name, Mother, for this, Sahaja Yogi Vatsala,
+
+Shri Mataji: Sahaja Yogi Vatsala.
+
+i Gregoire: Priya Bhakta, He is the favourite of the devotees.
+
+Shri Mataji: Priya Bhakta; so Priya is first but if you put it last, you see – Bhakta Priya means He’s fond of bhaktas, you see, Bhakta Priya. But supposing you put it that She is the Beloved, you see because the Priya, where you put it, you see, then it is My name, so I am the Beloved. You can switch it Premi, would be better – if you put it Premi then it would be all right.
+
+You can put it, Priya will be – Gregoire – Sahaja Yogi Priya it’s all right, but if you put it ‘Priyaa’ then immediately it means just the other way round because you are addressing, you are making this thing according to Me – I become that deity, you see? Sanskrit is tremendous, [with] little change here and there and makes such a thing because every, every consonant, every vowel has a meaning, can you imagine every consonant and every vowel has a meaning and has a mantra because it is a  Devanagari, it is understood only by the devas,  Devanagari created by the devas, so all these have such a tremendous effect when you combine all these things, you see.
+
+Sahaja yogi: I’ll read some names for You Shri Mataji.
+
+Shri Mataji: All right.
+
+(more names, all beginning with Nirmala) min 19:05
+
+Shri Mataji: Beautiful. .... We can have.... The kumkum have you done? Kajal?
+
+The same comb in that photograph has come up as light, have you seen that? Just like a flame, this comb. Have you seen that photograph? In your, yes, in your album.
+
+Oil, Amla, Amla oil? (For hair. A yogi replies with another name of oil).
+
+(Mother asks for khus perfume)
+
+Shri Mataji: I saw some Khus, Gregoire, in your bathroom I saw some Khus, is Khus perfume. Khus. I saw one, it has to be “Athar”, you see from India because let see this one is also “Mogra”...
+
+Here the kind of perfumes people use are very dangerous, especially this ‘Tabac’ is gothing [gotten] from tobacco, you see sort of people get addicted to it, because it is an addiction.
+
+Yes, this is all right, this is all right. This is Hina – is it written ‘Hina’ on that? “Khus, same thing. Just the same. This is all right. Just the same.
+
+You can apply [this] to all the Sahaja Yogis, this perfume: Khus. It clears all your Vishuddhi, Right Vishuddhi especially. Though if you have Hina is the best because that clears out your Right Vishuddhi very much, but this is good for people who are speedy, heated up, for liver patients.
+
+(Sahaja Yogi is saying mantra)
+
+Shri Mataji: Let he do it when I hold the sword. I will hold the sword in this hand (Hindi)
+
+(Sahaja yogi is asking    if he should read the Lalita Sahasranama)
+
+Shri Mataji: 108 Names. Have we got copies of  108 names? (sy: No) But you can translate it.
+
+(Recitation of the mantras)
+
+(Shri Mataji asks for some water to wash Her hands)
+
+(Shri Mataji is decorated with flowers tied on Her arms and then She asks for the sari. It’s like is something with the sari because Shri Mataji looks a litle bit surprised)
+
+Gregoire: It’s my wife who selected it, I am innocent. (showing the saris to Shri Mataji)
+
+Shri Mataji: He selected and you put the blame on her. That’s why the wives are there, to take all the blame.
+
+(Shri Mataji explaining how the yoginis should fold it and put the sari around Her)
+
+You have to open it the other way round, like that, halfway – open half, you see? That’s how you should take it, yes, fold it that side. (...) Now. Hold it on that side....That side may be longer ...  You have to bring it round, that’s the problem.
+
+This is the way they had it at the time of Shri Krishna (pallu in front)
+
+Take off My hair from the back and pull out My hair.
+
+Did not have the modern watch. But I don’t believe in time!
+
+(garland is offered)
+
+The best combination is green, orange and yellow.
+
+(Orange flower crown is offered)
+
+Shri Mataji: Flowers are the best above the head, they say.
+
+A sign of beauty is that you cannot tolerate any imperfection anymore. This [crown] is very beautiful so you must make everything in relation to that, you see, is to be done. It’s done very well.
+
+May God bless you.
+
+Try to take complete photographs also.
+
+(weapons are given to Shri Durga. Shri Mataji takes the Sword, but not the Club, saying)
+
+This I don’t need!  (then She asks for the Conch)
+
+You can read that (mantras)...
+
+Shri Mataji: (For Aarti) Stand, it has to go down.
+
+(Sahaja Yogis are singing ‘Sab.ko dua dena’ and then The Maha Mantras)
+
+May God bless you all, give yourself a bandhan
+
+(Yogis say Jagadambe, - 12 times)
+
+Shri Mataji: Say Lord’s prayer.
+
+Shri Mataji: Once more.
+
+Shri Mataji: Once more.
