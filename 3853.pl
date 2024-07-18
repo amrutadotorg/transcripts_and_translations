@@ -18,7 +18,7 @@ Yogin: Czy hemoroidy są problemem Mooladhary? Hemoroidy?
 
 Shri Mataji: Prawa strona. Prawa Muladhara. Prawa strona. W tym celu musicie utrzymywać w sobie chłód.
 
- I znowu jest mowa o ochładzających efektach, wszystko to, co ochładza, musi być zrobione, a także dobrze jest jeść czarne suszone winogrona. Jak one się nazywają?
+I znowu jest mowa o ochładzających efektach, wszystko to, co ochładza, musi być zrobione, a także dobrze jest jeść czarne suszone winogrona. Jak one się nazywają?
 
 Yogin: Rodzynki.
 

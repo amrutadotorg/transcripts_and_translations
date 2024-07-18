@@ -22,6 +22,6 @@ I jestem pewna, że pewnego dnia będę bardzo zadowolona z nich wszystkich, 
 
 Ale wszyscy oni są w stanie osiągnąć każdą wysokość. Oni mogą należeć do każdej kasty, społeczności, nie ma to znaczenia; ale rodzą się w Maharashtrze, która jest takim wspaniałym krajem. Zatem dzisiaj oni chcieli zrobić Mahalakshmi, mamy już świątynię Mahalakshmi. I oni mają wielkie błogosławieństwo Mahalakshmi również poprzez to, ale brakuje im: po pierwsze mądrości, a po drugie ducha Kartikeyi. Ducha Kartikeyi – tego czystego, absolutnego dynamizmu, który nie angażuje się w nonsensowne i bezużyteczne rzeczy; czego widać rezultaty.
 
-Niech Bóg błogosławi was wszystkich! 
+Niech Bóg błogosławi was wszystkich!
 
 (wersja 1 do dalszych korekt, listopad 2017)

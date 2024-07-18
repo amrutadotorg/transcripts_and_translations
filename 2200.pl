@@ -138,4 +138,4 @@ Błogosławię was dzisiaj, abyście wszyscy osiągnęli ten stan, abyście
 
 Nie tylko to, ale że Ona będzie się przejawiała, będzie działała tak jak Bóg. Tak wiele można powiedzieć. Powiedziałam już tak wiele wcześniej. I tak wiele może być powiedziane również później, ale dzisiaj powinniśmy pamiętać o jednym, że musimy mieć pełną wiarę w Królestwo Boga i w Siły Boga Wszechmogącego, pełną wiarę, a zatem i w siebie samych.
 
- Niech was wszystkich Bóg błogosławi.
+Niech was wszystkich Bóg błogosławi.

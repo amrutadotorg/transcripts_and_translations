@@ -1,6 +1,6 @@
 Встреча с мэром Тольятти С. Ф. Жилкиным
+
 Тольятти, Россия, 20 июля 1996 г.
- 
 
 Togliatti TV: Все сахаджа-йоги очень довольны, что первый мэр в России, первый мэр города, желает встретиться со Шри Матаджи. Это говорит о большой духовности нашего города и мэра города, и все сахаджа-йоги очень благодарны вам за это.
 
@@ -544,6 +544,7 @@ Bogdan: We await you here again in Togliatti as often and as much as you wish to
 Mayor: Каждый раз будет самый радушный прием.
 
 Bogdan: And every time you will get a heartfelt acceptance and meeting.
+
 Shri Mataji: Oh very kind of you thank you very much thank you.
 
 T: Спасибо большое.
@@ -558,15 +559,16 @@ Mayor: Спасибо, до свидания.
 
 Voice4: Игорь Юрьевич, поделитесь впечатлениями о Шри Матаджи.
 
-               [Igor Yurievich, share your impression of Shri Mataji]
+[Igor Yurievich, share your impression of Shri Mataji]
 
 Mayor: Батюшки, да это сложно очень. (Смех) Вот только ощущения, больше ничего в этом смысле. Вот, большая волна любви, добра и ума, сразу в одном месте. И это просто подавляет. Вот какие мои впечатления. Сейчас поеду, отходить. (Смех)
 
-              [Oh it is not easy! Just feelings nothing else in that sense. Big wave of love, kindness and intelligence all in one place. That is my impression. Will go now and try to settle my feelings (laughter)]
+[Oh it is not easy! Just feelings nothing else in that sense. Big wave of love, kindness and intelligence all in one place. That is my impression. Will go now and try to settle my feelings (laughter)]
 
 Богдан дарит от имени Шри Матаджи подарок (видимо галстук).
 
 Bogdan gives the Mayor a gift from Shri Mataji.
 
 Mayor: До свидания. 
-               [Goodbye]
+
+[Goodbye]

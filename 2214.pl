@@ -1,4 +1,5 @@
 Guru Puja, Dorośnijcie i Osiągnijcie Stan Guru
+
 24.07.1994 Cabella Ligure, Włochy
 
 Dzisiaj wszyscy zebraliście się tutaj, aby czcić Mnie jako waszego Guru. Muszę powiedzieć, że brakuje Mi wielu cech, które powinien posiadać guru, w tym sensie, że nie umiem być surowa wobec was, nie mogę być wobec was surowa, naprawdę nie wiem, jak mam was ukarać, kiedy robicie złe rzeczy. Może to wynikać z tego, że normalnie guru mają problemy ze swoimi uczniami, którzy w większości nie są Zrealizowanymi Duszami. Ponieważ oni nie są Zrealizowanymi Duszami, guru napotykają na trudności w komunikowaniu się lub rozmawianiu z nimi o subtelnych problemach, które oni mają.

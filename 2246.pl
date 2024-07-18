@@ -2,9 +2,7 @@ Guru Puja, Twórczość, 23.07.1989 Lago Di Braies, Włochy
 
 Dzisiaj musieliśmy spędzić trochę więcej czasu niż zwykle, by osiągnąć poziom, gdzie możemy naprawdę czcić Guru.
 
-Kiedy czcimy naszego Guru, musimy wiedzieć, że rzeczywiście staramy się obudzić zasadę Guru w nas samych. Chodzi nie tylko o to, że jesteście tutaj, aby czcić swojego Guru. Możecie oddawać cześć bardzo wiele razy, być może wibracje będą płynąć, być może poczujecie się nimi napełnieni i poczujecie się uwzniośleni i odżywieni. Ale te wartości odżywcze muszą zostać zachowane
-
-w nas samych.
+Kiedy czcimy naszego Guru, musimy wiedzieć, że rzeczywiście staramy się obudzić zasadę Guru w nas samych. Chodzi nie tylko o to, że jesteście tutaj, aby czcić swojego Guru. Możecie oddawać cześć bardzo wiele razy, być może wibracje będą płynąć, być może poczujecie się nimi napełnieni i poczujecie się uwzniośleni i odżywieni. Ale te wartości odżywcze muszą zostać zachowane w nas samych.
 
 Więc zawsze pamiętajcie, że ilekroć oddajecie cześć jakiejś zasadzie na zewnątrz, staracie się czcić swoją własną zasadę w sobie. Jak wiecie, w nas, w każdym z nas, znajduje się Zasada Guru. Bardzo interesujące jest zobaczyć, jak Zasada Guru przepięknie otacza czakrę Nabhi. Nigdy nie widzimy żadnych czakr połączonych z zasadą Guru. Widzicie Nabhi, a wokół jest Bhavasagara. Zatem ten Bhavasagara, który jest Oceanem Iluzji, nie może być Guru.
 

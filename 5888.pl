@@ -1,4 +1,4 @@
-Co się dzieje w innych lokach 
+Co się dzieje w innych lokach
 Miejsce: Caxton Hall, UK
 30 czerwca 1980
 

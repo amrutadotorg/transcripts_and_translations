@@ -112,9 +112,9 @@ Jest takie by się starać i dawać innym, i obserwować radość. Dawać
 
 Muszę wam coś powiedzieć, Gregoire’a tu nie ma, ale Mi go brakuje, ponieważ raz poszłam do sklepu z sari i chciałam kupić jedno sari, ale pomyślałam: "To jest raczej drogie, czemu miałabym kupować tak drogie sari" wyszłam. I będziecie zadziwieni, on dał Mi to samo sari na Moje urodziny i byłam taka pełna radości, ponieważ on je kupił następnego dnia, poszedł i kupił w tym sklepie, schował u siebie i dał Mi na urodziny.
 
-Te małe, małe rzeczy mogą dać wam radość dawania ludziom, innym ludziom, nie sobie. Nawet jeżeli jestem na zakupach, nawet jeżeli jestem spragniona, nie kupię nawet jednej coca-coli dla siebie. Ludzie wiedzą, że Ja nie kupuję dla siebie, praktycznie nic, ale wy wszyscy Mi tak dużo dajecie, co zrobić. 
+Te małe, małe rzeczy mogą dać wam radość dawania ludziom, innym ludziom, nie sobie. Nawet jeżeli jestem na zakupach, nawet jeżeli jestem spragniona, nie kupię nawet jednej coca-coli dla siebie. Ludzie wiedzą, że Ja nie kupuję dla siebie, praktycznie nic, ale wy wszyscy Mi tak dużo dajecie, co zrobić.
 
-Teraz, zadecydowałam (Shri Mataji się śmieje) że po 75-ciu latach, nie powinnam czegokolwiek od was w ogóle brać. Ale może by was zadowolić, oni proszą: "Weź narodowe, międzynarodowe" [prezenty], w porządku. Ale już więcej żaden kraj nie powinien nic przynosić. 
+Teraz, zadecydowałam (Shri Mataji się śmieje) że po 75-ciu latach, nie powinnam czegokolwiek od was w ogóle brać. Ale może by was zadowolić, oni proszą: "Weź narodowe, międzynarodowe" [prezenty], w porządku. Ale już więcej żaden kraj nie powinien nic przynosić.
 
 Co po tych narodowych, międzynarodowych – wy wszyscy jesteście międzynarodowymi ludźmi, jaka jest potrzeba, by przynosić Mi jakiś present? Ja nawet nie mam czasu, by je obejrzeć. Jestem tak bardzo zajęta innymi sprawami, ponieważ jest tak wiele problemów na tym świecie.
 
@@ -234,7 +234,7 @@ Dam wam przykład. Dzięki Bogu jego tu nie ma. (Shri Mataji się śmieje)
 
 On wie, on wie, że jestem bardzo bystra w pewnych sprawach. W swoim biurze miał pewnego człowieka, nigdy nie wtrącałam się do jego biura, ale tam był pewien człowiek, bardzo dobry, który opuścił jego organizację i wstąpił do innej, ponieważ była ona prywatna, tam dostawał więcej pieniędzy, więc tam się przyłączył.
 
-Ale tam było strasznie, więc chciał wrócić do Shipping Corporation. Ale mój mąż, który jest bardzo skrupulatny w sprawie zasad powiedział: "Nie, nie, nie. Nie chcę cię tu mieć, nie chcę widzieć twojej twarzy, wynoś się" to , tamto. 
+Ale tam było strasznie, więc chciał wrócić do Shipping Corporation. Ale mój mąż, który jest bardzo skrupulatny w sprawie zasad powiedział: "Nie, nie, nie. Nie chcę cię tu mieć, nie chcę widzieć twojej twarzy, wynoś się" to , tamto.
 
 Więc on przyszedł do Mnie. Normalnie, nigdy się nie wtrącam. Przyszedł do Mnie i powiedział: "Jeżeli Ty mu powiesz, może posłucha". Odrzekłam: "Nie, jeśli Ja mu powiem, nigdy nie posłucha ale wiem jak to zrobić" (śmiech)
 
@@ -292,7 +292,7 @@ Szłam jak jakiś gigant, wiecie (śmiech). Jest taki opis waszej Matki: "Ati 
 
 Ale nie wiem, jak Ja usiadłam w tym sari! Zasiadłam w jednym miejscu wbita w nie. (śmiech) Teraz jak wstać, nie wiedziałam jak wstać z tym ciężarem na Moim ciele. Widzicie? A potem to przyniosłam i ułożyłam odpowiednio w pudełku itd. A on zapytał: "Kiedy założysz je?"
 
- "Teraz" odparłam: "Proszę, trzymam to ładnie na jedno wesele, czasem to założę".
+"Teraz" odparłam: "Proszę, trzymam to ładnie na jedno wesele, czasem to założę".
 
 Obiecałam mu i je trzymam, ponieważ on się nie zna na sari. Wiem, że on się nie zna na sari. Więc jeżeli on nie rozumie, co on kupuje, Ja mówię: "W porządku" a on wydaje tak dużo pieniędzy na te rzeczy, wiecie, 45 tys rupii na takie sari (Shri Mataji się śmieje, słowa w Hindi)
 
@@ -327,20 +327,20 @@ Inną rzeczą jest, jak idziecie do hinduskiego domu. Ich kod kolorystyczny je
 Każdy ma swój własny gust. Jak tylko one wchodzą – kobiety Zachodu ("co za paleta barw! Coś ty kupiła! O mój Boże, to jest straszne". Natychmiast one krytykują w twarz.
 
 Więc inną rzeczą jest, że zawsze powinniście brać pod uwagę uczucia innych.
-Albo one pójdą do hinduskiego domu, który będzie pachniał ich żywnością: "Huh" (wskazując brzydki zapach). One spożywają pewne jedzenie, cieszą się tym jedzeniem, ale próbują pokazać, pokazać, że to jest coś niższego. 
+Albo one pójdą do hinduskiego domu, który będzie pachniał ich żywnością: "Huh" (wskazując brzydki zapach). One spożywają pewne jedzenie, cieszą się tym jedzeniem, ale próbują pokazać, pokazać, że to jest coś niższego.
 
 To jest bardzo Zachodnie, muszę powiedzieć. Jeżeli ktoś nosi suknie, ktoś natychmiast czyni uwagi. Bardzo zachodni pomysł. Nie znajdziecie dobrych hindusów tak robiących, nie znam współczesnych hindusów, jakiego są typu.
 
 Ale natychmiast oni powiedzą rzeczy, które będą ranić. To nie tak powinna wyglądać kobieta. Wprost przeciwnie, zawsze cenić – co to szkodzi? Przez docenienie czegoś nic nie tracicie. Poprzez powiedzenie: "Jaka ładna rzecz, jakie ładne sari, jakie ładne ubrania" co to szkodzi? Będziecie się bawić swoją słodkością, wiecie. Naprawdę cieszyć się swoją słodkością. To nie jest mówienie kłamstw, nie trzeba być aż tak uczciwym.
 Jeśli czegoś nie lubicie, musicie powiedzieć: "Nie lubię tego". To słowo musi odejść z Sahaja Yogi.
 
- "Lubię tego i nie lubię tamtego". Jeżeli powiem tak, to jak wielu zostanie w Sahaja Yodze? Więc to jest bardzo ważne by odpuścić "lubię to, nie lubię tego". Kim wy jesteście, by lubić bądź nie lubić? Co z waszym Duchem?
+"Lubię tego i nie lubię tamtego". Jeżeli powiem tak, to jak wielu zostanie w Sahaja Yodze? Więc to jest bardzo ważne by odpuścić "lubię to, nie lubię tego". Kim wy jesteście, by lubić bądź nie lubić? Co z waszym Duchem?
 
 Więc o to samo chodzi z tym, że kobieta ma mieć wielkie serce, bardzo ogromne serce, piękne serce. A waszym Guru jest Matka, więc wy macie być cudownymi matkami i cudownymi żonami, i powinnyście mieć bardzo wielkie serca.
 
 Więc to wszystko to ten egoizm, nawet ten brzeg się zawali, jeżeli będziecie tak robić. To się dzieje, ponieważ mamy małe serca. Jeżeli macie wielkie serce, to upadnie – czyż nie? Mówię to specjalnie, ponieważ mam wiele narzekań na kobiety, które są tutaj zamężne, niektóre Hinduski również. Dlatego wam mówię.
 
-Muszę powiedzieć, że najlepsze raporty są o rosyjskich kobietach, bardzo, bardzo dobre komentarze na ich temat. Są bardzo usatysfakcjonowanymi duszami, niewiele chcą, nie są chciwe. To zaskakujące, komunizm zrobił tak wiele dobrego dla nich. 
+Muszę powiedzieć, że najlepsze raporty są o rosyjskich kobietach, bardzo, bardzo dobre komentarze na ich temat. Są bardzo usatysfakcjonowanymi duszami, niewiele chcą, nie są chciwe. To zaskakujące, komunizm zrobił tak wiele dobrego dla nich.
 Ich rząd powiedział: "W porządku, możecie mieć swoje mieszkania i o nie dbać". Powiedziały: "My nie chcemy mieć, wy je miejcie". Urzędnikom powiedziano: "Możecie mieć swoje samochody". Powiedzieli: "Nie, nie, nie my nie chcemy, lepiej wy miejcie". Ponieważ posiadanie wozu to taki ból głowy – oni wiedzą. Niech rząd ma ból głowy. Oni nie są, typem ludzi, którzy mają nawet świadomość posiadania.
 
 Oczywiście, teraz, oni mają trochę śmiesznych postaci. Zapominam jego imię, ten, który był ministrem finansów i był w Genewie, gdzie nauczył się wszystkich handlowych sztuczek i wprowadził wiele reform, tak zwanych. Więc obecnie Leningrad i Moskwa stały się bardzo drogimi miejscami – dzięki szwajcarskiemu wpływowi.
@@ -351,7 +351,7 @@ Więc ci, którzy chcą mieć tę książkę powinni się zgłosić. J
 
 Widzicie, jest tak, że trochę śpiewacie, potem śpiewacie to, potem krzyczycie, potem schodzicie w dół, potem robicie tak. A oni myślą, że powinni śpiewać ze swojego serca. Oni muszą wyrażać uczucie ich serca. Powiedzmy, że ktoś jest zniechęcony, więc on śpiewa pieśń zniechęcenia. Potem inny mówi o miłości, zaczyna śpiewać pieśń. On może taki nie być, ale oni chcą sztucznie wytworzyć taki efekt. Nie ma potrzeby śpiewać partiami, najpierw jedno słowo, potem następne, nie ma w tym melodii, nie ma w tym żadnej płynności.
 
-Podczas gdy rosyjskie pieśni, chociaż były ludowymi piosenkami, były bardzo melodyjne. Ale nie martwcie się, Amerykanie atakują tę część również. Mają całą tą straszną muzykę. 
+Podczas gdy rosyjskie pieśni, chociaż były ludowymi piosenkami, były bardzo melodyjne. Ale nie martwcie się, Amerykanie atakują tę część również. Mają całą tą straszną muzykę.
 
 Teraz, muzyka oznacza, że ona powinna was zadowalać. Powinna dawać wam więcej rozrywki, nie czynić was nieszczęśliwymi, nie robić was smutnym. Jeżeli macie te wszystkie uczucia w sobie, powinniście mówić tak: "Tak, jest problem, ale go przezwyciężę". Ponieważ, jesteście Sahaja yoginami, musicie okazać zwycięstwo, swoją zwycięską naturę w waszej muzyce.
 
@@ -362,15 +362,15 @@ Więc różnica jest ogromna. Zatem, życzyłabym sobie, żeby wszyscy muzy
 W hinduskich ragach, jest melodia, ale słowa nie są ważne. Więc cieszycie się brzmieniem i tym wszystkim, czy znacie język czy nie, nie ma znaczenia.
 Więc jeżeli połączycie melodię z zachodnią muzyką, zobaczycie jak inne to będzie. I ta książka was nauczy. To jest bardzo dobra książka, którą powinniście mieć, i którą powinniście zrozumieć, jak muzyka może was uleczyć, muzyka może dać wam radość, co jest podstawą, esencją muzyki.
 
-A potem możecie posługiwać się tym kwieciście. Jestem pewna, jeżeli hinduscy muzycy wezmą się za zachodnią muzykę, będzie znacznie lepsza niż jest teraz. Nie mogę pojąć, jak ci ludzie są tak sławni a ludzie myślą, że oni świetnie zarabiają i ta cała reszta. W Ameryce, każdy może na tym zarabiać, ale zrobić z tego odpowiednią muzykę, to myślę, że musicie mieć podstawy hinduskiej muzyki. 
+A potem możecie posługiwać się tym kwieciście. Jestem pewna, jeżeli hinduscy muzycy wezmą się za zachodnią muzykę, będzie znacznie lepsza niż jest teraz. Nie mogę pojąć, jak ci ludzie są tak sławni a ludzie myślą, że oni świetnie zarabiają i ta cała reszta. W Ameryce, każdy może na tym zarabiać, ale zrobić z tego odpowiednią muzykę, to myślę, że musicie mieć podstawy hinduskiej muzyki.
 
 Wtedy możecie to rozszerzać jak wam się podoba. Proszę spróbujcie kupić tę książkę, by zrozumieć hinduską muzykę. Nie ma jeszcze ceny, ale to nie będzie wiele więcej, niż normalnie. Tak więc następnym razem, myślę, że na Diwali Puję, mogą więcej przywieźć.
 
 Ech? Ganapatipule (Shri Mataji rozmawia na boku w hindi by się dowiedzieć, kiedy książka będzie dostępna) Acha. Postaram się dostać ich więcej, ale to naprawdę musicie przeczytać, ponieważ będziecie wiedzieli, co jest esencją muzyki, w porządku?
 
-I na koniec, dzisiaj jest czwarty dzień Navaratri i oni dali Mi – niektóre z nich to są imiona, które są naprawdę straszne, ale oni muszą być ludźmi, którzy tak wiele wycierpieli i poprosili Matkę, by zabiła te straszne rakshasy. Teraz w pewien sposób, to je wszystkie zabije w naturalny sposób, wiem to. Jeżeli wy ludzie znajdziecie sens, ponieważ wy jesteście tymi, którzy mogą to zrobić. 
+I na koniec, dzisiaj jest czwarty dzień Navaratri i oni dali Mi – niektóre z nich to są imiona, które są naprawdę straszne, ale oni muszą być ludźmi, którzy tak wiele wycierpieli i poprosili Matkę, by zabiła te straszne rakshasy. Teraz w pewien sposób, to je wszystkie zabije w naturalny sposób, wiem to. Jeżeli wy ludzie znajdziecie sens, ponieważ wy jesteście tymi, którzy mogą to zrobić.
 
-Jeżeli nie będziecie próbowali pozyskiwać rzeczy, których nie chcecie, zbytecznych rzeczy. Jeżeli postaracie się zredukować te wszystkie rzeczy i skierujecie się ku czemuś naturalnemu i pokochacie Matkę Ziemię, jestem pewna, że to zadziała. 
+Jeżeli nie będziecie próbowali pozyskiwać rzeczy, których nie chcecie, zbytecznych rzeczy. Jeżeli postaracie się zredukować te wszystkie rzeczy i skierujecie się ku czemuś naturalnemu i pokochacie Matkę Ziemię, jestem pewna, że to zadziała.
 
 Wiecie o tym trzęsieniu ziemi. Teraz nikt nie chce chodzić do kościoła. Ale ja nic nie zrobiłam. To Matka Ziemia. Teraz nikt nie chodzi do kościoła. Cóż – Ja nic nie zrobiłam, nie chciałam. Żal mi było tych dzieł sztuki, które przepadły, ale zobaczcie teraz, jak działa natura.
 
@@ -395,7 +395,7 @@ To jest świat, który zasila ośmiornicę Banków Szwajcarskich.
 To jest świat, w którym posiadanie zbyt wiele już nie wystarcza.
 To jest świat, w którym negatywność jest zaletą.
 To jest świat, w którym święci mówią: "Dość"
-To jest świat, w którym 1,3 miliarda ludzi żyje z dochodu poniżej 1 USD dziennie, 
+To jest świat, w którym 1,3 miliarda ludzi żyje z dochodu poniżej 1 USD dziennie,
 a planeta nie ma wystarczających zasobów naturalnych, aby podtrzymać na skalę światową model konsumpcji Malezji, nie mówiąc już o Ameryce.
 
 Shri Durga, prosimy,
@@ -438,7 +438,7 @@ Shri Chandika, prosimy,
 zniszcz siły zła, które stworzyły materializm
 Om Twameva Sakshat Shri Chandika Namoh Namaha.
 
-Stopniowa koncentracja płynnego bogactwa w rękach superbogaczy, marginalizuje suwerenność narodową i jej wybranych urzędników, a narzuca tytaniczny wymiar zarządzania pieniędzmi. 
+Stopniowa koncentracja płynnego bogactwa w rękach superbogaczy, marginalizuje suwerenność narodową i jej wybranych urzędników, a narzuca tytaniczny wymiar zarządzania pieniędzmi.
 
 Shri Rakshasagni, prosimy,
 zniszcz siły zła, które stworzyły materializm
@@ -480,7 +480,7 @@ Przynęta i miraż tak radykalnej koncentracji bogactwa i władzy, grozi zneut
 Shri Mahamaya, prosimy,
 zniszcz siły zła, które stworzyły materializm
 Om Twameva Sakshat Shri Mahamaya Namoh Namaha.
- 
+
 Bratanie się mafii, tajemniczych bankierów i skorumpowanych menedżerów przeniknęło do światowej gospodarki i zagraża etyce kolektywności, która stanowi podstawę systemu wartości całej naszej cywilizacji.
 
 Shri Viratangana, prosimy,
@@ -527,7 +527,7 @@ Chwała Wielkiej Bogini! Aum, Amen.
 Niech nastanie pomyślność, radość i pokój.
 Niech Twoja Boska łaska przeniknie wody płynące z naszych gór do czterech zakątków Europy i rozprzestrzeni czyste wibracje Ery Wodnika.
 Pozdrowienia dla Ciebie Shri Mataji Nirmala Devi, O Wspaniała, O potężny Avatarze! Kłaniamy się Tobie, najłagodniejsza a jednocześnie najbardziej przerażająca, do której zwrócili się Trimurtis [Brahma, Vishnu, Shiva], aby ochronić Wszechświat.
-Dzisiaj, podczas tego święta Navaratri, intonujmy Litanię Twoich dzieci 
+Dzisiaj, podczas tego święta Navaratri, intonujmy Litanię Twoich dzieci
 w Szwajcarii, aby pokonać wrogów Ducha, i ofiarujemy Twoim błyszczącym zębom nowe asuryczne formy materializmu.
 
 Shri Raktadantika, prosimy,

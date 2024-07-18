@@ -1,5 +1,7 @@
 Курумоч международный аэропорт, Самара (Россия), 22 сентября, 1995   
 
+ 
+
 Shri Mataji: Hello, How are you?
 
 A lady with a microphone: Шри Матаджи, все сахаджа-йоги, все жители Тольятти рады приветствовать Вас на нашей Земле!
@@ -17,7 +19,6 @@ Bogdan: Shri Mataji what would you like to tell to all the people living in Togl
 Shri Mataji: Once you establish in Sahaja Yoga blessings of Divine will come on you. And all your problems will be solved.
 
 Bogdan: Вы приняли Сахаджа Йогу и самореализацию, все благодати божественности придут к вам.
-
 [correct translation: Когда вы утвердитесь в Сахаджа Йоге на Вас снизойдут божественные благословения и все ваши проблемы разрешатся]
 
 A lady with a microphone: Thank You very much.
@@ -44,8 +45,7 @@ Bogdan: Покупайте только то, что произведено з
 
 Shri Mataji: Also one has to work hard.
 
-Bogdan: Также вы должны работать творчески, созидательно.
-
+Bogdan: Также вы должны работать творчески, созидательно. 
 [correct translation: Вам нужно тяжело трудиться]
 
 Shri Mataji: And everything will be alright.
@@ -87,11 +87,12 @@ Bogdan: Солнце прикасается.
 Shri Mataji:  So beautiful.
 
 Шри Матаджи преподносится хлеб-соль. Мать отламывает и съедает кусочек.
+
 Shri Mataji: Thank you very much. Spasibo !
 
 Shri Mataji: Very happy to meet you all again.
 
-Bogdan: Рада вас видеть снова.
+Bogdan: Рада вас видеть снова. 
 
 [correct translation: Рада снова с вами встретиться]
 
@@ -142,9 +143,10 @@ Shri Mataji: Hello (to a little boy) He keeps the protocol.
 Bogdan: Он соблюдает протокол.
 
 (laughter)
+
 Shri Mataji: Thank you very much. What a welcome !!
 
-Bogdan:  Какое пожелание мне?  какое приветствие? (what do you wish Me?)
+Bogdan:  Какое пожелание мне?  какое приветствие? (what do you wish Me?) 
 
 [correct translation: Какое замечательное приветствие!]
 

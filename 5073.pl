@@ -1,5 +1,7 @@
 Śluby w Obecności Shri Mataji, 15.09.2002 Cabella Ligure, Włochy
+
 Mowa do Panien Młodych
+
 Jestem bardzo szczęśliwa widzieć was wszystkie w takich pięknych strojach, ślubnych strojach oraz w dobrych nastrojach, by wziąć ślub.
 
 Musicie zachowywać to nastawienie – dobrze? Powinniście być szczęśliwymi ludźmi i starajcie się również utrzymywać swoich mężów szczęśliwymi. Wasza radość może stworzyć szczęście dla dzieci. Przed jedną rzeczą chcę was ostrzec: nie mówcie waszym mężom o tym, co złego było w waszej przeszłości. Tego nie należy robić, nie ma takiego powodu, ponieważ teraz jesteście Sahaja yoginkami. Jesteście zmienionymi ludźmi i cokolwiek się wydarzyło, już się wydarzyło, i nie ma powodu mówić mu o tym ani o tym opowiadać, rozmawiajcie natomiast o przyszłości i teraźniejszości – dobrze? Więc bądźcie rozsądne. To wasz rozsądek sprawi, że życie małżeńskie będzie szczęśliwe.
@@ -47,7 +49,9 @@ Wystarczająco wam powiedziałam. Mam nadzieję, iż rozumiecie, że bierzec
 I musicie utrzymywać prestiż Sahaja Yogi, w porządku? Obiecujecie?
 
 Niech was Bóg błogosławi.
+
 Mowa do Panów Młodych
+
 Jestem bardzo szczęśliwa, że wszyscy zdecydowaliście się wziąć ślub w Sahaja Yodze, są jednak określone obowiązki, które musicie wypełnić.
 
 To nie jest jak w innych małżeństwach, że dziś bierzesz ślub, jutro się rozwodzisz, później robisz to czy tamto. Nic z tych rzeczy. Bierzecie ślub w Sahaja Yoga, ponieważ chcemy wzmocnić Sahaja Yogę. Będziesz miał żonę, ona się o ciebie zatroszczy, będzie dla ciebie życzliwa, będzie cię kochać, ponieważ ona jest Sahaja yoginką.

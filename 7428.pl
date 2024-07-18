@@ -11,7 +11,7 @@ Musicie zrozumieć, że ważność tego dnia będzie znana tylko wtedy, je
 
 W tym świecie, w dniu moich urodzin, została obudzona Brahma Shakti. Wy ją otrzymaliście do pewnego stopnia i używacie jej na wiele sposobów.
 
-Mówiłam wam, że światło Wielkiej Siły Miłości rozświetli cały świat. Pierwsza lampa będzie zapalona tego dnia. Ale noc Diwali jest ślepa. Nie może zobaczyć tych lamp. 
+Mówiłam wam, że światło Wielkiej Siły Miłości rozświetli cały świat. Pierwsza lampa będzie zapalona tego dnia. Ale noc Diwali jest ślepa. Nie może zobaczyć tych lamp.
 
 W tej Kali-Yudze nasza praca będzie wykonana tylko wtedy, kiedy zapali się wiele lamp.
 Wszelka praca Boga, będzie zakończona. Dlatego wszyscy powinni być czujni i obudzeni, a także powinni obudzić innych.
@@ -20,9 +20,9 @@ Moje życie poświęcone jest wam. Ta praca trwa nieustannie. Wszystko czego 
 
 Oto moje błogosławieństwa: aby ta lampa świeciła w każdym domu, aby jej radość rozprzestrzeniła się wśród społeczeństwa, aby okrzyki jej zwycięstwa rozległy się w każdym kraju i aby moc Brahmana napełniła każdą cząstkę tego Wszechświata.
 
-Muszę przebywać z dala od was przez bardzo długi czas. Ale wasi bracia mieszkają tutaj oraz w innych krajach. Będziecie mieli okazję się spotykać. 
+Muszę przebywać z dala od was przez bardzo długi czas. Ale wasi bracia mieszkają tutaj oraz w innych krajach. Będziecie mieli okazję się spotykać.
 
-Często czuję, że pewnego dnia wielka radość miłości powinna pojawić się w naszym życiu. Czegokolwiek pragniecie, wasze pragnienia spełnią się. 
+Często czuję, że pewnego dnia wielka radość miłości powinna pojawić się w naszym życiu. Czegokolwiek pragniecie, wasze pragnienia spełnią się.
 
 To właśnie dlatego wasza uwaga powinna być w pełni na Sahaja Yodze. Ja ofiarowałam swoje ciało, umysł i bogactwo, wszystko.
 
