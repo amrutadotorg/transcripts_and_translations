@@ -1,15 +1,44 @@
-Мне очень жаль, что Я не cмогла говорить с вами на английском языке, – и Я говорила некоторое время.
+14 January 1981
+Makar Sankranti Puja
+Pune (India)
+Talk Language: English, Marathi | Transcript (English) - VERIFIED | Translation (Marathi to English) - NEEDED
+Makar Sankranti Puja, Pune (India), January 1st, 1981
 
-Этот особенный день сегодня — День Санкранта. Санкрант – вы знаете, что «Сан» означает «хороший», «святой», а «крант» означает... (йог говорит тихим голосом: «Революция». Шри Матаджи говорит несколько слов на марати) Когда Я говорю на марати, Я забываю английский. Йоги: революция. Шри Матаджи: революция. Святая революция. Святая. И это то, что Я им говорю, что такое Священная Революция, что ваша собственная Дхарма теперь устанавливается посредством Сахаджа Йоги. Вы знаете, какова ваша Дхарма. Потому что, если вы не будете исполнять свои собственные Дхармы, вы пропадёте.
+[Shri Mataji speaks first in Marathi; English starts at 24:51]
 
-Ваши вибрации будут потеряны. Вы сразу поймёте, что в своём искательстве вы что-то потеряли. Вы будете затронуты, и поэтому вы должны это исправить. Это не так сложно. Но чтобы сделать это Санкрантой — Священной Революцией — вы должны прийти к новой, новой религии, новым шагам. В первую очередь должен быть просветлён ваш собственный шаг, а затем вы должны установить новые шаги, чтобы идти вперед. И эти новые шаги, которые являются одними для людей Запада и другими для людей Востока. Я только что рассказала им о Восточном стиле, а позже Я расскажу вам о Западном. У нас должны быть новые идеалы, новые стили, потому что мы – отважные люди, мы храбрые люди! Мы должны вести войну любви, посредством любви!
+I’m sorry I’ve not been able to speak to you in English language - and I’ve spoken some time. This special day today is the day of Sankranta. San, you know. ‘San’ means "good, holy" and ‘krant’ means the – [Shri Mataji speaks in Marathi] . When I speak Marathi I forget English.
 
-И это очень деликатная вещь. Когда луна движется, солнце движется слева направо, это означает, что ваше желание становится вашим действием. Сегодня тот день, когда вам дарят сладости, чтобы сказать, что вы должны говорить сладко, что очень важно для людей Запада; что когда вы делаете и организуете, вы разогреваетесь, возникает напряжение, и вы развиваете сухой безэмоциональный темперамент. Вы знаете, сердце впадает в истерику. В это время говорят, что нужно взять сладкое. Это сладкое согревает, потому что сейчас солнце движется в другую сторону. И в этот раз, чтобы сбалансироваться, говорят: «Говорите очень сладко. Используйте сладкие слова, используйте сладость. Внесите сладость в вашу речь», что является очень важным, вы это понимаете. И это одна из религий, которую мы должны принять, что мы не будем использовать грубые слова друг с другом, а затем позже и с другими.
+Sahaja Yogis: Revolution.
 
-В первую очередь, друг с другом. Есть много людей, которые будут добры с другими, потому что другие «съедят их», но недобры к своим, «собственным» сахаджа йогам. Потому что это универсальное явление. Это все работает универсально. Даже если вы организуете, вы организуете для Целого. Те, кто организуют, не имеют права быть жёсткими, а те, кто не организуют, не имеют права быть медлительными. Мы должны двигаться с одной и той же скоростью, с одним и тем же пониманием. На языке марати есть очень хорошая история о том, [Шри Матаджи говорит на марати] что птицелов приготовил много приманки, хорошего зерна, для некоторых птиц — голубей, а голуби не видели гнезда [сети] – ловушки, и все они подлетели, чтобы поесть. И там была сетка. В сети их лапы запутались.
+Shri Mataji: Revolution. Holy revolution. Holy. And that’s what I’m telling them. What is the Holy Revolution is, that your own Dharma is established now through Sahaja Yoga, you know what is your dharma. Because if you don’t do your own dharmas you’ll be lost. Your vibrations will be lost. You’ll immediately know that in your seeking you have lost something. You’ll be affected and so you have to correct. That’s not so difficult.
+But to make it a Sankranta – the Holy Revolution – you have to take to new, new religion, new steps. First of all, your own steps should be enlightened, and then you have to establish new steps to go ahead. And these are the new steps which are different for the Westerners and different for the Easterners. Just now I told them about the Eastern style and then I’ll tell you later on about the Western. We have to have new ideals, new styles because we are the courageous people, we are the valiant people. We have to fight the war of love, through love and it’s a very delicate thing.
 
-Итак, решение было найдено: «Если все мы с одинаковой скоростью взлетим, мы унесём всю сеть, и тогда он не сможет нас поймать». Итак, один сказал: «Хорошо, как только я скажу «да», давайте все начнём с одинаковой скоростью». Если кто-то увеличивает свою скорость, он сбивается. Таким же образом должна сработать Сахаджа Йога; и поэтому, чтобы придерживаться этой скорости, оставайтесь мирными, любящими, нежными. Мир — это способ, которым мы собираемся достичь этого. Это «взрывной» мир. Создавая контрасты, вы привносите баланс: взрывной. Вы также читали о Богине — различных аспектах Богини. Всегда: «Ати Саумья, Ати Рудра» [нежная, как Луна, и ужасная, как Рудра]. При помощи двух контрастов, достигается баланс в середине.
+When the Sun moves from the left to the right, that means your desire becomes your action.
+Today is the day they give you a sweet thing, to say that you must speak sweetly which is very important for Western people; that when you are doing and organizing, you become heated up, there’s tension and you develop the temperament which is dry, emotionless. You know, the heart goes into a tantrum.
+At that time they say that you take the sweet, this sweet is a heating thing because now the Sun is moving towards the other side. That time also they, to give it a balance, they say: “Speak very sweetly. Use sweet words, use sweetness." Bring sweetness in your language which is very important, you understand that. And this is one of the religions we have to accept that we will not use harsh words to each other and then later on to others.
 
-Вот как вы должны понимать, что Сахаджа Йога — это очень уникальная революция. Я рассказала им и в политическом, и в социальном плане – во всех смыслах, как мы собираемся улучшить каждую страну. Таким образом, весь Мир – всю Вселенную. Позже Я всё переведу для вас. Итак, сегодня особенный день, очень великий день, давайте попросим о том, что когда вы совершаете эту пуджу, попросите, чтобы новые религии были закреплены внутри вас, были поддержаны внутри нас, и старайтесь впитать их. Они будут проникать, но вы должны принять их. И [вы] должны знать, что это большое сражение; и это совсем другой тип борьбы за мир и любовь. Вот почему они говорят: «Говорите сладко». Будьте милы с другими. Ни в коем случае не язвить, не быть резким, а быть милым.
+First of all, to each other. There are many people who will be kind to others because others will eat them off but unkind to their own Sahaja Yogis.
+Because it is a universal happening, it’s the whole thing is working out universally. Even if you organize, you organize for the whole. Those who are organizing have no business to be harsh and those who are not organizing has no business to be slow. We must move with the same speed, with the same understanding.
 
-Сладость подлинная, не внешняя, показная и формальная, а подлинная сладость. Да благословит вас всех Бог.
+There’s a story in Marathi language which is a very good story that a – [Shri Mataji speaks in Marathi] – the bird-catcher had put lots of temptations of good grain for some birds – pigeons. And the pigeons didn’t see the nest [net] – the trap – and they all came down to eat that. And there was a net there. In the net, their feet were entangled.
+So the solution was found out that: "If all of us with the same speed take off, we’ll take away the whole of the net and then he cannot catch us." So, one person said: "Alright, as soon as I say ‘yes’, let us all start with the same speed. If somebody increases his speed he is brought down."
+
+In the same way, Sahaja Yoga has to be worked out; and that’s why, to keep up the speed, keep yourself peaceful, loving, affectionate. Peace is the way we are going to achieve it. This is an explosive peace. By giving contrasts you bring the balance in: explosive.
+You have read also about the Goddess, the different aspects of Goddess. Always: "Ati Saumya, Ati Rudra" [In Devi Suktam from Devi Mahatmya ;"Gentle like the Moon and also terrible like Rudra"]
+to give the two contrasts by which bring the balance in the middle.
+
+That’s how you must understand that Sahaja Yoga is a very unique revolution. I told them also politically and also socially, in every way how we are going to improve every country, thus the whole world, the whole universe. Later, on I’ll translate the whole thing for you.
+
+So, today’s special day, very great day, let us ask that, when you are doing this puja, ask for new religions within you to be enshrined, to be sustained within ourselves and try to imbibe them.
+They will be permeating but you have to accept them and should know it’s a big fight. And it’s a very different type of a fight of peace and love.
+That’s why they say: "Speak sweetly. Be sweet with others." Not to be sarcastic by any chance, nor to be harsh, but be sweet. Sweetness which is genuine, not outward and showing and formal, but genuine sweetness.
+May God bless you all.
+
+Sahaja Yogis:
+Om twameva Sakshat Shri Mahalakshmi Mahasaraswati Mahakali Trigunatmika Kundalini Sakshat Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+
+Om twameva Sakshat Shri Mahalakshmi Mahasaraswati Mahakali Trigunatmika Kundalini Sakshat Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+
+Om twameva Sakshat Shri Mahalakshmi Mahasaraswati Mahakali Trigunatmika Kundalini Sakshat Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+
+[End of audio]
