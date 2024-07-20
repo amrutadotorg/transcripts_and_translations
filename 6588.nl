@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 1ste publiek programma
 
 Praag, Tsjechische Republiek
+
 17 augustus 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 08/07/2013
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 08/07/2013
 
 Ik buig voor alle zoekers naar de waarheid. Eerst en vooral moet ik jullie zeggen dat de waarheid is wat ze is. We kunnen er geen theorie rond opbouwen en we kunnen haar ook niet veranderen. Helaas kunnen we haar ook niet kennen met behulp van dit menselijke bewustzijn. We moeten een subtieler wezen worden om de waarheid te kunnen ontdekken; met andere woorden, we moeten de Spirit[1] zijn. Daarvoor moet je begrijpen dat dit een evolutionair, levend proces is. Het is een levende gebeurtenis in ons die je verandert in de Spirit, waar je niet voor kunt betalen. Je kunt er ook geen inspanningen voor leveren, maar het werkt gewoon omdat jullie zoekers naar de waarheid zijn.
 

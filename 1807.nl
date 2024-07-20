@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Hanuman Puja
 
 Frankfurt, Duitsland
+
 31 augustus 1990
-Engelse transcriptie: ISDP verified Nederlands: eindversie 29/03/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 29/03/2011
 
 Jullie kunnen ook hier zitten, sommigen van jullie, dat is goed... Ik denk dat jullie hier kunnen komen, er is plaats. Sommigen van jullie kunnen hier komen zodat zij ook hier kunnen komen, zo zal er geen probleem zijn. Ga jij maar hier vooraan zitten. Dat is beter, zie je. Goed. Open deze deur, dat zou goed zijn. Het is in orde, je kunt de deur openen als je wilt. Het is in orde. Maak hem maar beter open – kunnen deze deuren niet open? Gaan ze niet open? Oh mijn God! Je hebt er een lange persoon voor nodig. Je hebt Hanumana nodig! Zeg zijn naam en hij zal ze openmaken! Zet daar maar een stoel voor.
 

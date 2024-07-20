@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
- 
+
 Sahasrara Puja
+
 ‘Meditatie is de enige weg’
 
 Cabella Ligure, Italië
+
 10 mei 1998
-Engelse transcriptie: ISDP verified Nederlands: eindversie 12/12/2008
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 12/12/2008
 
 Vandaag is het een grote dag omdat de Sahasrara dag en moederdag samenvallen. Dat is een zeer sahaj[1] gebeurtenis denk ik, en zo moeten we ook begrijpen hoe de Sahasrara en het moederschap samengaan.
 

@@ -3,9 +3,12 @@ Shri Mataji Nirmala Devi
 Sankranti Puja
 
 Rahuri, India
+
 14 januari 1987
- 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 08/07/2013
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 08/07/2013
+
 Vandaag is de dag waarop we de zonnewende vieren, en het feit dat de zon zich richting Kreeftskeerkring beweegt. De Kreeftskeerkring staat symbool voor het moederschap, het moederschap van de aarde.
 
 De Kreeftskeerkring loopt voor een groot gedeelte over land, terwijl dat bij de Steenbokskeerkring niet het geval is. En in het gebied waar hij loopt ontstonden er verschillende prachtige manifestaties van de kwaliteiten van het moederschap op deze aarde. We vieren de zonnewende omdat de zon nu een nieuwe dimensie is binnengetreden, waardoor de hele wereld de warmte van de zon zal kunnen ervaren.

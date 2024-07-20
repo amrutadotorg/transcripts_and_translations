@@ -1,11 +1,13 @@
 Shri Mataji Nirmala Devi
- 
+
 Sahasrara Puja
 
 Cabella, Italië
+
 9 mei 2004
 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 02/05/2010
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 02/05/2010
 
 Vandaag is het een belangrijke dag in ons leven als Sahaja yogi's. Op deze dag werd de Sahasrara geopend, wat werkelijk een zeer inspirerende gebeurtenis was. Ik had nooit verwacht dat ik dit tijdens mijn leven zou kunnen bewerkstelligen, maar het is gebeurd, en nu is bij zovelen van jullie de Sahasrara geopend. Zonder dat zou je nooit hebben kunnen weten wat de waarheid is. Jullie zouden allemaal verloren zijn, zoals alle anderen.
 

@@ -1,11 +1,16 @@
 Shri Mataji Nirmala Devi
- 
+
 Publiek programma
+
 Hart tot Sahasrara chakra
 
 Derbyshire, Engeland
+
 11 juli 1982
-Engelse transcriptie: ISDP verified Nederlands: eindversie 24/08/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 24/08/2010
+
 Ik ben blij dat Dr. Warren jullie iets kon uitleggen over de chakra's waar ik jullie gisteren over vertelde, want in één korte lezing is het niet mogelijk aan al deze punten aandacht te besteden. En als je je zelfrealisatie krijgt en je goede vooruitgang boekt, dan kan je naar mijn opnames luisteren, waar er honderden van zijn, en je zult inzien dat de kennis zo onmetelijk is als een oceaan. Zoals ik jullie gisteren vertelde: wanneer je de verlichting krijgt, word je de kennis. Dit is een heel verwarrende bewering; mensen begrijpen niet wat het betekent om 'de kennis te worden'.
 
 Laatst kwam er een man bij mij en hij vertelde me: “Mijn guru heeft me de kennis al gegeven.”
@@ -294,8 +299,6 @@ Kun je je dat voorstellen? Ik ben zelf verrast, ook over al degenen die in de ve
 
 Laten we het nu doen. Richt nu je handen naar mij, alsjeblieft. Doe allemaal jullie schoenen uit. Je moet het zoekende (in je) hebben. Als je geen zoeken (in je) hebt, wat heeft het dan voor nut naar mijn programma te komen?
 
- 
-
 [1] chaitanya: vibraties, kracht van Gods liefde
 
 [2] bhoot: vorm van negativiteit; ziel van een overledene die nog sterk gehecht is aan het aardse leven
@@ -324,7 +327,7 @@ Laten we het nu doen. Richt nu je handen naar mij, alsjeblieft. Doe allemaal jul
 
 [14]  adharmisch: datgene dat tegen het dharma (het rechtschapen gedrag) ingaat
 
-[15]  spondylitis: de ziekte van Bechterew, ook wel spondylitis ankylopoëtica ('haken vormende ontsteking van de wervelkolom') of ankyloserende spondylitis genoemd.
+[15]  spondylitis: de ziekte van Bechterew, ook welspondylitis ankylopoëtica ('haken vormende ontsteking van de wervelkolom') of ankyloserende spondylitis genoemd.
 
 [16]  subplexus: bijknoop van een hoofdzenuwknoop of zenuwplexus in het ruggenmerg
 

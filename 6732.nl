@@ -1,6 +1,7 @@
 Nederlandse vertaling versie datum: 2023-0429
 
 Publiek programma, Brighton, Engeland
+
 30 maart 1980
 
 weer naar Brighton. Ik heb altijd het gevoel gehad dat er hier veel grote zielen zijn die oprecht op zoek zijn. En lang geleden wenste ik dat ik ooit naar hier zou kunnen komen om hen te ontmoeten, en ik ben zo blij om hier te zijn. Je hebt gehoord en geleerd en gelezen dat we niet dit lichaam zijn, dat we niet deze geest zijn, dat we niet dit ego of superego zijn, maar dit alles overstijgen is de Spirit, is de Atma, die de mens moet zoeken. Maar zelfs als je deze zaken niet gelezen hebt, beginnen sommigen van jullie, wanneer ze geboren worden, het gevoel te krijgen dat er iets is dat je moet zoeken. Je bent niet tevreden met wat je hebt. Je hebt een gevoel van ontoereikendheid, dat je nog niet voldaan bent, dat je je eigen betekenis nog niet gevonden hebt. Er is iets veel meer dat je moet krijgen. Dit gevoel is heel sterk en vandaag is het veel sterker dan het ooit geweest is. Wat zoeken we? Dat weten we niet. Eigenlijk is het zo dat je geen idee hebt wat je zoekt, want dat is een onbekend iets, dat is ons niet bekend. Maar je hebt het gevoel, een zeker gevoel, dat wat je hebt niet compleet is, niet bevredigd is. Het is niet vol van vreugde en gelukzaligheid. We beginnen ons af te vragen waarom we op deze aarde zijn.

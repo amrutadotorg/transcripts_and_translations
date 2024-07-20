@@ -1,7 +1,7 @@
 MEDITATIE - DE INDIVIDUELE REIS NAAR COLLECTIVITEIT EN ZEGENING. - 14.3.1983
 
 Translation not verified. Dear yogi, register as volunteer to do so.
- Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Nu hebben jullie allemaal wel beseft dat de vrede, de schoonheid en de glorie van ons wezen, binnenin ons ligt. Er is een oceaan van dat alles. We kunnen het niet buiten zoeken. We moeten naar "binnen" gaan - in wat men "de meditatieve staat" noemt, je zoekt het, je geniet ervan. Zoals wanneer je dorstig bent, ga je naar een rivier, of je gaat naar een oceaan en je probeert je dorst te lessen. Maar zelfs de oceaan kan je geen zoet water geven. Hoe kan dus iets wat buiten uitgespreid is, je die diepte geven die binnenin je ligt. Jullie proberen het daarbuiten te vinden, waar het niet ligt. Het is binnenin ons, absoluut binnenin ons. Het is zo eenvoudig, omdat het je eigendom is. Het ligt binnen je bereik - Gewoon daar. Wat je ook hebt gedaan. Er op uit gaan om de vreugde te vinden, de zogenaamde vreugde, het zogenaamde geluk, de zogenaamde glorie van wereldse krachten en wereldse bezittingen, je moet de hele zaak omdraaien. Je moet jezelf naar binnen toe projecteren. Het was niet verkeerd dat je je naar buiten richtte. Het was niet korrekt dat je je naar buiten richtte. Je moet geen spijt hebben van wat je tot nu toe deed. Het was niet de juiste manier om de echte vreugde van het leven te verkrijgen, de "echte glorie" van je wezen.
 

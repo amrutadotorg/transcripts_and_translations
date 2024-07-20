@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Shri Boeddha Puja
+
 ‘Wees zonder verlangens’
 
 Deinze, België
+
 4 augustus 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 25/03/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 25/03/2011
 
 Vandaag zijn we hier samengekomen om een puja te houden voor Boeddha. Zoals je weet was Boeddha een koningszoon. Op een dag was hij geschokt toen hij een heel arme man zag, een magere man die op straat liep, een heel ongelukkige man, en hij voelde zich daar erg bedroefd over. Vervolgens zag hij iemand die heel ziek was en op sterven lag. En daarna zag hij een man die overleden was en die door mensen naar de crematieplaats werd gedragen. Door dit alles raakte hij erg van streek, en hij begon erover na te denken en te zoeken naar de reden waarom deze dingen mensen overkomen. Om te beginnen vroeg hij zich af waarom ze zo arm of ziek worden, en waarom ze op zo'n ellendige manier sterven. De reden hiervoor ontdekte hij tijdens zijn zoektocht. Hij reisde de hele wereld rond, zou ik zeggen; hij las de Upanishaden[1], ging bij verschillende guru's in de leer, hij bezocht vele plaatsen waar spiritueel onderricht werd gegeven, zoals Benares, overal ging hij heen. En uiteindelijk, terwijl hij onder een banyanboom zat, bracht de Adi Shakti plotseling zijn Kundalini tot ontwaking en kreeg hij zijn realisatie. Toen besefte hij dat de oorzaak van al dit lijden het verlangen is.
 

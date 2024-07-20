@@ -1,8 +1,6 @@
 Shri Mataji Nirmala Devi
 
- 
 Shri Mahalakshmi Puja
- 
 
 Mechelen, België
 

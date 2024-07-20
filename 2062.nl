@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Bhoomi Dhara Puja
 
 Shudy Camps, Engeland
+
 3 augustus 1986
-Engelse transcriptie: ISDP verified Nederlands: eindversie 10/02/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 10/02/2011
 
 Vandaag zijn we hier samengekomen om een puja te houden ter ere van Moeder Aarde. We noemen het ook wel de Bhoomi Puja, de Shri Dhara Puja. Zij wordt ook wel Dhara genoemd. Zoals je weet betekent 'dha' 'ondersteunen'. 'Ra-dha' - degene die de energie ondersteunt is Radha. En Dhara, zij die zelf de ondersteuning is, zij ondersteunt ons. Wij leven op haar.
 

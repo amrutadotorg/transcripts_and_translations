@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Kerst Puja
 
 Hounslow, Engeland
+
 23 November 1984
-Engelse transcriptie: ISDP verified Nederlands: eindversie 04/09/2009
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 04/09/2009
 
 Gisteren was het een fijne dag voor iedereen, en ik zei iets van een ander niveau. We hebben de hele tijd gepraat over wereldse dingen en die dingen zijn soms heel... zijn zo belangrijk, denken we. Maar toen ik gisteren tegen jullie sprak, hoop ik dat jullie je allemaal realiseerden dat we nu een sprong moeten maken naar een andere dimensie, van een subtieler begrip van Sahaja Yoga.
 

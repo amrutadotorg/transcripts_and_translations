@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Mahaganesha Puja
 
 Ganapatipule, India
+
 1 januari 1986
-Engelse transcriptie: ISDP verified Nederlands: eindversie 03/09/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 03/09/2010
 
 Vandaag zijn we hier allen samengekomen om ons respect te betuigen aan Shri Ganesha.
 

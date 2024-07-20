@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
  Shri Krishna Puja
+
 ‘Shri Krishna & dharma’
 
  Cabbella Ligure, Italië
+
  15 augustus 1993
-Engelse transcriptie: ISDP verified Nederlands: eindversie 16/12/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 16/12/2011
 
 Vandaag zijn we hier samengekomen om Shri Krishna Puja te doen. We moeten goed begrijpen dat Shri Krishna een ontzettend belangrijke godheid is in ons, omdat hij de Vishnu[1] is, die in de Void verblijft, in de Nabhi. Hij is degene die het dharma in ons voortbrengt.
 

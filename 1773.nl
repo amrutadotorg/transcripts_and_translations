@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Shri Ganesha Puja
+
 Lezing over kuisheid
 
 Brighton, Engeland
+
 4 augustus 1985
-Engelse transcriptie: ISDP verified Nederlands: eindversie 02/12/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 02/12/2010
 
 Vandaag zijn we hier samengekomen bij de geschikte gelegenheid en op een zeer voorspoedige dag om Shri Ganesha te vereren. Shri Ganesha is de eerste godheid die geschapen werd, zodat het gehele universum gevuld werd met voorspoed, met vrede, gelukzaligheid en spiritualiteit. Hij is de bron. Hij is de bron van spiritualiteit. Daaruit volgt al het overige. Net zoals wanneer het regent en winderig is, je een koelte in de atmosfeer voelt. Op dezelfde manier, wanneer Shri Ganesha zijn kracht uitstraalt, voelen we deze drie dingen vanbinnen en vanbuiten. Maar het is zo betreurenswaardig, vooral in het Westen, dat de belangrijkste fundamentele godheid niet alleen volledig verwaarloosd is geworden, maar ook beledigd en gekruisigd.
 

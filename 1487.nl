@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Kartikeya Puja
 
 Grosshartpenning, Munchen
+
 West-Duitsland
+
 13 juli 1986
+
 Engelse transcriptie: ISDP verified
 Nederlands: eindversie 06/01/2009
 

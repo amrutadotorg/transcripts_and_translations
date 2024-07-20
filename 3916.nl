@@ -1,6 +1,5 @@
 Shri Mataji Nirmala Devi
 
- 
 Shri Bhairavanath Puja
 
 Garlate, Italië

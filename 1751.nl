@@ -1,6 +1,6 @@
 Shri Ganesha Puja. Cabella (Italië), 30 Augustus 1992.
 
-En Transcript Version Date 2015-1105 
+En Transcript Version Date 2015-1105
 Vertaling toegepast Versie 2016-0903
 
 De vorige keer hadden jullie me om de Gurupada gevraagd, en daarvoor moet je weten dat de essentie van een Guru Shri Ganesha is, de onschuld. Je zult het verhaal wel kennen van een zekere zeer toegewijde vrouw, een trouwe vrouw, een 'sati'. Haar naam was Anasuya, en ze was zo religieus en zo toegewijd dat het verhaal gaat dat de vrouwen van alle goden – Brahma, Vishnu en Mahesha – erg jaloers op haar werden. Dus zeiden ze hun mannen: “Jullie moeten haar testen, of zij werkelijk een kuise vrouw is of niet.” Dus gingen zij allemaal naar haar toe als sadhu's, gekleed als sanyasi's. En toen ze zei dat ze hen graag wilde bedienen en hen iets wilde geven, zeiden ze: “We willen eten.” Ze zei: “Goed, ga dan maar zitten,” en maakte eten voor hen klaar. Toen zeiden ze: “We zullen het eten enkel opeten als jij al je kleren uittrekt. We zullen het eten enkel opeten als je al je kleren uittrekt.” En zij vroeg: “Is dat zo?” Ze zeiden: “Ja.” Toen veranderde ze hen in heel kleine kinderen, drie kleine kinderen, en trok haar kleren uit, omdat de onschuldigen daar toch geen bijgedachten over hebben. En vervolgens verenigde ze hen; hun drievoudige onschuld werd verenigd, zodat ze hun Gurupada kregen. Zo werd de Adi Guru gecreëerd.

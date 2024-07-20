@@ -177,8 +177,6 @@ Dat is de reden waarom Ik mensen gedurende drie uren heb zien zitten mediteren. 
 
 Maar het is zo dat, als zij de subtiele dingen in Sahaja Yoga niet begrijpen, zij op zo’n rare, grove, gekke manier handelen dat er zelfs mensen geweest zijn die verklaarden en rondvertelden dat Sahaja Yoga iets is dat mensen gek maakt, dat zij zich op een rare manier beginnen te gedragen, dat ze rare zaken gaan doen en zo meer. Alle subtiele zaken in Sahaja Yoga moeten dus begrepen worden. Zo word je een deel van het geheel.
 
- 
-
 De subtiele zaken in Sahaja Yoga. Er zijn er velen die niet eens weten waar de chakra's op de voeten gelegen zijn. Zij weten niet hoe men zich in Sahaja Yoga moet gedragen om onze liefde maximaal uit de drukken. Er zijn zovele mogelijkheden om dingen te hanteren. Als je echt aanvaardt dat je een subtieler wezen moet zijn zal je verrast zijn, je zult begiftigd zijn met zo'n mogelijkheden dat je eender wanneer, eender hoeveel mensen aankan, van eender welke nationaliteit, je zal er alles over weten. Want subtiliteit wil zeggen dat je naar de essentie van alles gaat. Als je naar de essentie van alles gaat, begin je te zien wat op essentie gebouwd is. Het is heel makkelijk om met iemand om te gaan als je de essentie van alles ziet. Voor Sahaja Yoga is het dus belangrijk te weten dat de linker Vishuddhi het onderwerp vermijdt. Je ziet het niet onder ogen. In tweede instantie kan je niet tot het subtielere komen.
 
 Iets anders dat de linker Vishuddhi beschadigt, zijn natuurlijk, zoals je weet, drugs. Tabak is ook zeer slecht voor de linker Vishuddhi.

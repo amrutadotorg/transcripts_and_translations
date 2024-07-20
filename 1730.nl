@@ -1,5 +1,7 @@
 Shri Mataji Nirmala Devi
+
 Adi Shakti Puja
+
 ‘Respect voor Moeder Aarde’
 
 Cabella, Italië

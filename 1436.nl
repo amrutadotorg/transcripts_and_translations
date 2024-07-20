@@ -1,12 +1,16 @@
 Shri Mataji Nirmala Devi
 
 Adi Shakti Puja
+
 ‘De kracht van liefde’
 
 Cabella Ligure, Italië
 
 6 juni 1993
-Engelse transcriptie: Amruta verified Nederlands: eindversie 21/10/2014
+
+Engelse transcriptie: Amruta verified
+Nederlands: eindversie 21/10/2014
+
 Vandaag gaan we allemaal mij vereren, voor het eerst. Tot nu toe deden we altijd puja voor een aspect van mij, of een deel van mij. Nu moet je heel duidelijk weten wat Adi Shakti[1] is. We noemen haar ook wel het zuivere verlangen van God Almachtig, van Sadashiva. Maar wat is het zuivere verlangen van God Almachtig? Als je naar je eigen verlangens kijkt, waar komen die dan uit voort? Niet uit goddelijke liefde, maar uit vleselijke liefde, uit materiële liefde, uit machtsgerichte liefde. Achter al deze verlangens is liefde. Als je ergens niet van houdt, dan zul je er niet naar verlangen. Deze aardse vormen van liefde die jullie voelen - waar we zoveel van onze tijd aan besteden, zonder enig nut, geven je in werkelijkheid geen voldoening, want het is geen ware liefde die je voelt. Het is kalverliefde die slechts tijdelijk is, waarna je er weer genoeg van krijgt en overspringt naar iets anders, en dan weer iets anders, en daarna nog iets anders. Adi Shakti is dus de belichaming van Gods goddelijke liefde. Zij is Gods zuivere liefde, en waar verlangde hij in zijn liefde naar? Hij verlangde ernaar mensen te creëren, die heel gehoorzaam zouden zijn en volmaakt, zoals engelen. Dat was zijn idee: Adam en Eva scheppen.
 
 Engelen hebben dus geen vrijheid. Engelen zijn zo gemaakt. Ze zijn gebonden. Ze weten niet waarom ze de dingen doen die ze doen. Dieren weten ook niet waarom ze sommige dingen doen. Ze doen het gewoon, omdat ze gebonden zijn aan de natuur. Ze zijn gebonden aan God Almachtig. Men zegt dat Shiva pashupati is, dat wil zeggen dat hij alle dieren controleert; hij is pashupati. Hij controleert alle dieren, dus alle verlangens van de dieren zijn er wel, maar zij voelen geen berouw, ze hebben geen ego en ze hebben geen besef van 'dit is slecht' of 'dit is goed'. Ze hebben geen karmaprobleem, omdat ze geen ego hebben, doordat ze geen vrijheid hebben.

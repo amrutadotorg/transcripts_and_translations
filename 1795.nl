@@ -1,14 +1,16 @@
 Shri Mataji Nirmala Devi
 
- 
 Navaratri Puja
+
 ‘Vernietig de innerlijke demonen’
 
 Margate, Engeland
 
 8 oktober 1989
+
 Engelse transcriptie verified
- Nederlands: eindversie 07/10/2014
+Nederlands: eindversie 07/10/2014
+
 Er werd heel spontaan besloten dat we de Devi[1] Puja in Engeland moesten houden. En dit is ook echt de plaats waar de Devi Puja zou moeten plaatsvinden, want het is de verblijfplaats van Sadashiva, waar de Adi Shakti vereerd zou moeten worden.
 
 Vandaag moeten we begrijpen waarom we Devi Puja doen. Wat is de reden achter deze Devi Puja? Wat hebben wij eraan? Welke inhoud worden we verondersteld te bereiken in onszelf?

@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Adi Shakti Puja
 
 Cabella Ligure, Italië
+
 24 juni 2007
-Engelse transcriptie: ISDP verified Nederlands: eindversie 28/05/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 28/05/2011
 
 Het is fijn jullie hier allemaal terug te zien. Ik denk dat dit de eerste puja is die we op deze plaats houden* en ik hoop dat het voor iedereen aangenaam is en dat het gemakkelijk was voor jullie om naar hier te komen.
 

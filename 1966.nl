@@ -1,12 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Diwali Puja
+
 Mahalakshmi Puja
 
 Noida, India
+
 10 november 2007
 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 18/09/2010
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 18/09/2010
 
 Een gelukkige Diwali! Ik wens jullie allemaal een gelukkige Diwali!
 

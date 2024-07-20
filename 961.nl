@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Publiek programma 2
 
 Madras, India
+
 7 december 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 09/12/2009
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 09/12/2009
 
 Ik buig voor alle zoekers naar de waarheid.
 
@@ -64,13 +67,13 @@ Wanneer de Kundalini door je Agnya chakra gaat, word je gedachteloos bewust. Een
 
 Dus je beweegt je voort in drie stadia. De groei vindt dus alleen plaats wanneer je gedachteloos bewust bent. En dit kan zowel in de collectiviteit bereikt worden als in je meditatie, waar je niets voor hoeft te betalen. Sommige mensen geven een inleidende lezing gratis, en bij de tweede wordt het veel geld neertellen. Sahaja Yoga is zo niet. Al deze onzin bestaat niet in Sahaja Yoga. Het is de werkelijkheid, en de werkelijkheid kan niet gekocht worden. Eigenlijk kent God niets van bankzaken, hij kent geen geld. Hij begrijpt niets van geld. Hij heeft geld niet gemaakt: dit is onze zorg, niet de zijne. Als ik nu met het vliegtuig moet gaan, dan moet ik natuurlijk betalen, dat is in orde. Als ik een zaal moet hebben dan moet ik betalen; maar wel voor de zaal, niet voor God. Voor de bewustwording, voor de verlichting kan je geen enkel bedrag vragen. Ik hoorde zelfs dat mensen geld vragen voor darshan[21] - stel je voor. Voor hen is alles geld, geld, geld, geld, geld. Hoe kunnen ze ooit stijgen tot het niveau van de Spirit? En wij zijn zo eenvoudig, weet je, de bhakta's[22] zijn zo eenvoudig. "Oké, je wil vijf roepies, ik zal mijn ring verkopen en het je geven. Wil je dit, dan zal ik je dat geven."
 
-Er was een guru in Amerika die denk ik wel achtenveertig Rolls Royces had of zoiets, ik was de tel kwijt, en hij wilde er nog één meer. Dus hij vertelde zijn volgelingen: "Jullie zouden me op de één of andere manier nog een Rolls Royce moeten bezorgen, dan zal ik naar Engeland komen." Dus de arme stakkers leefden op aardappelen, hongerden zichzelf uit. Dus één van de Sahaja yogi's vroeg: "Wat doen jullie? Waarom wil hij een Rolls Royce? Welk belang heeft hij bij een Rolls Royce?" 
+Er was een guru in Amerika die denk ik wel achtenveertig Rolls Royces had of zoiets, ik was de tel kwijt, en hij wilde er nog één meer. Dus hij vertelde zijn volgelingen: "Jullie zouden me op de één of andere manier nog een Rolls Royce moeten bezorgen, dan zal ik naar Engeland komen." Dus de arme stakkers leefden op aardappelen, hongerden zichzelf uit. Dus één van de Sahaja yogi's vroeg: "Wat doen jullie? Waarom wil hij een Rolls Royce? Welk belang heeft hij bij een Rolls Royce?"
 
 Hij antwoordde: "Weet je, wij geven hem slechts het metaal, maar hij geeft ons de Spirit." Kan je je dit voorstellen? Metaal kan geruild worden voor de Spirit! Er moet wel een soort van bhoot of badha (negativiteit) zijn, waar hij hen mee opgezadeld heeft, en dat is in de Engelse taal een 'spirit'. De Engelse taal is heel gevaarlijk, want 'spirit' is wijn, 'spirit' is Atma en 'spirit' is een bhoot[23] - ik weet niet welke spirit ze bedoelen!
 
 Dus, om de relatie met God te vestigen, moeten we eerst en vooral de Spirit worden; enkel dan kan deze relatie gevestigd worden. Je kan jezelf verklaren tot "ik ben dit, ik ben dat", maar dit leidt nergens toe, het heeft geen zin; want dit menselijk lichaam werd je gegeven. Stel je voor wat deze goddelijke kracht gedaan moet hebben om je tot een mens te maken - hoe zacht, voorzichtig, prachtig werd je tot mens gemaakt. En waarom heb je nu dit menselijk lichaam? Waar gebruiken we het voor? We moeten het belang bepalen van ons menselijk leven, waarvoor dient het? Is het enkel voor verzekering, of ik weet niet wat ze nog allemaal doen; of is het voor iets anders, waarmee we het licht van de wereld worden?
 
-Dit licht van de Spirit verspreid zich in de aandacht, en de aandacht wordt dynamisch, actief, ze begint te werken, ze is heel alert en uitermate precies. Dan raakt deze aandacht totaal niet verveeld. Deze mensen kennen geen verveling, want deze verveling ontstaat wanneer je aandacht vermoeid raakt. Maar hier is de aandacht vol van licht, dus kennen ze geen verveling. 
+Dit licht van de Spirit verspreid zich in de aandacht, en de aandacht wordt dynamisch, actief, ze begint te werken, ze is heel alert en uitermate precies. Dan raakt deze aandacht totaal niet verveeld. Deze mensen kennen geen verveling, want deze verveling ontstaat wanneer je aandacht vermoeid raakt. Maar hier is de aandacht vol van licht, dus kennen ze geen verveling.
 
 Het tweede ding dat in de aard van de Spirit ligt, is dat hij je de waarheid vertelt, de absolute waarheid, niets dan de waarheid. Deze chaitanya lahiris vertelt je alles, wanneer je er rijp voor bent, eerder niet; wanneer je verbinding compleet is - als je voor de ene helft verbonden bent en voor de andere helft niet, dan niet - maar als je volgroeid bent: dat is de staat van nirvikalpa[24]. Als je dat wordt, dan is je aandacht volledig correct, je vibraties zijn correct en de communicatie is volledig correct, en de informatie die je krijgt is voor honderd procent de waarheid; dus je kent de waarheid over iedereen.
 
@@ -88,23 +91,23 @@ Hebben ze geen vragen meegebracht?
 
 Er zijn een paar mooie vragen die ik zal beantwoorden voordat ik jullie zelfrealisatie geef. Als je naar buiten wil gaan voor vijf minuten dan kan je gaan, en daarna kan je terugkomen. In de tussentijd zijn er vragen.
 
-Moeten we onze aandacht terwijl we mediteren op de top van ons hoofd concentreren? 
+Moeten we onze aandacht terwijl we mediteren op de top van ons hoofd concentreren?
 
 Je hoeft je helemaal nergens op te concentreren. Jij doet helemaal niets, het is de Kundalini die opstijgt. Dus jij hoeft het niet te doen. Vecht dus niet met je aandacht. Het zal gewoon - zij zal het oplossen. Ze kent haar taak. Dat is één punt.
 
-Hebben de Godheden zoals Shri Ganesha, Mahavishnu, enzovoort, de gestaltes zoals ze in onze geschriften worden voorgesteld? 
+Hebben de Godheden zoals Shri Ganesha, Mahavishnu, enzovoort, de gestaltes zoals ze in onze geschriften worden voorgesteld?
 
 Natuurlijk! Dat zijn de Godheden.
 
-Of staan ze voor een bepaalde staat van mystiek bewustzijn die bij de yogacentra horen? 
+Of staan ze voor een bepaalde staat van mystiek bewustzijn die bij de yogacentra horen?
 
 Natuurlijk is dat zo. Deze Godheden zijn er gewoon. Ganesha is net zoals Ganesha. Natuurlijk verschilt hij hier en daar wat van kleur - dat hangt er vanaf. Maar zijn staat van mystiek bewustzijn is verschillend van die van Vishnu, van die van Shiva. Hij doet zijn werk. Ze zijn allemaal de perfecte meesters van hun taken, maar ze bestaan in de vorm, echt volledig in de vorm waarin jullie hen kennen, zonder twijfel. Wat hebben we toch een grote zegening! Ik bedoel, stel je voor, ik moest over Ganesha spreken tegen deze mensen, die - ze kenden niet eens de letter 'G'! Is het niet gewoon...? Ze wisten er niets vanaf. En ze zijn Ganesha meester geworden. Vraag het hun nu, en ze zullen je over alle chakra's vertellen, alles. Al deze kennis is hier aanwezig, in ons land, al deze prachtige juwelen zijn hier aanwezig.
 
-Als we temidden van mensen zijn die niet bekend zijn met Sahaja Yoga, mogen we dan in gedachten de vorm van eerwaarde Mataji voorstellen, in plaats van haar foto voor ons te hebben? 
+Als we temidden van mensen zijn die niet bekend zijn met Sahaja Yoga, mogen we dan in gedachten de vorm van eerwaarde Mataji voorstellen, in plaats van haar foto voor ons te hebben?
 
 Natuurlijk mag dat. Ja, soms wordt mijn foto op heel vreemde plaatsen gebruikt, wat niet zo zou mogen zijn, het is niet volgens het protocol. Ze zou gebruikt moeten worden op een plaats waar je samen bent met mensen die Sahaja yogi's zijn, of in jullie huizen, thuis; je zou ze niet overal mogen gebruiken.
 
-Nu, dit is een gevaarlijke vraag! - Heeft niet-vegetarisch eten gevolgen voor de 'sadhana'[25]? Is vegetarisch eten beter? 
+Nu, dit is een gevaarlijke vraag! - Heeft niet-vegetarisch eten gevolgen voor de 'sadhana'[25]? Is vegetarisch eten beter?
 
 Als ik nu iets zeg dan zullen jullie kwaad worden! Maar ik zal het je zeggen. In Sahaja Yoga zou je geen vlees mogen eten van een dier dat groter is dan jijzelf. Als je een vegetariër bent, kan je vegetarisch zijn; als je geen vegetariër bent dan kan je niet-vegetarisch zijn. Maar het is afhankelijk van het soort persoonlijkheid dat je bent. Stel dat je een rechtse persoon bent, dan zou je beter vegetarisch zijn. Maar als je links bent, is het beter eiwitten te nemen. We hebben het dus nu over eiwitten en koolhydraten. Eender welke vorm van proteïnen. Nu eten wij Indiërs helemaal geen proteïnen. Afgezien van Idli (een Zuid-Indisch gerecht) denk ik niet dat we proteïnen eten. En we eten er ook rijst bij. Proteïnen moeten gegeten worden door Indiërs, dat is mijn mening, want we zijn zo zwak geworden. We zijn werkelijk zo bang van inkomstenbelasting, dit soort belasting, belastingen; en ook zijn we zo zwak, omdat we totaal smakeloos voedsel eten. We zouden dus voedzaam voedsel moeten eten, vooral proteïnen, in welke vorm dan ook. Maar geen dieren die groter zijn dan jij. Mensen eten bijvoorbeeld paarden - ik weet niet wat ze nog meer zullen doen, alles; ik denk zelfs olifant!
 
@@ -112,7 +115,7 @@ Er bestaat geen algemeen voorschrift voor iedereen. Je moet eten volgens je aard
 
 Er bestaat geen vast patroon in Sahaja Yoga. Het is een levend proces. Er bestaat geen vast patroon in een levend proces. Als de bloem het zelf wil, zal ze bloeien. Dus waarom zou je het jezelf moeilijk maken met al deze rituelen? Dit is ons probleem in de hindoereligie, hetzelfde geldt voor de christenen; ik bedoel, iedereen wedijvert met elkaar. God heeft deze wereld geschapen zodat wij ervan zouden genieten. Ik zeg het je, als je dit opgeeft dan zal je echt totaal ontspannen zijn. Vergeet het! Hoogstens vijf minuten 's morgens Sahaja Yoga meditatie, en tien minuten 's avonds voordat je gaat slapen - klaar. Daarvoor hebben we een centrum, je ontmoet hen daar - meer niet. De rest zal God voor je doen.
 
-Nu, dit is ook een goede vraag: Wat is de uiteindelijke realisatie in 'sadhana'? Hoe moet je verder gaan in die richting, nadat je in het begin de vibraties in je hoofd en handen gevoeld hebt? 
+Nu, dit is ook een goede vraag: Wat is de uiteindelijke realisatie in 'sadhana'? Hoe moet je verder gaan in die richting, nadat je in het begin de vibraties in je hoofd en handen gevoeld hebt?
 
 Dat is goed, dat wil zeggen dat je het gevoeld hebt, Mr. Subramaniam, en ik ben blij dit te vernemen. Maar ik zou zeggen dat je naar ons centrum moet komen om ermee verder te gaan. Maar wij spreken niet over de toekomst, we spreken over het heden. Langzaam maar zeker zal je verrast zijn hoe je oprijst, hoe je werkelijk alle krachten in jezelf verkrijgt. Je zal het zelf inzien, en je zal verbaasd zijn. Ik bedoel, het zal je verbazen, sommige mensen heb ik na een jaar opnieuw ontmoet - ik heb een heel goed geheugen, maar ik herkende hen amper.
 
@@ -120,13 +123,13 @@ Nu, deze man is hier, en hij heeft een persoonlijk probleem, de arme stakker. Hi
 
 Dan doen ze Hatha Yoga, dan nemen ze de Gayatri mantra: je wordt steeds rechtser. Zoek uit wat je nodig hebt. Voor iemand die rechts is, is het belangrijk om bhakti[28] te hebben. Zij die links zijn moeten dit hebben. Je moet jezelf in evenwicht brengen. En het zal je werkelijk zo'n vreugde geven. Anders, als er één of andere Hatha yogi is, probeer hem dan maar beter te ontlopen; God weet wanneer hij je een klap zal verkopen - net als Duruwasha. Het zijn heel gevaarlijke mensen. Ze weten niet wat liefde is, ze weten niet wat een moeder is. Ze spreken niet over liefde.
 
-Is zelfbewustzijn een voorwaarde voor het oefenen op de vooruitgang van het realiseren van de Kundalini Shakti? 
+Is zelfbewustzijn een voorwaarde voor het oefenen op de vooruitgang van het realiseren van de Kundalini Shakti?
 
 Nee. Na de realisatie word je zelfbewust. Je hebt hier niets voor nodig. Nu blijven mensen bijvoorbeeld maar zeggen: "Je hebt deze zonde begaan. Goed, betaal me zoveel geld en al je zonden zullen uitgewist worden." Ik zeg je, lever hem over aan de politie. Voor mij is niemand een zondaar, nee. Jullie zijn mijn kinderen. Niemand is een zondaar. Je hebt geen zonden begaan, geen verkeerde dingen, niets. Je hebt iets verkeerd opgevat, je bent in de duisternis terechtgekomen; of ik kan hoogstens zeggen dat je onwetend was. Maar ik hou er niet van om welk mens dan ook een zondaar te noemen, behalve dan als het rakshasa's[29] zijn. Natuurlijk zijn er rakshasa's, in dat geval zijn ze al gebrandmerkt, je hoeft het niet te zeggen, ze zijn er al.
 
 Dus dit zelfbewustzijn is wat je moet verkrijgen. We zijn niet zelfbewust. Door dit te doen kunnen we het niet worden. Als we zeggen: "Ik moet zelfbewust zijn. Nu moet ik zelfbewust zijn, ik moet me naar binnen keren." - wat gebruiken we dan? Ons ego. Het is een gebeurtenis. Als je die staat zal bereiken, die staat - niet de menselijke staat, maar de staat van een yogi - daar, in die staat heb je zelfbewustzijn, en respecteer je jezelf. Je hebt je eigenwaarde. Maar je schept hier niet mee op, je wordt geen goedkoop soort persoon.
 
-Hij zegt: "Moeder, ik ben pas geleden beginnen mediteren op de Sahaja manier, en ik voel me de hele tijd ongelofelijk fris en mooi. Hoewel, Moeder, om het heel nederig te zeggen, deze energie van onszelf zou zijn, heb ik deze energie nog nooit eerder gevoeld. Moeder, wil u alsjeblieft zo vriendelijk zijn ons te laten weten of we opnieuw verbonden zijn met God of met de hoofdbron, en of dat de reden is waarom we ons zo vol van energie voelen, in alle opzichten?" 
+Hij zegt: "Moeder, ik ben pas geleden beginnen mediteren op de Sahaja manier, en ik voel me de hele tijd ongelofelijk fris en mooi. Hoewel, Moeder, om het heel nederig te zeggen, deze energie van onszelf zou zijn, heb ik deze energie nog nooit eerder gevoeld. Moeder, wil u alsjeblieft zo vriendelijk zijn ons te laten weten of we opnieuw verbonden zijn met God of met de hoofdbron, en of dat de reden is waarom we ons zo vol van energie voelen, in alle opzichten?"
 
 Natuurlijk, je voelt dit omdat je opnieuw verbonden bent, geen twijfel daarover. Maar je voelt geen energie omdat je een heel goed mens moet zijn. Als er een belemmering is, alleen dan voel je een klein probleem. Het is als een zachte landing, je voelt het niet; als je een zachte landing krijgt in Sahaja Yoga, dan wil dat zeggen dat je een heel fijne persoon bent, een heel goed mens, een rechtschapen man. Je hebt gewoon een zachte landing, er is geen belemmering, niets. Je hebt geen onevenwichten, je bent in het midden, er is geen probleem. Maar als je problemen hebt, dan gaat de Kundalini een beetje naar beneden. En daarom voel je het niet. Zij die problemen hebben voelen wel soms een beetje pijn hier en daar. Maar als de Kundalini gewoon opstijgt, weet dan dat je rechtschapen bent, dat je goed bent.
 
@@ -134,23 +137,23 @@ Wordt de term 'God' gegeven als antwoord op alle onverklaarbare vragen als hun v
 
 Nee, nee, nee. In Sahaja Yoga wordt alles verklaard en kan alles pranama worden bewezen.
 
-Heeft iemand hem dan ooit gezien, gehoord, gevoeld of verwezenlijkt, zijn ultieme controle, deze meester, eigenaar, maker van beslissingen? 
+Heeft iemand hem dan ooit gezien, gehoord, gevoeld of verwezenlijkt, zijn ultieme controle, deze meester, eigenaar, maker van beslissingen?
 
 Natuurlijk! Zovelen, weet je dat niet? Er zijn er zovelen.
 
-Leeft de uiteindelijke autoriteit buiten elke mens, of verblijft het binnenin iedereen? 
+Leeft de uiteindelijke autoriteit buiten elke mens, of verblijft het binnenin iedereen?
 
 Hij is in iedereen weerspiegeld, maar de weerspiegeling kan niet het voorwerp zijn. Maar de weerspiegeling kan wel gelijk zijn aan het voorwerp, afhankelijk van de kwaliteit van de reflector.
 
-Als iemand de ultieme waarheid heeft verwezenlijkt, waarom stierf hij dan? 
+Als iemand de ultieme waarheid heeft verwezenlijkt, waarom stierf hij dan?
 
 Dit zijn grote, heel grote onderwerpen waarover hij vragen gesteld heeft. Zie je, ik denk dat de man die mij deze vraag stelt, ik zou hem eerst en vooral willen vragen zijn realisatie te krijgen. Hij is een behoorlijk verwarde man. Kijk nu gewoon: "Wat is God? Wat is de dood?" Wat ben jij? Zoek dat maar eerst uit. Wie stelt mij deze vraag? Vraagt hij het vanuit een centrum? O mijn God! Het is interessant, hè, dat hij deze vragen allemaal vanuit een centrum stelt. Dat wil zeggen dat hij teveel denkt, en denkt, en denkt.
 
-Is het verkeerd te zeggen dat God in het goede verblijft? 
+Is het verkeerd te zeggen dat God in het goede verblijft?
 
 Ik denk dat hij teveel gelezen heeft, dat is het probleem. Leer eerst de werkelijkheid kennen, mijn kind, en dan zullen al deze vragen verdwijnen - nirvikalpa. Nu spreekt hij over het ideale welzijn, enzovoort.
 
-Het is absoluut waar dat de mens slechts één keer leeft... 
+Het is absoluut waar dat de mens slechts één keer leeft...
 
 Dit is niet waar. Wie heeft je dat verteld? Dat is niet zo. Maar als je daarin gelooft dan kan ik daar niets aan doen, maar het is niet zo. En goed en rechtschapen zijn is niet het einde van je zoektocht. Dharma is de balans, het geeft je de balans. Maar de balans waarvoor, dharma waarvoor? We moeten ons deze vraag stellen. Waarom moeten we dharmisch zijn; waarom zou je niet adharmisch[30] zijn? Waarom stel je niet zo'n vraag? Het is logisch. Waarom zou je al dit dharma, dharma, dharma volgen? Omdat je je moet verheffen. Als een vliegtuig bijvoorbeeld niet in balans is, hoe zal het dan opstijgen? Maar stel dat het wel in balans is, maar nooit opstijgt, wat heeft het dan voor zin een vliegtuig te maken?
 
@@ -178,7 +181,7 @@ Dus rechtschapenheid alleen is niet voldoende. Je moet verder gaan dan dat.
 
 Iemand heeft geschreven over zijn vriend die een probleem heeft, die gevallen is, een ongeluk gehad heeft. Hij zou de Sahaja yogi's moeten vragen hem te helpen. Tegenwoordig genees ik de mensen niet, omdat het niet nodig is; ik doe alle andere onzinnige dingen. Het genezen wordt vandaag de dag door Sahaja yogi's gedaan. Er zijn zoveel andere zaken waar ik op moet letten. Dus vraag maar iemand te hulp, ze zullen heel hulpvaardig zijn en ze zullen het doen.
 
-Ah, dit is een goede vraag - Is het mogelijk zij die lijden en de armen te genezen met deze Sahaja Yoga? Kunnen we van onze armoede af komen? 
+Ah, dit is een goede vraag - Is het mogelijk zij die lijden en de armen te genezen met deze Sahaja Yoga? Kunnen we van onze armoede af komen?
 
 We kunnen dit - alleszins, als je eerst stopt met vasten. Wil je vasten? "Goed," zegt God, "Oké, doe maar. Je zal geen eten krijgen." Klaar! Je wens zal in vervulling gaan. Wil je als een sanyasi[34] worden? Wil je gescheurde kleren dragen? Goed, hier heb je je armoede. Je wil armoede, uiteindelijk heb je erom gevraagd. Dan, wil je lijden? "We moeten lijden." Er zijn zoveel onzinnige dingen aan de hand, zoals: "Je moet lijden". Hoe dan? "Ik moet lijden" - goed, als je dat wil, geniet er dan maar van. Als je om voorspoed vraagt, zal je dit krijgen, na de Kundalini-ontwaking. Je ziet het centrum hier, dat de Nabhi chakra genoemd wordt, en degene die daar zit is Lakshmi Narayana. Eenmaal Lakshmi Narayana in jou ontwaakt is, hoe kan je dan arm zijn?
 
@@ -186,23 +189,23 @@ Maar geld brengt ook weer zijn eigen problemen met zich mee. Je krijgt rijkdom, 
 
 Dus de Lakshmi chit[35] zal deze kant uit komen, denk ik. Er komt wat verstand in onze regering, en ik ben er zeker van dat het opgelost zal worden - ik hoop het. Maar kom naar Sahaja Yoga en je zal verrast zijn. In Engeland hebben we bijvoorbeeld zoveel werkloosheid, maar niet één Sahaja yogi is werkloos, niet één. Met deze man hebben we er al minstens één... hij zal naar Sahaja Yoga komen, om te beginnen.
 
-Moeder, is Sahaja Yoga enkel voor gezondheid en vreugde, of is het meer dan dat? 
+Moeder, is Sahaja Yoga enkel voor gezondheid en vreugde, of is het meer dan dat?
 
 Alles - in zijn totaliteit. Wat wil je? Vraag erom, verlang ernaar - alles.
 
 Hij zegt dat het hem niet uitgelegd werd. Zie je, ik zal je nu meteen de realisatie geven, je zal zien hoe de chakra's zich openen en dergelijke. Maar als je later naar het centrum gaat dan kan je alles te weten komen, in één jaar tijd zullen jullie allemaal meesters zijn. Maar geef jezelf wat tijd, daar gaat het om. Mensen zijn erg druk bezig vandaag de dag. Wat doen jullie? Enkele vrouwen vertelden me dat ze heel druk bezig zijn met 'kitty parties'! Er zijn hier heel weinig vrouwen, in Madras; alle vrouwen zullen wel in de tempel zitten, terwijl ze hun haar afknippen, scheren. Zelfs heel goed opgeleide vrouwen doen dit. Ik bedoel, waarom, waarom zouden we ons hoofd scheren? God heeft veel haar - je hoeft het niet af te knippen. Al deze onzin! Vrouwen kunnen meer shakti shali zijn dan mannen, maar deze conditionering van de vrouwen van India - God weet waarom.
 
-Goed. Dus nu zijn we... Hij zegt: "Ik heb pranayama[36] beoefend voor vier jaar. Ik heb geen leraar..." 
+Goed. Dus nu zijn we... Hij zegt: "Ik heb pranayama[36] beoefend voor vier jaar. Ik heb geen leraar..."
 
 Dit is heel gevaarlijk. Als je geen leraar hebt, of je nu een leraar hebt of niet, pranayama is heel gevaarlijk. Ha! Als je een probleem hebt met je longen, of om een andere specifieke reden... Zie je, al deze vyayama's (oefeningen), werden gegeven voor een specifieke reden, voor specifieke chakra's. Als nu de Kundalini opstijgt; stel dat ze ter hoogte van je maag stopt, de Nabhi, en als je dan pranayama doet, wat is het nut daarvan? Je zou moeten weten waar de Kundalini zich bevindt. Ik kwam vandaag bijvoorbeeld met de auto. Nu hielden ze me op een bepaald punt tegen, en daarna op een tweede punt. Toen de auto begon te rijden, wist alleen ik wanneer hij zou stoppen. Hoe kan ik dit van tevoren doen? Op dezelfde manier, als de Kundalini opstijgt - gebruik je hersenen! - en als ze op een bepaald punt stopt, dan moet je weten door welke vyayama je dit kan oplossen. Het is heel wetenschappelijk. Wij gebruiken het ook, maar niet door alle medicijnen uit de medicijnkast te nemen, van 's ochtends tot 's avonds. En daarom zeggen ze dat ze problemen ontwikkelen - dat is zo. Bij jou zal dat ook gebeuren, zeer binnenkort.
 
 Het is iets heel gevaarlijks. Zie je, in werkelijkheid zijn we niet enkel een lichamelijk wezen. We leven niet alleen op prana[37] - dat is waar. Ik heb mensen gezien die pranayama beoefenen, als ze getrouwd zijn - godzijdank ben je niet getrouwd - dan scheiden ze van hun vrouwen, omdat er geen liefde is. Het zijn heel droge mensen, uitermate uitgedroogd; er is geen poëzie in hun leven. Goed, je zou beter wat mooie poëzie beginnen te lezen!
 
-Nu, hij zegt hier: "Kan u ons alsjeblieft vertellen wat rechts is en wat links?" 
+Nu, hij zegt hier: "Kan u ons alsjeblieft vertellen wat rechts is en wat links?"
 
 Dit is een vrij lang verhaal, maar als je naar Sahaja Yoga komt zullen ze het je uitleggen. Rechts is lichamelijke en emotionele energie, te gebruiken voor lichamelijk en - sorry, lichamelijk en mentaal werk. Links is de energie voor emoties. Als hij nu bijvoorbeeld pranayama doet. Als hij dat doet, dan zal hij rechts worden - alleen als je dat doet.
 
-Als de Kundalini in haar ontwakingsproces is, voel je dan angst? 
+Als de Kundalini in haar ontwakingsproces is, voel je dan angst?
 
 Nee, dat gebeurt niet. Zij is je Moeder. Zij zal alle problemen verdragen. Toen je geboren werd, verdroeg je moeder alle problemen, alle weeën. Zij bezorgde je geen last, of wel? Zij, het arme ding, leed voor jou. En eenmaal je geboren bent vergeet ze alles: "Dat is - mijn kind is nu geboren, klaar. Wat voorbij is, is voorbij." Dat is de Kundalini. Waarom zou je angst hebben? Dit komt door mensen die je vertellen dat de Kundalini-ontwaking heel gevaarlijk is en dergelijke, omdat ze er niets over weten. Ze willen niet dat je je realisatie krijgt.
 
@@ -218,7 +221,7 @@ Ik denk dat alle Sahaja yogi's van het Westen naar buiten moeten gaan - de tijd 
 
 Kijk naar hen! Dit alles is de Atma! Hoe ze jullie muziek appreciëren, en hoe ze jullie Kuchipudi dans appreciëren, dat is verbazingwekkend - nog veel meer dan dat jullie het appreciëren. Want onze muziek komt van de Omkara[38]. Het zal bewezen worden, Brahman. We zouden trots moeten zijn op het feit dat we Indiërs zijn. Onze cultuur is de hoogste cultuur in de hele wereld. We moeten onze cultuur respecteren en bewaren. Vraag het hen, zij zullen je tonen, zij zullen je vertellen wat ze gevonden hebben in Sahaja Yoga.
 
-Een vraag over 'moksha[39]'. 
+Een vraag over 'moksha[39]'.
 
 Is dit alleen moksha? Natuurlijk! Dit is wat moksha is. Moksha wil zeggen wanneer je boven je lichamelijke, mentale en emotionele wezen uit stijgt; je bent er niet langer bij betrokken. Dat is de moksha. En door deze niet-betrokkenheid, worden al je lichamelijke, mentale en emotionele wezens opgelost. Je wordt dat, je wordt de tattwa, tattwamasi, je wordt de tattwa. Aham Brahmasmi - je wordt de Brahma[40]. Het is overal om ons heen - dit is Brahma. Maar zelfs als je dit wordt geloof je er niet in, dit zeg ik je opnieuw. Ik bedoel, ik weet niet wat er gebeurt, maar ze geloven niet dat ze het zijn.
 

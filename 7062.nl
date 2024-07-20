@@ -103,8 +103,6 @@ Ik hoop, ik hoop telkens weer dat jullie na deze Virata Puja allemaal op het ton
 
 Moge God jullie allemaal zegenen.
 
- 
-
 [1]  Virata: het grote Kosmische Lichaam; manifestatie van God
 
 Viratangana: de kracht van de Virata in de hersenen

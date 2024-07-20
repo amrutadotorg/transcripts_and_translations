@@ -1,6 +1,7 @@
 Shri Mataji Nirmala Devi
 
 Adi Shakti Puja
+
 ‘Ontwikkel je nederigheid’
 
 Cabella Ligure, Italië

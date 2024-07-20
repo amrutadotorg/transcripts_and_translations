@@ -16,8 +16,6 @@ Hij wekte zichzelf uit de dood omdat Hij een goddelijk persoon was.
 
 En zo krijgen ook wij een nieuwe geboorte omdat we gezegend worden door het goddelijke. Nu wordt ons verstand, dat zich tussenin bevindt, gecontroleerd door Shri Jezus Christus. Doorheen jullie Agnya controleert Hij de twee kanten: hij controleert jullie conditioneringen en jullie ego, en Hij brengt jullie in evenwicht.
 
- 
-
 Maar wanneer deze Agnya chakra allerlei ideeën begint te spuien, soms reagerend, soms conditioneringen accepterend, is het een slaaf, en is het niet vrij meer omdat het onder invloed staat van jullie ego en superego. En dat betekent de dood van ons bewustzijn.
 
 We kunnen niet begrijpen dat er iets bestaat dat overstijgt. We kunnen niet begrijpen dat er een leven bestaat voorbij datgene dat we nu kennen. Dat wil zeggen: nu kunnen we allemaal begrijpen dat we in een toestand leefden die ten einde liep. We voelden ons slecht, we voelden ons ongerust, we waren aan het vechten, en we dachten allemaal dat er iets misging met ons huidige leven. Er is zeer zeker iets dat ons tot slaaf maakt, iets waardoor we slaafs worden. Zoveel hebben we ons ongetwijfeld gerealiseerd, en we begonnen de waarheid te zoeken, we begonnen de waarheid te zoeken op zoveel verschillende manieren.

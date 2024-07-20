@@ -1,10 +1,18 @@
 Shri Mataji Nirmala Devi
+
 Paas Puja
+
 Onthechting
+
 Temple of all Faiths, Londen
+
 22 april 1984
-Engelse transcriptie: IBP reviewed Nederlands: eindversie 07/05/2013
+
+Engelse transcriptie: IBP reviewed
+Nederlands: eindversie 07/05/2013
+
 Nederlandse vertaling versie datum 2022-0918
+
 Vandaag vieren we de verrijzenis van Christus. Tegelijkertijd moeten we de verrijzenis van de mensen vieren, van Sahaja yogi's die als gerealiseerde zielen verrezen zijn. We moeten zo begrijpen dat we daarmee een nieuw bewustzijn betreden. Voor Christus was het niet nodig om in een nieuw bewustzijn binnen te treden. Hij moest afdalen en deze wereld weer laten zien dat je het eeuwige leven bent, dat je een leven leidt dat spiritueel is, dat nooit vergaat. Je moet opstijgen in dat nieuwe domein, dat het domein van God Almachtig is, dat je het Koninkrijk van God noemt. En hij zei heel duidelijk tegen Nicodemus: "Je moet opnieuw geboren worden" toen deze vroeg: "Moet ik terugkeren in de schoot van mijn moeder om herboren te worden?" En hij zei het zo duidelijk! Het is zo duidelijk. Zij die het niet willen zien, kunnen blind blijven, maar hij zei heel duidelijk dat: "Neen, het is zo dat wat uit het vlees geboren is, het vlees is, maar wat uit de Spirit[1] is geboren, is de Spirit." Ik bedoel, het kon niet duidelijker zijn dan dat: het moet 'uit de Spirit' geboren worden.
 
 Natuurlijk hebben mensen een speciale aanleg om alles te verdraaien. Voor hen kan de Spirit een boek zijn, een paar woorden, een organisatie, een kerk of iets dat ze zelf gemaakt hebben. Maar alles wat door de mens gemaakt is, is niet de Spirit. Dit is de duidelijke verklaring van Christus, die mensen uit de weg wilden gaan om hun eigen organisaties te beginnen, hun eigen ideeën te volgen en zo in zijn naam iets zeer mythisch creëerden. En nu is de tijd gekomen om dit bekend te maken. Het heeft nu al duizenden jaren geduurd, zoveel onschuldige mensen gevangen gehouden en mensen zitten erin vast. Maar wanneer jullie verrezen zijn en gerealiseerde zielen worden, dan moeten jullie begrijpen dat jullie beweging nu naar binnen gericht is, je beweegt naar je wortels toe en niet naar buiten. Wat ook je streven was voor de realisatie, het moet veranderen, de richting moet veranderen. En dat punt missen we meestal.

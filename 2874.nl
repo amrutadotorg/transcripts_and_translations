@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Bhavasagara Puja
 
 6 april 1991
+
 Brisbane, Australië
-Engelse transcriptie: ISDP verified Nederlands: eindversie 26/09/2012
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 26/09/2012
 
 Dit is de eerste keer dat we een puja houden in Brisbane, en ik ben blij dat er zoveel van jullie hierheen zijn gekomen vanuit verschillende plaatsen.
 

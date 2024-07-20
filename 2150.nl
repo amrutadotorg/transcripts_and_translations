@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Puja in Brahmapuri
 
 Brahmapuri, India
+
 27 december 1985
-Engelse transcriptie: ISDP verified Nederlands: eindversie 16/07/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 16/07/2010
 
 Tekst vertaald uit het Marathi staat tussen [* *]
 

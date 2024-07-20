@@ -1,7 +1,7 @@
 RAKSHA-BANDHAN EN MARYADAS VOOR SAHAJA YOGIS. - Hounslow. London - 11 augustus 1984
 
 Translation not verified. Dear yogi, register as volunteer to do so.
- Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Vandaag is het de grote dag van RAKSHABANDHAN. Daarom zai ik jullie iets vertellen over RAKSHABANDHAN. Eerst moeten we echter spreken over MARYADAS/ (grenzen van zuivere verwantschap) die door SAHAJA YOGIS nageleefd moeten worden.
 

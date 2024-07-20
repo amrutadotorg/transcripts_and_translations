@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Shri Raja Rajeshwari Puja
+
 ‘We geloven in alle religies en in de verbondenheid van alle godheden’
 
 Madras, India
+
 6 december 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 25/11/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 25/11/2011
 
 Vandaag vieren we Shri Ganesha Puja, gevolgd door Raja Rajeshwari. Men heeft de Godin zoveel namen gegeven, vooral Adi Shankaracharya[1], die haar Raja Rajeshwari noemde; dat betekent dat zij de Koningin der Koninginnen is. In het Westen gebruikte men deze beschrijving ook voor Moeder Maria. Deze ideeën zijn afkomstig van de oude religie, zoals ik jullie al eerder heb verteld; ze zijn niet afkomstig van de beschrijving van Moeder Maria in de Bijbel. Dat toont aan dat er vele wijzigingen zijn aangebracht in de geschriften van de heilige Bijbel. En er zijn ook veel wijzigingen aangebracht in de Indiase geschriften, zelfs in de Gita[2]. Zo begon de ontsporing in elke religie. En de intellectuelen hebben hiervan geprofiteerd om hun eigen ideeën hierover te projecteren, om dingen te zeggen en te schrijven die absoluut tegen de goddelijke kracht in gingen.
 

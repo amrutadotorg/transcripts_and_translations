@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Vishnumaya Puja
 
 Wimbledon, London, Engeland
+
 1 september 1985
-Engelse transcriptie: ISDP verified Nederlands: eindversie 20/05/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 20/05/2010
 
 De puja van vandaag voor Vishnumaya, die de zus was van Shri Krishna, was niet gepland in de internationale puja's die we houden. Maar men zegt dat wanneer voor de liefde van God alle volgelingen samenkomen, zelfs God vele regels moet overtreden, en zo werd aanvaard deze puja te houden. Het moet minstens één keer gebeuren, vind ik, het was een goed idee. Door jullie liefde en jullie toewijding werd dit verlangd, en daarom zal deze puja gehouden worden.
 
@@ -138,7 +141,7 @@ Neem nu de namen, honderd en acht namen in één keer, want dat zijn in werkel
 
 Hard. Wrijf maar hard. Goed.
 
-[Yogi:“Shri Mata. Om twameva sakshat, Shri Mata namaha...”] 
+[Yogi:“Shri Mata. Om twameva sakshat, Shri Mata namaha...”]
 
 Nee, nee. Je moet mijn naam nemen, Gavin, anders stromen de vibraties niet. Je moet het volledig zeggen - wat kan ik anders doen, want dat is de limiet.
 
@@ -152,7 +155,7 @@ Heel erg bedankt. Het is goed, wrijf je handen maar zo. Alle handen worden rood.
 
 Doe het met je hart, want wat er gebeurt, is dat het allemaal mentaal is. Doe het met je hart. Jullie, wat jullie zeggen, zeggen jullie tegen mij; ik zit voor jullie - fortuinlijke mensen! Doe het met jullie hart, dan alleen zal het - open je hart, en doe het met je hart. Kom maar! Zonder je schuldig te voelen, dat is heel belangrijk.
 
-[ Aarti] [ de yogi’s reciteren “Om Nama Shivaya.”] 
+[ Aarti] [ de yogi’s reciteren “Om Nama Shivaya.”]
 
 De sari van Vishnumaya is heel mooi. Hij laat twee soorten bloemen zien en de lichtjes er tussenin. Dit is Frans. Het is van heel groot belang. Een Franse sari voor Vishnumaya. Zeg gewoon ' Vishnumaya' - dat is alles. Vandaag is het niet de puja van Shiva, en hoe kan je zijn naam nemen zonder zijn puja? Zeg gewoon Vishnumaya: "Twameva Sakshat Shri Vishnumaya..."
 

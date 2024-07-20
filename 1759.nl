@@ -1,10 +1,13 @@
 Shri Mataji Nirmala Devi
- 
+
 Shri Adi Kundalini Puja
 
 Cabella, Italië
+
 21 juni 1992
-Engelse transcriptie: ISDP verified Nederlands: eindversie 24/07/2009
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 24/07/2009
 
 Vandaag zijn we hier samengekomen om de Adi Kundalini te vereren en je eigen Kundalini, beide, want je Kundalini is de weerspiegeling van de Adi Kundalini. We hebben veel begrepen over de Kundalini en we weten ook dat we alleen door haar ontwaking, alleen door haar opstijgen, opgeklommen zijn naar een hoger niveau van bewustzijn. Niet alleen zijn we gestegen naar een veel hoger niveau van bewustzijn, maar het heeft ons zoveel krachten geschonken; nooit eerder in de geschiedenis van de spiritualiteit had de mens deze kracht van Kundalini-ontwaking.
 

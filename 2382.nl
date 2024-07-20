@@ -1,7 +1,7 @@
 Nieuwjaars Puja Kalwe (India) 31 december 2001
 
 Translation not verified. Dear yogi, register as volunteer to do so.
-Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen. 
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 (Korte inhoud van Moeders lezing in Hindi.)
 
@@ -14,8 +14,6 @@ Als Sahaja yogi’s zouden wij ons op een deftige, keurige en volledige wijze mo
 Shri Mataji vroeg aan alle Sahaja yogi’s te beloven dat ze tijdens dit nieuwe jaar de hoogste prioriteit aan Sahaja Yoga zouden geven en aan niets anders. Het Sahaj werk en de verspreiding van SahajaYoga zijn bijzonder belangrijk en eenieder van ons zou deze goddelijke verantwoordelijkheid vanaf het begin van het nieuwe jaar op zich moeten nemen. Dat is de beste manier om onze Moeder plezier te doen. De periode van discussiëren en plannen maken is voorbij en nu is het tijd om alles op een praktische en collectieve manier tot een goed einde te brengen.
 
 Moeder zegde zeer duidelijk dat het bijwonen van seminaries en zelfs haar puja’s niet opweegt tegen het verspreiden van de boodschap van Sahaja Yoga en het geven van realisatie. Zij voegde daar aan toe dat Zij bij die yogi’s aanwezig is die het sahaj werk doen en de boodschap van Sahaja Yoga verspreiden en niet bij hen die thuis zitten te mediteren, naar de collectiviteit of naar haar puja’s komen en daarna vertrekken. Met hen heeft Zij niets te maken.
-
- 
 
 (Tweede deel van de lezing van Shri Mataji in het Engels.)
 

@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Publiek programma
 
 Genève, Zwitserland
+
 11 juni 1985
-Engelse transcriptie: ISDP verified Nederlands: eindversie 07/10/2010
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 07/10/2010
 
 Ik buig voor alle zoekers naar de waarheid. Maar de waarheid heeft twee kanten: de illusie die we zien, kan lijken op de waarheid, en de essentie van de illusie kan er ook uitzien als waarheid. Maar de andere kant is absoluut en moet gevoeld worden, moet ervaren worden op je centraal zenuwstelsel. Het is geen mentale projectie die we ons kunnen voorstellen, en ook geen emotionele voorstelling, maar de waarheid is wat het is, het kan niet veranderd worden. Het kan geen compromis sluiten. We moeten onszelf nederig maken om de waarheid te leren kennen. Nu hebben we in de wetenschap zoveel dingen ontdekt door nederigheid, die we tot dan toe nog niet wisten. Alles wat aan de buitenkant gekend is, zoals de boom, moet wortels hebben, en deze wortels kunnen niet gekend worden door alleen naar de boom te kijken. En als iemand spreekt over de wortels dan worden we door elkaar geschud, omdat we er eerder nog geen kennis over bezaten. We zijn dus geconditioneerd om alleen de boom te zien, en we kunnen ons verstand niet doen inzien dat hij dan ook wortels moet hebben.
 
@@ -72,12 +75,11 @@ Ik hoop dat jullie vandaag allemaal jullie realisatie zullen ontvangen. En wanne
 
 Moge God jullie allemaal zegenen.
 
- 
 DEEL 2
 
 Willen jullie me nog enkele vragen stellen? Goed. Laat ons nu overgaan tot de ervaring.
 
-Vraag: Hoe bescherm je jezelf tegen iemand waarvan je voelt dat er iets in zijn chakra's niet helemaal in orde is? 
+Vraag: Hoe bescherm je jezelf tegen iemand waarvan je voelt dat er iets in zijn chakra's niet helemaal in orde is?
 
 Een probleem met het ego. Ah, oké. Dat is wat je moet leren. Voor je zelfrealisatie raak je ook geblokkeerd door anderen, maar dan voel je het niet. Maar na je zelfrealisatie voel je het, maar slechts tijdelijk, net zoals een indicator. Je moet dus leren hoe je jezelf moet beschermen, en als je naar ons centrum komt zullen ze je alles uitgebreid uitleggen.
 

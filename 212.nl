@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Sahasraradag Puja
+
 ‘Het werk van Mahamaya’
 
 Cabella Ligure, Italië
+
 8 mei 1994
-Engelse transcriptie: ISDP verified Nederlands: eindversie 11/04/2013
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 11/04/2013
 
 Vandaag hebben we een unieke combinatie van Moederdag in verschillende landen en Sahasrara dag voor de Sahaja yogi's. Ik vind dat dit de belangrijkste dag is in de geschiedenis van de menselijke evolutie, want alle andere gebeurtenissen, incarnaties en ondernemingen in de spirituele atmosfeer hebben nergens toe geleid. Integendeel, ze zijn zelfs in een bepaald soort cocon zonder deur(opening) beland, waar ze tegen de muren beuken en problemen creëren uit iets dat zo zuiver is en zo onwaarschijnlijk mooi op spiritueel vlak. Het is onmogelijk fouten te vinden bij de incarnaties uit wiens naam alle religies ontstonden. Maar als je het mij vraagt is deze cocon de mahamaya[1]. Deze cocon is niets anders dan onwetendheid. We kunnen zeggen dat maya[2], Mahamaya[3] het niet creëert. Deze cocon werd gecreëerd door de fundamentele onwetendheid van de mensen, en door hun misidentificaties.
 

@@ -1,7 +1,7 @@
 Publiek Programma - Alles is zo mooi gemaakt - Hampstead, UK - 22/04/1982
 
 Translation not verified. Dear yogi, register as volunteer to do so.
- Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Om dus door te gaan met hetzelfde onderwerp: over de infrastructuur van het menselijke wezen, waarvan Ik jullie verteld heb en dat God deze infrastructuur erg mooi gemaakt heeft.  Zelfs als je iets anders ziet dat leeft. bijvoorbeeld een boom, als je naar deze boom kijkt, zal je verbaasd zijn hoe de verschillende kanalen die het sap naar boven brengen zo mooi geplaatst zijn, dat het water geen probleem heeft om op te stijgen.
 

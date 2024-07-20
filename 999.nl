@@ -1,15 +1,21 @@
 Shri Mataji Nirmala Devi
 
 Publiek programma
+
 Het subtiele systeem
+
 ‘Verwarring – de subtiele slavernij’
+
 Birmingham, England
 
 9 juli 1982
-Engelse transcriptie: ISDP verified Nederlands: eindversie 02/03/2012
- 
 
-We moeten beseffen dat deze moderne tijden de tijden zijn van verwarring. Je weet niet wat je wilt. Je weet niet wat je wilt vragen. Je weet niet of wat je doet juist of fout is. Verwarring is noodzakelijk. Zonder verwarring, zijn we niet vertwijfeld. Zonder vertwijfeling zullen we niet zoeken. Maar verwarring is enkel [video begint hier] zichtbaar wanneer een persoon een bepaald bewustzijnsgebied bereikt,... of we kunnen zeggen een graad van bewustzijn.
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 02/03/2012
+
+We moeten beseffen dat deze moderne tijden de tijden zijn van verwarring. Je weet niet wat je wilt. Je weet niet wat je wilt vragen. Je weet niet of wat je doet juist of fout is. Verwarring is noodzakelijk. Zonder verwarring, zijn we niet vertwijfeld. Zonder vertwijfeling zullen we niet zoeken. Maar verwarring is enkel
+
+zichtbaar wanneer een persoon een bepaald bewustzijnsgebied bereikt,... of we kunnen zeggen een graad van bewustzijn.
 
 Bijvoorbeeld, op het moment dat Mozes op deze aarde kwam, was er een ander soort wanhoop: ze wilden uit de slavernij geraken. Ze hadden een andere stijl van begrijpen. Hoe men een maatschappij volgens een bepaald model organiseert zodat men een maximum aan efficiëntie uit deze maatschappij haalt. En het was een noodsituatie. Het was een zeer hachelijke positie voor de Joden in die tijd.
 

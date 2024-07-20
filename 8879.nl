@@ -1,5 +1,4 @@
 2deNacht van Navaratri
- 
 
 13 oktober 2007, Sydney, Australië
 
@@ -38,7 +37,7 @@ Australië is werkelijk geweldig, om mooie kinderen zoals deze te hebben! En de
 
 [tegen iemand in de groep] Wat is er aan de hand, ben je niet in orde? Is alles goed met je? [Shri Mataji glimlacht]
 
-Jullie zijn ongetwijfeld gezegend, omdat jullie niet ten prooi vallen aan de grillen van jullie Swadishthan, ongetwijfeld, en dat is ook de chakra van jullie land, dus hij laat je op en neer rennen, en denken, denken, denken! Vooral alle Sahaja yogi’s hebben dit probleem. Dus je zou gewoon moeten denken dat je op de Swadishthan zit en je moet hem berijden, niet erdoor bereden worden, goed? [gelach] 
+Jullie zijn ongetwijfeld gezegend, omdat jullie niet ten prooi vallen aan de grillen van jullie Swadishthan, ongetwijfeld, en dat is ook de chakra van jullie land, dus hij laat je op en neer rennen, en denken, denken, denken! Vooral alle Sahaja yogi’s hebben dit probleem. Dus je zou gewoon moeten denken dat je op de Swadishthan zit en je moet hem berijden, niet erdoor bereden worden, goed? [gelach]
 
 Ik ben zo trots op jullie. Mensen van dit land hebben het pad getoond aan de rest van de wereld, hoe je verenigd kunt zijn en één kunt zijn. Het is erg verrassend. In andere landen is het probleem anders. Jullie land heeft het probleem van de Swadishthan, zoals ik eerder verklaarde, maar jullie hebben het overwonnen. Toen ik hier voor het eerst kwam, zag ik iedereen z’n hoofd bewegen [bezig] met de Swadishthan. Toen werden ze stil, en heel vredig. En nu zie ik jullie allen en ik ben heel gelukkig, omdat dat nu verdwenen is, al die onzin is geëindigd, en er is niets dat jullie hindert.
 

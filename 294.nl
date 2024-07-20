@@ -1,6 +1,9 @@
 Shri Mataji Nirmala Devi
+
 Introspectie en meditatie
+
 18 juni 1988
+
 Shudy Camps
 
 Engelse transcriptie: IBP verified
@@ -64,7 +67,7 @@ Het is overduidelijk dat we heel onzekere tijden doormaken. Het is ontzettend be
 
 Ik wou dat ik deze dagen nog tijdens mijn leven kon meemaken. Vandaag is dus de dag waarop we aan introspectie moeten doen.
 
-Zullen we dan allemaal in meditatie gaan? 
+Zullen we dan allemaal in meditatie gaan?
 
 ‘Sluit alsjeblieft je ogen. Sluit allemaal je ogen. We gaan nu allemaal de meditatie doen zoals we die hebben gedaan in de zalen waar we publieke programma's gaven.
 
@@ -76,13 +79,13 @@ Breng nu je rechterhand naar het bovenste gedeelte van je buik, aan de linkerkan
 
 Breng nu je rechterhand naar het onderste gedeelte van je buik, aan de linkerkant van de maag. Druk erop. Dit is het centrum van zuivere kennis. Hier moeten jullie zeggen: “Als Sahaja yogi's onderkennen we dat onze Moeder ons een compleet beeld heeft gegeven van hoe het Goddelijke werkt. Zij heeft ons alle mantra's gegeven en alle zuivere kennis die we maar konden dragen en begrijpen. Laten we ons daar allemaal volledig bewust van zijn.” Ik heb gezien dat als een man leider is, zijn vrouw geen woord van Sahaja Yoga kent. En als de vrouw kennis heeft van Sahaja Yoga, dan weet de man er niets van.
 
-“Laat mij deze kennis vakkundig beheersen, als een expert, zodat ik mensen hun realisatie kan geven, zodat ik hen kan doen begrijpen wat de goddelijke wetten zijn, wat de Kundalini is en wat de chakra's zijn. Laat mijn aandacht meer gericht zijn op Sahaja Yoga dan op al deze wereldse zaken.” 
+“Laat mij deze kennis vakkundig beheersen, als een expert, zodat ik mensen hun realisatie kan geven, zodat ik hen kan doen begrijpen wat de goddelijke wetten zijn, wat de Kundalini is en wat de chakra's zijn. Laat mijn aandacht meer gericht zijn op Sahaja Yoga dan op al deze wereldse zaken.”
 
 Leg je rechterhand nu op het bovenste gedeelte van je buik. Sluit je ogen. Oefen nu druk uit aan de linkerkant. “Moeder heeft mij de Spirit gegeven en ik heb mijn eigen guru, die de Spirit is. Ik ben mijn eigen meester.
 
 Laat mij mezelf niet verloochenen.
 
-Laat er waardigheid zijn in mijn karakter. 
+Laat er waardigheid zijn in mijn karakter.
 
 Laat er vrijgevigheid zijn in mijn gedrag.
 
@@ -98,7 +101,7 @@ Breng nu je rechterhand naar de linker Vishuddhi, in de hoek tussen nek en schou
 
 Laat mij tot de kern gaan van al deze problemen, en ze trachten op te heffen met mijn krachten van Sahaja Yoga - met mijn heilige krachten.”
 
-Leg nu je rechterhand dwars over je voorhoofd. Hier moet je eerst zeggen: “Ik moet al diegenen vergeven die niet naar Sahaja Yoga gekomen zijn – zij die zich aan de periferie bevinden, die komen en gaan, die naar binnen en weer naar buiten springen. Maar eerst en vooral moet ik alle Sahaja yogi’s vergeven, want zij zijn allemaal beter dan ik. Ik ben het die probeert fouten te vinden bij hen; maar ik sta op de laagste plaats en ik moet hen vergeven, want ik moet beseffen dat ik nog een hele weg af te leggen heb. Ik bevind me nog op een veel lager niveau, en ik moet aan mezelf werken.” Deze nederigheid moet een deel van ons worden. Dus moet je hier zeggen: “Laat de nederigheid in mijn hart, in de ware zin van het woord en niet op een schijnheilige manier, dit gevoel van vergiffenis in mij uitwerken, zodat ik buig voor de realiteit, voor God en voor Sahaja Yoga. 
+Leg nu je rechterhand dwars over je voorhoofd. Hier moet je eerst zeggen: “Ik moet al diegenen vergeven die niet naar Sahaja Yoga gekomen zijn – zij die zich aan de periferie bevinden, die komen en gaan, die naar binnen en weer naar buiten springen. Maar eerst en vooral moet ik alle Sahaja yogi’s vergeven, want zij zijn allemaal beter dan ik. Ik ben het die probeert fouten te vinden bij hen; maar ik sta op de laagste plaats en ik moet hen vergeven, want ik moet beseffen dat ik nog een hele weg af te leggen heb. Ik bevind me nog op een veel lager niveau, en ik moet aan mezelf werken.” Deze nederigheid moet een deel van ons worden. Dus moet je hier zeggen: “Laat de nederigheid in mijn hart, in de ware zin van het woord en niet op een schijnheilige manier, dit gevoel van vergiffenis in mij uitwerken, zodat ik buig voor de realiteit, voor God en voor Sahaja Yoga.
 
 Leg nu je hand op de achterkant van je hoofd, buig je hoofd naar achteren en zeg hier: “O Moeder, alles wat we tot nu toe verkeerd hebben gedaan ten opzichte van U, alle slechte gedachten die er in ons hoofd omgaan, alle kleingeestigheid die we U hebben getoond, en op welke manier we het U ook lastig hebben gemaakt of U in twijfel hebben getrokken, vergeef het ons alstublieft.”
 

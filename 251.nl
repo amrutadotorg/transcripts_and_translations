@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Paas Puja
 
 Magliano Sabina, Italië
+
 11 april 1993
-Engelse transcriptie: ISDP verified Nederlands: eindversie 12/04/2013
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 12/04/2013
 
 Vandaag zijn we hier allemaal samengekomen op de top van deze prachtige berg, om de wederopstanding van Christus te vieren.
 
@@ -125,7 +128,6 @@ Er zijn alleen maar kinderen, er zijn zoveel kinderen. Vandaag is de dag van Chr
 Zou dat daar passen, of moet je het verplaatsen?
 
 Deel 2
- 
 
 Het was een prachtig concert vandaag, en ik ben er zeker van dat we het ons altijd zullen herinneren, hoe mooi het allemaal gespeeld werd. En ik heb echt geen woorden om mijn vreugde te beschrijven.
 

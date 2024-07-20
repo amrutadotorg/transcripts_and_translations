@@ -3,6 +3,7 @@ Shri Mataji Nirmala Devi
 Shri Shakti Mahakali Puja
 
 Bangalore, India
+
 9 december 1991
 
 Engelse transcriptie: ISDP verified

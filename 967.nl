@@ -3,9 +3,11 @@ Shri Mataji Nirmala Devi
 Publiek programma 1
 
 Madras, India
+
 6 december 1991
 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 25/03/2011
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 25/03/2011
 
 Ik buig voor alle zoekers naar de waarheid. Als we echte zoekers naar de waarheid zijn, dan moeten we hier eerlijk over zijn en oprecht, zodat we oprecht zijn ten opzichte van onszelf, en zodat we ons eigen bestaan in deze wereld gerechtvaardigd hebben. Er zijn zoveel sadhaka's[1], van 's ochtends tot 's avonds werken ze aan het één of ander ritueel, de één of andere soort van meditatie, een bepaalde soort bhakti[2], een bepaalde soort studie. Maar wat je moet inzien is: wat hebben we bereikt? Waar staan we?
 
@@ -151,15 +153,15 @@ Breng morgen alsjeblieft jullie vragen mee. Breng alsjeblieft jullie vragen mee,
 
 [4] tantrika: beschouwt de Kundalini als een seksuele energie; dit idee druist volledig in tegen de leer en de technieken van Sahaja Yoga
 
-[5] Veda’s: zeer oude geschriften, ontstaan tussen 1500 en 500 v.C, bestaande uit religieuze hymnen over God(en), spirituele filosofie, het universum, de natuur en de juiste levenswijze. 'Veda' betekent kennis, weten.
+[5] Veda’s: zeer oudegeschriften, ontstaan tussen 1500 en 500 v.C, bestaande uit religieuze hymnen over God(en), spirituele filosofie, het universum, de natuur en de juiste levenswijze. 'Veda' betekent kennis, weten.
 
 [6] sloka: vers in het Sanskriet
 
- [7] maya: illusie
+[7] maya: illusie
 
- [8] pandit: geleerde
+[8] pandit: geleerde
 
- [9] Upanishaden: onderdeel van de hymnen en voorschriften van de Veda’s. Het woord Upanishad betekent letterlijk: ‘neerzitten bij’ en duidt op het zitten van de leerling aan de voeten van de meester.
+[9] Upanishaden: onderdeel van de hymnen en voorschriften van de Veda’s. Het woord Upanishad betekent letterlijk: ‘neerzitten bij’ en duidt op het zitten van de leerling aan de voeten van de meester.
 
 [10] Patanjal shastra: yogaleer volgens Patanjali
 

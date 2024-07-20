@@ -3,6 +3,7 @@ Shri Mataji Nirmala Devi
 Diwali Puja
 
 Cabella Ligure, Italië
+
 10 november 1991
 
 English transcript Amruta.org Ver 30/10/2014

@@ -99,8 +99,11 @@ Ik ben er zeker van, het is een verlangen uit de grond van mijn hart, dat jullie
 (Shri Mataji maakt een namaste.)
 
 Ahmed Shah Durrani (Abdali), regeerde over Afghanistan, hij bezette drie maal het noorden van India tussen 1759-61. Zijn doortocht werd telkens gekenmerkt door dood en vernieling. Hij wordt beschouwd als de stichter van Afghanistan. Zijn mausoleum bevindt zich in Kandahar, waar mollah Omar, gekleed met de mantel van de profeet (reliek bewaard in de moskee van Kandahar), zich in 1994 tot Amir al-mu ́minin (Commandeur der Gelovigen) uitriep, Chef van de Durrrani’s en dus van heel Afghanistan.
+
 Auliya = heilige moslim. Nizzamuddin is begraven in New Delhi, dicht bij het scoutskamp waar de yogi’s logeerden en waar Puja’s en muzikale programma’s plaats hadden in het begin van de Indiatour vooraleer de Nirmal Nagar in Noida ten oosten van New Delhi werd geïnstalleerd. Shri Mataji heeft over deze moslim Heilige gesproken en de plaats bezocht.
+
 De Pakistaanse president Musharraf.
+
 Shri Mataji onderbreekt zichzelf, soms kort, soms heel lang. Het was alsof zij teveel moeite had om voort te gaan of dat zij elders strijd leverde.
 
 _________________________________________________________________________________________________

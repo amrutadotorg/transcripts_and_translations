@@ -26,9 +26,7 @@ Ik ben er zeker van dat als het eenmaal begint uit te werken iedereen de waarde 
 
 Ik zegen jullie vanuit mijn hart, ik zegen jullie heel veel, dat jullie je werk van Sahaja Yoga kunnen verder zetten, van het verspreiden van Sahaja Yoga, van het geven van zelfrealisatie. Jullie hebben de krachten, dat weten jullie. Jullie moeten die kracht alleen maar gebruiken, en geef zelfrealisatie aan mensen. Dat is één belofte die jullie moeten maken op mijn verjaardag.
 
-Dank jullie zeer.
-
-[vertaald uit het Hindi]
+Dank jullie zeer. [vertaald uit het Hindi]
 
 Wat ik vandaag in het Engels zei aan deze mensen, en ik hoef dat niet aan jullie te vertellen omdat in dit land iedereen al weet hoe belangrijk een spiritueel [ādhyātmik] leven is en mensen willen spirituele groei [ādhyātmik unnati]. Vele mensen proberen zeer hard. Sommigen gaan naar de Himalaya, sommigen gaan bij de zee zitten, proberen verschillende uren en ze vasten. Het is niet nodig om dat allemaal te doen. Vanaf het ogenblik dat ze naar Sahaja Yoga komen, kunnen ze hun realisatie krijgen en ze kunnen zegeningen krijgen. Je legt uit aan mensen dat het niet nodig is op je hoofd te staan. Sahaja Yoga kan je zelfs voor niets krijgen. Ze zullen niet eens geloven hoe gemakkelijk het is.
 

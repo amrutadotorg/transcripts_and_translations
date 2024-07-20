@@ -1,5 +1,7 @@
 Shri Mahavira Jayanti Puja - Gidgegannup, Perth, Australië - 28 maart 1991
+
 NlTVD2012-0914
+
 Vandaag zullen we de verjaardag van Mahavira vieren. Mahavira is de incarnatie van Bhairavanath, die jullie ook wel Sint Michaël noemen. Nu zijn er twee heiligen, zoals jullie weten: de ene is Gabriël of Hanumana en de andere is Sint Michaël. De één bevindt zich op de Pingala nadi[1] en de andere, Sint Michaël, op de Ida nadi[2].
 
 Dus, Mahavira moest een hele zoektocht ondergaan. Natuurlijk was hij een engel, maar hij kwam hier als mens en het was zijn taak om uit te zoeken hoe het zit met de linkerkant en hoe de linkerkant werkt. De linkerkant zit heel ingewikkeld in elkaar, veel ingewikkelder dan de rechterkant. Aan de linkerkant hebben we ook zeven nadi's[3], en deze zeven nadi's zijn boven elkaar gelegen. Ze staan beschreven in boeken, en men heeft hen verschillende namen gegeven.

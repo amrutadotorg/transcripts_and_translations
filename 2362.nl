@@ -1,9 +1,14 @@
 Shri Mahalakshmi Puja, België 1986
+
 Mechelen, België
 
 20 september 1986
-Engelse transcriptie: status onbekend Nederlands: eindversie 21/09/2012,
+
+Engelse transcriptie: status onbekend
+Nederlands: eindversie 21/09/2012,
+
 Nederlands versie 2022-0331
+
 Vandaag gaan we in België het principe van Mahalakshmi vereren. België heeft een specialiteit, namelijk het creëren van glazen armbanden (bangles) voor de Moeder. Dit zijn de armbanden die gebruikt worden als een mooie muzikale begeleiding bij het stappen, bij alle bewegingen van de Godin. Ze geven een vrouw fijngevoeligheid en de man, of de mannen, worden er zich van bewust dat er vrouwen in de buurt zijn. De aanwezigheid van gehuwde vrouwen is zeer voorspoedig. Het is deze voorspoedigheid die in dit land, of in welk land ook, alle zegeningen zal brengen.
 
 In het Sanskriet wordt een glazen armband ook valaya genoemd en dit is het laatste stadium dat men in zijn spirituele evolutie moet bereiken. Het betekent: ‘dat wat volledig is’. We houden hier tegelijkertijd ook een puja voor Holland, dat voor de Godin Jal Devata staat, de godin van het water. Het komt voort uit het woord Mare, het woord Mary (Maria), Mariam. Al deze woorden komen voort uit het woord ’marine’.

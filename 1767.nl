@@ -1,7 +1,10 @@
 Shri Mataji Nirmala Devi
+
 SHRI KUNDALINI PUJA
+
 Mödling, Oostenrijk
-19 juni 1990 
+
+19 juni 1990
 
 Engelse transcriptie: IBP verified
 Nederlands: verified/gecontroleerd 26/01/2013

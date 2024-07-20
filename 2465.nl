@@ -30,6 +30,4 @@ Ik denk niet dat dit onderwerp te subtiel was voor jullie. Jullie zijn allemaal 
 
 Moge God jullie zegenen!
 
- 
-
 [1] sahaj: sahaja, spontaan, aangeboren, volgens de cultuur van Sahaja Yoga

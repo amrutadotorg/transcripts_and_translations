@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Shri Mahalakshmi Puja
 
 Sangli, India
+
 6 januari 1986
-Engelse transcriptie: ISDP verified Nederlands: eindversie 25/10/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 25/10/2011
 
 Ik hoop dat je allemaal genoten hebt van je verblijf in Ganapatipule. Het probleem was dat we de kookplaats niet dichter bij jullie verblijfplaats konden voorzien, zodat jullie veel heen en weer moesten lopen. Maar dat wandelen was volgens mij wel goed voor jullie en het zal jullie wel geholpen hebben. Het is goed tegen diarree en andere problemen die jullie hebben.
 

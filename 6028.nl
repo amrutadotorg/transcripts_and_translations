@@ -1,15 +1,21 @@
 Shri Mataji Nirmala Devi
 
 Publiek programma:
+
 Vishuddhi, Agnya & Sahasrara
-‘Gedachteloos bewustzijn is een
+
+‘Gedachteloos bewustzijnis een
+
 volledige staat van zegen
+
 en van bewustzijn.’
- 
+
 Urania, Wenen, Oostenrijk
+
 30 september 1982
 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 11/01/2013
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 11/01/2013
 
 Ik buig voor alle zoekers naar de waarheid.
 

@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Shri Ganesha Puja
+
 “Vestig het Ganesha principe”
 
 San Diego, Camp Marston, VSA
+
 7 september 1986
-Engelse transcriptie: ISDP verified Nederlands: eindversie 10/11/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 10/11/2011
 
 Vandaag vieren we in het land van Shri Krishna de verjaardag van Shri Ganesha. Het is zo'n unieke gebeurtenis van zo'n grote waarde dat jullie de verjaardag van de zoon van Shri Krishna in zijn eigen land vieren. Je weet dat Shri Ganesha op deze aarde geïncarneerd is als Mahavishnu en hij was ook de zoon van Radha, hij incarneerde als de Heer Jezus Christus. Door vandaag deze verjaardag te vieren erkennen jullie dus de allerhoogste waarheid, namelijk dat de Heer Jezus Christus de zoon van Shri Krishna was.
 
@@ -177,4 +181,4 @@ Wat is dit? Is zij helemaal van Oostenrijk gekomen? Ah! Uit Oostenrijk! Heel erg
 
 [9] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
-[10] Ganapati: bevelhebber van de gana’s, Heer Ganesha
+[10] Ganapati: bevelhebber van degana’s, Heer Ganesha

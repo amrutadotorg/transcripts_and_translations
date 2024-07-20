@@ -1,12 +1,15 @@
 Shri Mataji Nirmala Devi
 
+ 
+
 Guru Puja
 
 Cabella Ligure, Italië
 
 20 juli 2008
 
-Engelse transcriptie: ISDP verified Nederlands: eindversie 06/01/2009
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 06/01/2009
 
 Het is vandaag een grote dag voor alle Sahaja yogi's; omdat de Sahasrara in jullie geopend is, konden jullie het bestaan van God voelen. Verklaren dat God bestaat, was niet voldoende, en ook verklaren dat er geen God is, is verkeerd, helemaal verkeerd en degenen die zo spraken hebben geleden. Pas nadat je je realisatie hebt, weet je dat God bestaat en dat er vibraties zijn. Dit is een grote doorbraak, over de hele wereld. Vandaag zeg ik: dit is waarom dit voor jullie één van de belangrijkste dagen is.
 

@@ -1,5 +1,8 @@
 Shri Virata Puja, Melbourne, Australië, 10 april 1991
-Engelse transcriptie: ISDP verified Nederlands: eindversie 06/10/2012
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 06/10/2012
+
 Door de grote afstanden en ook door het feit dat we nog geen ashram hadden in Melbourne, tot nu toe, heb ik gemerkt dat de collectiviteit hier nog niet zo stevig gevestigd is. Daarom denk ik dat het voor vandaag het beste zou zijn om de Virata te vereren.
 
 De Virata is de Primordiale Vader zou je kunnen zeggen, of degene die zich in ons brein bevindt en die in het voordeel van de collectiviteit handelt. Als de Kundalini opstijgt, dan eindigt ze met het doorboren van het fontanelgebied. Maar voordat ze daar terechtkomt, gaat ze eerst de Sahasrara binnen. De Sahasrara is het gebied dat omgeven is door duizend zenuwen en het wordt in medische termen het limbische gebied genoemd. Nu zijn deze duizend zenuwen allemaal verbonden met de zestien belangrijke zenuwen van de Vishuddhi. Daarom zegt men ook wel dat Shri Krishna zestienduizend vrouwen had; al zijn krachten waren namelijk in de gedaante van zijn vrouwen, en mijn krachten zijn in de gedaante van mijn kinderen.

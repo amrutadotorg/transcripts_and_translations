@@ -3,8 +3,11 @@ Shri Mataji Nirmala Devi
 Publiek programma
 
 Londen, Engeland
+
 14 juli 2001
-Engelse transcriptie: ISDP verified Nederlands: eindversie 07/09/2012
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 07/09/2012
 
 Ik buig voor alle zoekers naar de waarheid. Sommigen onder jullie hebben de waarheid al gevonden, anderen hebben haar nog niet helemaal gevonden, en weer anderen hebben haar nog helemaal niet gevonden. Maar als je kijkt naar de situatie waarin we ons vandaag de dag bevinden, dan zul je wel moeten toegeven dat er grote verwarring heerst. Het ene land na het andere verliest zich in allerlei verkeerde dingen. In veel plaatsen is er een koude oorlog gaande, en mensen moorden elkaar uit, vernietigen prachtige plekken en snijden elkaars keel over voor het minste of geringste. Het zijn allemaal mensen, door God geschapen. God Almachtig heeft hen geschapen en hen tot dit niveau van menselijk bewustzijn gebracht.
 

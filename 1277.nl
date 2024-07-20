@@ -1,10 +1,16 @@
 Shri Mataji Nirmala Devi
 
 Shri Durga Puja
+
 ‘Vereer de wapens van de Godin’
+
 Wenen, Oostenrijk
+
 26 september 1982
-Engelse transcriptie: ISDP verified Nederlands: eindversie 20/10/2008
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 20/10/2008
+
 Vandaag is het de eerste keer dat we deze puja in Oostenrijk houden. Dit is een historisch land dat verschillende omwentelingen doorgemaakt heeft, om zoveel levenslessen te leren. Maar mensen leggen geen verband tussen de rampen en hun eigen fouten. Daarom blijven ze steeds opnieuw dezelfde fouten herhalen.
 
 Het bezoek aan Wenen was uitgesteld, en ik kwam toe op de verjaardag van Machindranath [n.v.d.r.: een Sahaja yogi baby]. Het is voorspoedig voor jullie allemaal dat hij vandaag zijn eerste levensjaar vervolledigt. Ik zegen hem met alle bloemen, de allermooiste bloemen, en zegen hem en zijn familie, al zijn relaties en zijn familie. Er zijn zoveel zaken voor de eerste keer gebeurd. Ik moet zeggen, het is de eerste keer dat ik naar Wenen, naar Oostenrijk ben gekomen, en de eerste keer dat ik naar de verjaardag van een kind kom, zijn eerste verjaardag. En op een Ashtami, dat is vandaag, de achtste dag van de maan, van de wassende maan, shuklapakshi het is de eerste keer dat alle wapens van de Godin vereerd moeten worden. Dit was een zeer goed idee omdat deze wapens, die altijd aan het werk zijn, niet alleen om het kwade te vernietigen maar ook om het goede te beschermen, nooit eerder vereerd geweest zijn; en omdat vandaag, als mensen hun belang en betekenis beseffen, veel problemen zoals atoombommen en dergelijke die ontwikkeld zijn, zouden kunnen opgelost worden door ze af te leiden in de juiste richting, door ze te gebruiken voor het vernietigen van de slechte en niet de goede krachten; en zo ook het menselijk leven te beschermen en te voeden.
@@ -124,8 +130,6 @@ Kijk, svatojayte betekent het principe, je doet het principe van het hele univer
 [een yogi leest het Ganesha Atharva Sheersa]
 
 Het zou beter "Jij bent God in de mens" zijn. God in de mens... Hij is geen mens, in geen geval, hoe kun je hem zo noemen?
-
- 
 
 [1] dharma: geheel van leefregels die ervoor zorgen dat de harmonie tussen alles wat leeft gerespecteerd en ondersteund wordt; spirituele wetten die de mens(heid) op het middenpad van groei en evolutie houden; rechtschapen gedrag
 

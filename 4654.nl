@@ -43,6 +43,7 @@ En dat bovenbewuste bestaat ook zij aan zij. deeltje voor deeltje? Het ondersche
 Video PP 3
 
 https://www.youtube.com/watch?v=UTLk77M42gw
+
 https://www.amruta.org/1981/08/02/open-your-heart-mill-farm-1981/
 
 Early teachings of H.H. Shri Mataji Nirmala Devi 1981-0802 1

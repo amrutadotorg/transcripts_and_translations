@@ -18,8 +18,6 @@ Er wordt niet verwacht dat je Kalya doodt. Jullie zijn voortdurend beschermd, ni
 
 Zo gedraagt een Sahaja yogi zich niet. Een Sahaja yogi moet absoluut spontaan beslissingen nemen. Zó moet het zijn. Stel dat iemand aan het verdrinken is. De eerste impuls is die persoon te redden. Hoe doe je dat? Door in het water te springen, want je bent beschermd. Er kan je niets overkomen. Spring dus in het water en red die persoon. Minimaal zou je houding zo moeten zijn. Het zou je temperament moeten zijn dat je zeer spontaan een beslissing neemt. Al dit denken en al dat beslissingsgedoe met een grote conferentie is niet nodig. Ook in het dagelijks leven moet je je zo gedragen. Ook in het politieke leven, in het economische leven en in elk ander soort leven dat je moet leiden, moet je zeer spontaan zijn.
 
- 
-
 Putana: een rakshasi, die door Kamsa (de oom van Krishna) naar Krishna gestuurd werd om hem te doden door hem de borst (met giftige melk) te geven, maar Krishna doodde haar door haar helemaal op te zuigen.
 
 Hoe word je spontaan? Welke kwaliteit heb je? Over welk wapen beschik je om kennis te vergaren? Om welke beslissing te nemen? Weet je, je hebt de vibraties. Je voelt de vibraties. En je weet wat vibraties zijn. Je weet wat de vibraties je vertellen, wat ze je overbrengen en welke boodschap ze je geven. Ze spreken tot je. Door middel van je vibraties zou je binnen een seconde moeten weten wat je moet doen.

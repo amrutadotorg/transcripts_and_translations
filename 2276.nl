@@ -1,7 +1,5 @@
 Shri Krishna Puja. New York (USA), 8 Juni 1997
 
- 
-
 We hebben besloten om een Shri Krishna Puja te houden in het land van Shri Krishna. Hoewel dit het land van Shri Krishna is, vraagt men mij waarom de mensen er niet spiritueel zijn. Hoe komt het dat ze verstrikt raken in verschillende soorten zoektochten die niet tot de waarheid leiden? Hoe komt het dat de mensen in Amerika niet zo alert zijn om te herkennen wat de waarheid is en wat ze moeten vinden?
 
 De tijd van Shri Krishna kwam, zoals je weet, tenminste 2000 jaar na Shri Rama. Shri Rama creëerde voor de mens heel wat disciplines als leidraad op het pad van hun groei. Naargelang de tijd werkt alles uit.

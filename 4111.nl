@@ -3,6 +3,7 @@ Shri Mataji Nirmala Devi
 Navaratri Puja
 
 Cabella, Italië
+
 27 september 1998
 
 Engelse transcriptie: IBP reviewed

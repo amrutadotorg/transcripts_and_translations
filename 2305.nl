@@ -1,7 +1,7 @@
 Shri Virata Viratangana Puja. Los Angeles (USA), 10 oktober 1993
 
-English Transcript Version Date: 2015-1009 
- Nl Vertaling Versie 27/8/2016
+English Transcript Version Date: 2015-1009
+Nl Vertaling Versie 27/8/2016
 
 Vandaag vieren we de puja van de Virata en Viratangana.
 

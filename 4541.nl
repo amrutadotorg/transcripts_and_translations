@@ -1,7 +1,7 @@
 Toespraak tot Sahaja Yogi’s - Sat, chit, ananda - 15/02/1977 - Delhi, India
 
 Translation not verified. Dear yogi, register as volunteer to do so.
- Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
+Vertaling niet geverifieerd. Beste yogi, registreer als vrijwilliger om dit te doen.
 
 Kan iedereen mijn Hindi begrijpen? De taal van de spirit is Sanskriet. Men heeft zich nooit bekommerd om de spirit. We moeten dus een taal hebben die over de spirit kan praten. Engels is daarvoor niet toereikend genoeg. Zij hebben niet deze ervaringen omdat zij tot dusver niet diep genoeg gegaan zijn. Wij zijn op dat vlak zeer oude mensen. Onze cultuur bestond erin om God te kennen. Alles is gekomen doorheen het Sanskriet omdat Sanskriet werkelijk een godentaal is. Los daarvan, is het zo dat wanneer de Kundalini beweegt, Zij vibraties creëert, Zij maakt speciale geluiden, die devanagri geluiden van de verschillende chakra’s hoorbaar maken. Wanneer Ik de tijd heb zal Ik jullie daar meer over vertellen. Zelfs wanneer je mantra’s reciteert in het Sanskriet of door devanagri uitspraak zullen de chakra’s meer worden gestimuleerd.
 

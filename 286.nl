@@ -1,11 +1,15 @@
 Shri Mataji Nirmala Devi
 
 Sahasrara Puja
+
 ‘Het begin van een nieuw tijdperk’
 
 Rouen, Frankrijk
+
 5 mei 1984
-Engelse transcriptie: ISDP verified Nederlands: eindversie 02/12/2011
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 02/12/2011
 
 Het is zo heerlijk voor jullie moeder om zoveel mooie Sahaja yogi's samen te zien, op deze dag van de Sahasrara. Ik denk dat het begintijdperk van Sahaja Yoga nu beëindigd is, en dat er een nieuw is begonnen.
 

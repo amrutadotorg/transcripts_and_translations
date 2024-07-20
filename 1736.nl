@@ -1,8 +1,8 @@
 Shri Mataji Nirmala Devi
 
 70ste Verjaardagspuja
+
 ‘Het begin van Satya Yuga’
- 
 
 New Delhi, India
 

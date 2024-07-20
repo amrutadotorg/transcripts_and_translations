@@ -1,9 +1,13 @@
 Shri Mataji Nirmala Devi
 
 Puja lezing – deel I en II
+
 ‘Je moet je eigen belangrijkheid begrijpen’
+
 Brighton, Engeland
+
 15 mei 1982
+
 Engelse transcriptie verified
 Nederlands: eindversie 18/09/2014
 
@@ -423,7 +427,6 @@ Het is gemakkelijker uit te vouwen dan het weer op te vouwen. Laat het de ongehu
 
 [3] Veena: Indiaas instrument waarmee Shri Saraswati, godin van kennis, wetenschappen, kunsten en muziek, vaak wordt afgebeeld.
 
- 
 [4] Kailash(a): berg in het Himalaya gebergte, beschouwd als de verblijfplaats van Shri Shiva, van waarop hij de schepping als getuige gadeslaat.
 
 [5] Shakti: ondersteunende, vrouwelijke, moederlijke oerkracht, die belichaamd wordt door Shri Mataji als de Adi Shakti of primordiale (oorspronkelijke) kracht.

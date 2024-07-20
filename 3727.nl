@@ -1,7 +1,11 @@
 Shri Mataji Nirmala Devi
+
 Birthday Puja
+
 “Geniet van deze collectieve liefde”
+
 Dehli, India
+
 21 maart 2000
 
 Engelse transcriptie: IBP reviewed

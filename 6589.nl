@@ -1,6 +1,6 @@
 Tweede publiek programma Praag, Tsjechische Republiek 18 augustus 1991
 
-ETVD Unknown NL Vertaling Unknown Versië: DVD 107S ISDP – 100713 
+ETVD Unknown NL Vertaling Unknown Versië: DVD 107S ISDP – 100713
 
 [Een yogi vraagt of hij foto's mag nemen tijdens Shri Mataji's lezing.]
 

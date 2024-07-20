@@ -195,15 +195,11 @@ Vandaag is Diwali voorbij en ik wens jullie opnieuw en opnieuw een gelukkig Diwa
 
 Moge God jullie zegenen.
 
- 
-
 Dezelfde Lakshmi wordt Mahalakshmi, als je de waarde van Mahalakshmi begrijpt. Als je verzadigd bent en er genoeg van hebt en je geraakt van binnenuit onthecht, dan ontstaat er een nieuwe Lakshmi, en dat is Mahalakshmi. Dat is de kracht die je hoger en hoger brengt, de spirituele ontwaking. In alle rijke landen ontstaat het verlangen om de waarheid te zoeken, om de waarheid te kennen en daarom zijn jullie allemaal hier. De kracht van Mahalakshmi is dus in jullie beginnen te werken, namelijk dat je op zoek ging naar de waarheid. En zo kwam je naar Sahaja Yoga.
 
 Mahalakshmi is dus zeer belangrijk voor jullie en jullie kennen Kolhapur met de tempel van haar die uit Moeder Aarde kwam. Maar zijzelf (die in de tempel gingen) wisten niet waarom ze 'Jogwa' zongen: 0 Ambe, ontwaak. Ambe is de Kundalini. Waarom zongen ze dat in Mahalakshmi's tempel?
 
 Jullie kunnen begrijpen waarom ze in Mahalakshmi's tempel 'Jogwa' zongen om de Kundalini te doen ontwaken.
-
- 
 
 MUNDAKA UPANISHAD
 
@@ -223,8 +219,6 @@ in het grote en in het kleine, eeuwigdurend en altijd hetzelfde,
 
 De bron van alle leven.
 
- 
-
 Zoals het web voortkomt uit de spin
 
 En terug opgezogen wordt, zoals planten ontspruiten aan de aarde,
@@ -234,8 +228,6 @@ zoals haar groeit uit het lichaam, zo ook,
 zeggen de wijzen, komt dit universum voort uit
 
 het onsterfelijke Zelfde, bron van alle leven.
-
- 
 
 Het onsterfelijke Zelf mediteerde op
 
@@ -249,8 +241,6 @@ De elementen en de wereld van het karma,
 
 Die beheerst wordt door oorzaak en gevolg.
 
- 
-
 Het onsterfelijke Zelf ziet alles en hoort alles.
 
 Uit hem ontstaat Brahma, die de belichaming is
@@ -258,10 +248,6 @@ Uit hem ontstaat Brahma, die de belichaming is
 van het proces van evolutie, in naam en vorm,
 
 Waardoor de Ene verschijnt als velen.
-
- 
-
- 
 
 Schitterend, maar verborgen, woont het Zelf in het hart.
 
@@ -274,8 +260,6 @@ die je kan leren kennen door liefde,
 maar niet door gedachten.
 
 Het is het doel van alle leven. Bereik dit doel
-
- 
 
 Neem de grote boog van de heilige geschriften,
 
@@ -293,15 +277,11 @@ Trek nu de pees van de meditatie aan,
 
 en terwijl je het doel raakt, word je één met hem.
 
- 
-
 Als het Zelf in en buiten ons werkzaam wordt,
 
 Neemt het alle twijfels weg en alle pijn,
 
 die veroorzaakt wordt door negatieve daden in het verleden.
-
- 
 
 Zoals twee gouden vogels, gezeten op dezelfde tak,
 
@@ -312,8 +292,6 @@ in hetzelfde lichaam.
 Het eerste eet de zoete en de zure vruchten
 
 van de boom des levens, terwijl het tweede onthecht toekijkt.
-
- 
 
 Zolang we denken dat we het ego zijn,
 
@@ -331,8 +309,6 @@ dan stijg je uit boven de dualiteit van het leven
 
 En ga je binnen in het ene echte leven.
 
- 
-
 De wijzen hebben dit ene echte leven bereikt
 
 en zien enkel nog de schitterende Heer van de Liefde.
@@ -341,8 +317,6 @@ Zij verlangen niets meer in de materiële wereld,
 
 Zij zijn één geworden met de Heer van de Liefde.
 
- 
-
 Zij die blijven stilstaan en verlangen naar zinnengenot,
 
 worden herboren in een verdeelde wereld.
@@ -350,8 +324,6 @@ worden herboren in een verdeelde wereld.
 Maar als ze zich realiseren dat ze het Zelf zijn,
 
 valt alle verdeeldheid van hen af.
-
- 
 
 Het Zelf kan niet worden gerealiseerd door debatten,
 
@@ -363,8 +335,6 @@ Zij die verlangen naar het Zelf met gans hun hart,
 
 worden door het Zelf uitgekozen.
 
- 
-
 Het Zelf kan niet gerealiseerd worden door de zwakken, of de luien
 
 en ook niet door hen die verkeerde praktijken toepassen.
@@ -372,8 +342,6 @@ en ook niet door hen die verkeerde praktijken toepassen.
 Het Zelf openbaart zichzelf als de Heer van de Liefde,
 
 aan hem die de juiste praktijken toepast.
-
- 
 
 De wijzen hebben uiteindelijk gevonden wat ze zochten.
 
@@ -386,8 +354,6 @@ In alles rondom hen zien zij de Heer van de Liefde,
 In alles rondom hen dienen zij de Heer van de Liefde.
 
 Zij zijn voor eeuwig met hem verenigd.
-
- 
 
 Zij hebben de hoogste top van wijsheid bereikt
 
@@ -405,8 +371,6 @@ maar hun werk wordt een weldoende kracht van het leven,
 
 om anderen samen te brengen in het Zelf.
 
- 
-
 De stromende rivier verliest zich in de zee;
 
 De verlichte wijze gaat op in het Zelf.
@@ -415,15 +379,11 @@ De stromende rivier is de zee geworden.
 
 De verlichte wijze is het Zelf geworden.
 
- 
-
 Zij die het Zelf kennen, worden het Zelf.
 
 Niemand van hen vergeet het Zelf.
 
 Bevrijd van de boeien van verdeeldheid bereiken zij de onsterfelijkheid.
-
- 
 
 Leer deze wijsheid enkel aan diegenen
 
@@ -433,10 +393,6 @@ Leer deze wijsheid enkel aan diegenen
 
 Die hun leven geven aan de heer van de Liefde.
 
- 
-
 OM shanti shanti shanti
-
- 
 
 Jay Shri Mataji

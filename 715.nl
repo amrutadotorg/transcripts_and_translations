@@ -1,11 +1,13 @@
 Shri Mataji Nirmala Devi
 
 Toespraak tot de Sahaja yogi's
- 
 
 Madesimo, Alpe Motta, Italië
+
 4 mei 1986
-Engelse transcriptie: ISDP verified Nederlands: eindversie 16/11/2012
+
+Engelse transcriptie: ISDP verified
+Nederlands: eindversie 16/11/2012
 
 Dit zijn liederen die gezongen worden in de Himalaya; dat men ze hier zingt is heel bijzonder, nietwaar? Ze hebben ze helemaal tot hier gebracht om ze hier te kunnen zingen.
 
