@@ -1,5 +1,7 @@
 Porgrama público día 1, El Espíritu reside dentro de uno
+
 26-9-1982, Vienna
+
 Me inclino ante todos los buscadores de la Verdad. (¿Me oís desde ahí? Ponte ahí de pie... o si no, también puedes usar tú el micro y yo hablo directamente). Estoy muy agradecida a los sahaja yoguis de Viena por haberme invitado a venir a este lugar, esta es mi primera visita a Viena. Este era el único país que me faltaba por visitar en Europa, por tanto tengo que decir que se ha hecho mucho trabajo en otros países en Sahaja Yoga. De alguna manera sucedió que tenía que venir a Viena después de tanto tiempo. Estoy muy, muy contenta de ver que hay tantos buscadores en Viena, y que son buscadores de la verdad.
 
 Pero ante todo debemos entender qué es la verdad. Cualquier verdad que conozcamos hasta ahora como seres humanos la hemos conocido a través de nuestra conciencia, a través de nuestro sistema nervioso central. Por ejemplo, si veis estas flores, son blancas; podemos ver que están ahí: ésa es la verdad para nosotros. Al tocar este acero, sé que está frío, entonces sé que es acero y que está frío: es un hecho, me lo dicen mis dedos. No son imaginaciones ni proyecciones mentales pensar que esta es la flauta de Shri Krishna. Porque puedo ver, oír y sentir que sé que ésta es la verdad; porque lo sé a través de las experiencias de mi sistema nervioso central.

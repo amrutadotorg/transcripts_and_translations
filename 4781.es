@@ -1,4 +1,5 @@
 Shri Krishna Puja
+
 Paris - Francia, 16 de Agosto de 1987
 
 Que hermoso ha sido que los niños hayan venido a recibirme con tanta dulzura; hace recordar los tiempos de Shri Krishna cuando Él era un niño muy respetado por sus amigos, los cuales intentaban rendirle el mayor honor posible.

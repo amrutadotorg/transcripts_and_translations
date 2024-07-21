@@ -1,5 +1,7 @@
-Shri Vishnu Puja 
+Shri Vishnu Puja
+
 París 13-07-1994
+
 Hoy es un gran día, los franceses dicen que en un día como éste consiguieron la liberación. ¿Pero liberación para qué? No lo sé. En los países que han obtenido libertad y liberación se ha comprobado que algo no ha funcionado tan bien como se esperaba; en Francia ha ocurrido igual, porque los principios básicos de estas revoluciones y de los que llamáis “movimientos de liberación”, son el odio y la cólera.
 
 Una liberación sólo es real si ocurre en vuestro interior y así dejáis de ser esclavos de todas esas horribles fuerzas destructivas y negativas.

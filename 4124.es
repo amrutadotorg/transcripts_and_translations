@@ -1,5 +1,7 @@
 Navaratri Puja
+
 Cabella (Italia) 9-10-1994
+
 Hoy vamos a celebrar el Navaratri Puja. Ayer visteis una bonita representación del Navaratri, de cómo la Diosa Madre ha creado tantos poderes en vosotros. No sólo Ella tiene los poderes, vosotros también podéis desarrollarlos, manifestarlos, podéis averiguar si existen realmente o no.
 
 Para nosotros, la Realización es muy importante, la Kundalini os ha dado esta Realización. Por supuesto, la Kundalini es una parte o un reflejo de la Adi Shakti, igual que Jagadamba, que reside en el corazón central, (y que abarca el corazón derecho e izquierdo). Es un lugar muy importante. Todos los poderes de la Kundalini se encuentran en este chakra, así que, podéis imaginar cuantos poderes debe haber y se expresan a través del corazón central en todos los GANAS que tenéis alrededor de vuestro cuerpo. Estos GANAS os dan protección, sueño, energía, bendiciones... Todos ellos están trabajando constantemente, tienen gran dedicación y están siempre conectados a la Madre Amba, a la que podemos llamar Jagadamba. Ella es la Madre del Universo, así que os podéis imaginar lo ocupada que debe estar para cuidar de todo el Universo.

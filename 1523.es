@@ -1,5 +1,7 @@
 Shri Adi Shakti Puja
+
 Togliatti (Rusia), 3 de Agosto 1993
+
 Hoy es un gran día para Mí, al estar con todos vosotros otra vez este año. Es tan gozoso, todo se impregna de una gran fragancia. Hoy hemos decidido hacer un puja a la Shakti, que es el Poder, es la Devi. Sabéis que dentro de nosotros hay muchos poderes de Mahakali, de Mahasaraswati, de Mahalaxmi, Kundalini... Todos estos poderes están ahí para nuestro ascenso. Si estos poderes son comprendidos adecuadamente y utilizados correctamente, entonces vuestro ascenso puede ser permanente.
 
 Una vez que lográis vuestro ascenso y entráis en el Reino de Dios, todos estos poderes se iluminan y se llenan completamente de amor. Tenemos que entender que es el Amor el que nos ilumina plenamente.

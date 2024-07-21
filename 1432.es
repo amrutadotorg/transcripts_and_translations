@@ -1,4 +1,5 @@
 Shri Ganesha Puja. Cabella Ligure, Italia. 22 de septiembre de 2001.
+
 Hoy nos hemos reunido aquí para adorar a Shri Ganesha, el Dios de la Inocencia. Él es el océano de inocencia. Y a pesar de ser un niño tan pequeño, puede luchar contra el mundo entero y destruir toda la negatividad. Esa es la señal de la inocencia.
 Se cuentan casos de niños que se han caído de grandes alturas y que se han salvado sin que nada les sucediera. Su inocencia es tan poderosa que evita dañar a quien no deba ser dañado. Tiene toda la sabiduría y comprensión del mundo. Si alguien intenta hacer daño a la inocencia, el mundo, el mundo entero, que quizá no haya cuidado demasiado la inocencia y que no haya adorado la inocencia, luchará en contra de la persona que intente dañar la inocencia.
 

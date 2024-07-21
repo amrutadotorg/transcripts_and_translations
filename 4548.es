@@ -1,4 +1,4 @@
-Shri Krishna Puja
+xShri Krishna Puja
 
 El amor es el poder más dinámico,
 
@@ -59,8 +59,6 @@ Muchos me han expresado con preocupación: “Mataji”, le estas dando conocim
 
 Este es el poder de Dios y no es responsabilidad de ustedes preocuparse de si hará bien o mal. Aun si piensan que hace algunas cosas malas, según la moralidad de este mundo, al final todo estará bien. ¿Por qué Jarasandha había de ser matado? ¿Por qué Kansa tenía que ser eliminado? ¿Por qué Ravana tenía que ser matado?
 Claro está que, según veo, matarlos no ayuda mucho, ya que los que fueron eliminados están en control nuevamente. De cualquier manera, ustedes no tienen que pelear con esas gentes horribles. La batalla es con ustedes mismos. Simplemente tienen que observarse. ¿Dónde se encuentran? ¿Qué están haciendo? ¿Están en lo divino o en lo bajo? Solo piénsenlo en todo momento, cada momento que mediten. Piensen en ese momento y el dinamismo de ese momento. Piensen en el poder completo que llena cada momento justo para ir a su interior. Fluirá a través de su Sahasrara dentro de su ser y envolverá completamente su ser, transformando completamente su interior en una Chaitanya Shakti, en un Poder Divino absoluto. Permítanle entrar, acéptenlo. Acéptenlo sin ningún miedo. Déjenlo entrar. Todo momento, todo momento permanezcan despiertos.
-
- 
 
 Estos tiempos son muy precarios. Como pueden ver claramente, solo tengo dos manos. Y aunque (...) [refiriéndose a alguien en particular] dice que puedo hacerlo todo, con todo no puedo obligarlos a hacer algo en contra de su voluntad. Su voluntad será siempre respetada.
 

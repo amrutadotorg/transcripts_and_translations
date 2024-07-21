@@ -1,6 +1,9 @@
 Holi Puja
+
 Palam Vihar, Gurgaon, India
+
 29 de Marzo de 2002
+
 (Traducción del Hindi)
 
 El Holi comenzó en los tiempos de Shri Krishna. Antes de Su llegada, en los tiempos de Shri Rama, la sociedad se había vuelto muy pacífica, pero la gente no tenía gozo, debido al carácter austero de Shri Rama. Shri Krishna pensó que tenía que haber una forma de que la gente pudiera reírse y disfrutar libremente. Pero, como pasa muchas veces, el Holi tuvo el efecto contrario al que se pretendía. Empezaron a practicarlo de una forma muy equivocada, dando muy mala fama a este festival. Se deterioró hasta tal punto que Me dije que ya nunca lo celebraría.

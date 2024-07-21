@@ -1,5 +1,7 @@
 Charla del día de bodas, Cabella Ligure.
+
 18 de Septiembre del 2000
+
 No he dado ninguna charla a las chicas porque pienso que la responsabilidad de que los matrimonios tengan éxito es más de los chicos. Los hombres deben entender que el matrimonio es una parte muy importante de sus vidas. Y que deben dedicarle el debido tiempo y respeto. El cuidar a vuestra esposa desde el primer día os ayudará mucho. Intentad comprender lo que ella desea, lo que necesita, intentad demostrarle que os interesáis por ella. Desde el primer día, tened cuidado de no descuidarla ni mal interpretarla. Ella viene de otro país, y por tanto, tiene su propia cultura y sus propias ideas, intentad comprenderlas.
 
 El matrimonio es todo gozo, pero hay que tomarlo muy en serio, no es tan sólo una broma. Especialmente en Sahaja Yoga, uno debe entender que el matrimonio es algo muy importante, por medio del cual se os da una pareja que es bendecida. Y que es responsabilidad de estas parejas que Sahaja Yoga tenga éxito. Sahaja Yoga es algo muy grande porque puede transformar el mundo entero en un hermoso lugar. Y vosotros sois responsables de que esto ocurra.

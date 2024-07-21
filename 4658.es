@@ -1,5 +1,7 @@
 Programa público
+
 Sydney (Australia) 22.3.1981
+
 A todos los buscadores de la verdad. Es un gran placer el venir a este gran país donde hay tantos buscadores. Tantos buscadores están naciendo en estos tiempos modernos, Nunca habían nacido tantos antes. Por ejemplo, en el tiempo de Cristo, Él tenía que reunir a una multitud de gente, pero no estaba la búsqueda en ellos. Solamente le escuchaban porque sentían que era algo nuevo. Hoy, ha llegado el tiempo en el que muchos buscadores han nacido por todo el mundo y siguen buscando. Este es un hecho que uno tiene que aceptar, no hay hipocresía en esto. Alguna gente no entiende que la búsqueda existe y que cualquier cosa que estén haciendo, bien o mal, en realidad están buscando dentro de sí mismos.
 
 Hoy, para comenzar, os daré un bosquejo de Sahaja Yoga, lo que quiere decir: Es un suceso espontáneo dentro de vosotros, de unión con Dios. Es fácil hablar acerca de esto, cualquiera puede hablar de esto. Al principio, cuando fui a los Estados Unidos de Norteamérica, la gente decía: “debe usted conseguir una patente para sus charlas Madre”. Yo, solamente les sonreía; les dije: ¿Por qué? Y me contestaron: Podrían usar sus palabras y las mismas cosas para su propio propósito y puede que le hagan mucho daño. Les dije que no, que está bien, que les dejaran hablar de esto porque eso es lo que tiene que pasar; la gente tiene que saber de esto. ¿Cual es el objeto de obtener una patente? No tomamos una patente para la luz del sol y la belleza de las estrellas. Se ha hecho para todos.

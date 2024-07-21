@@ -1,5 +1,6 @@
 Puja de cumpleaños, “La mente es un mito”. Delhi (India), 21 de Marzo 1996.
-[Falta la traducción de la primer parte que habla en Hindi] 
+
+[Falta la traducción de la primer parte que habla en Hindi]
 
 Hoy voy a hablaros de la mente, la gente no sabe lo que es la mente. Para los sahaja yoguis es muy fácil comprender que nosotros reaccionamos ante las cosas del exterior; la razón es que tenemos dos terribles tendencias, una es el ego y la otra es aquello a lo que se nos acostumbra, o bien podemos llamarla superego o condicionamiento. Por tanto, ambas cosas, nuestro ego y nuestro condicionamiento se están expresando constantemente en el exterior; y esta reacción, que está en nuestro interior no es sino una burbuja en el océano y esta burbuja nos mantiene lejos de la realidad. Estas burbujas son pensamientos que golpean vuestra cabeza constantemente y ni siquiera sabéis por qué vienen a vosotros; pero cuando dependéis de esta mente artificial que tenéis, entonces perdéis la discriminación o discernimiento para saber lo que está bien y lo que está mal. Es una mente en la que se originan todo tipo de cosas diabólicas, todas las peleas, las disputas, el sentimiento de posesividad, y finalmente la guerra también se origina ahí.
 

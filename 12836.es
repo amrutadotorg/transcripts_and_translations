@@ -1,4 +1,5 @@
 Programa público 26-7-1984
+
 Me inclino ante todos los buscadores de la verdad.
 
 Ayer hablamos del poder que yace dentro de nosotros, que es el poder del Espíritu Santo y, que tiene que darnos la autorrealización. Podéis decir que nunca habéis oído hablar de ello, es una idea muy nueva, pero es el conocimiento de las raíces. En Occidente tenemos el conocimiento del árbol. Entonces alguien debe tener el conocimiento de las raíces, no hay nada que objetar. Al igual que en Oriente la gente aprendió sobre la ciencia y otros conocimientos traídos por los occidentales, de la misma manera, cuando este árbol de la vida se hizo tan grande, también, hubo una búsqueda interior. Y cuando esta comenzó, ellos, en su proceso de meditación, descubrieron que dentro de nosotros reside el poder que nos puede dar la autorealización. Pero este descubrimiento es muy, muy antiguo. Lo que os estoy diciendo no es nada nuevo. Lo único es que hoy ha llegado el momento. Ha llegado el momento del florecimiento.

@@ -1,4 +1,5 @@
 Puja de Navidad, Ganapatipule (India), 25 de Diciembre de 2002.
+
 ¡Feliz Navidad a todos!
 
 Según Sahaja Yoga, Cristo reside en vuestro Agnya. Su vida refleja las cualidades de un alma realizada. A través de ella, nos enseña que no hay que tener lujuria ni avaricia.

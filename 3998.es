@@ -1,4 +1,5 @@
 Mahakali Puja
+
 Francia, París, 12-9-1990
 
 En Bélgica hemos celebrado el puja a Shri Bhairava. Pensé que ahora deberíamos tener un puja a Mahakali porque el trabajo de ayer en el programa público fue un trabajo de Mahakali. Mahakali tiene dos papeles, tiene dos extremos: por un lado Mahakali está llena de gozo, es la que otorga el gozo y se ocupa de que el discípulo esté gozoso, que tenga gozo. El gozo es la cualidad de Mahakali, veríais ayer en el programa como las mujeres de Francia sonreían y estaban gozosas, realmente es la primera ver que veo a las mujeres francesas sonreír y reir de esa manera. Es sorprendente ver lo gozosas que estaban y lo felices que se sentían; ésta es la energía de Mahakali, después de la realización, Ella os reír toda esta energía de gozo. Cuando hoy se lean los hombres de Mahakali en el Puja, comprenderéis el significado de todos sus poderes, de todas sus cualidades. Es realmente sorprendente y veréis cómo Ella os ha ayudado a sumergiros en el océano de gozo después de la realización.

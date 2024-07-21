@@ -1,5 +1,7 @@
 Shri Mahalakshmi Puja
+
 Munich, 8 de setiembre de 1984
+
 Hoy es el gran día del puja de Mahalaxmi. Mahalakshmi es una encarnación de Laxmi, el poder de Vishnu. Y solamente Ella encarna.
 
 Este principio de Mahalakshmi nace de Lakshmi, que es el poder de Shri Vishnu. Cuando en un ser humano penetra el deseo de ascender más alto, el principio de Laxmi se convierte en el principio de Mahalakshmi. Podemos decir que en Occidente la gente tiene la riqueza que da Laxmi, así que quisieron ascender por encima de ese principio, y llegan así a Mahalakshmi.

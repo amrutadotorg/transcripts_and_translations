@@ -1,10 +1,12 @@
 Mahashivaratri Puja
+
 New Delhi 16/3/1997
+
 Primero hablaré en hindi y luego en inglés. Somos gente tan cosmopolita que no se que lenguaje usar.
 
 [Shri Mataji habla en hindi hasta 21:39, falta la traducción del hindi]
 
-[Shri Mataji vuelve a hablar en inglés] 
+[Shri Mataji vuelve a hablar en inglés]
 
 Les estoy hablando sobre la adoración a Shiva, sobre qué debería ocurriros. Pero hoy, os voy a hablar sobre lo que sucede en vuestro interior cuando obtenéis la Realización. Hay once rudras situados aquí, once. Podemos decir que son partículas de poderes de Shiva, les llaman anshas, y todos ellos intentan eliminar o suprimir todas las falsas ideas que tenemos sobre la vida. Cuando la Kundalini se eleva, los once se iluminan. Y, por ejemplo, Buddha forma parte de ellos, Mahavira también. Todos ellos, lo que hacen es controlarnos para que no caigamos presa de varias cosas. Por ejemplo, tenemos un ego. Así que, Buddha cuidará la parte del ego.
 

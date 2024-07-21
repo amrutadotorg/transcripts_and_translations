@@ -1,4 +1,5 @@
 Adi Shakti Puja. Cabella Ligure, Italia. 6 de junio de 2004.
+
 La reunión de hoy es muy especial. También es un día muy especial lleno de bendiciones. El motivo es lo que se habla, canta y dice sobre el nacimiento del orden, el nacimiento del poder, el origen, el "Adi" [Lo Supremo] , lo Primordial y cómo este es responsable de la Creación de este gran Universo. Vosotros ya sabéis por qué ha comenzado y cómo funciona. No necesito hablar de esto.
 
 Pero hoy tenemos que hablar de este poder que está escondido en vuestros corazones y con el que podéis hacer cualquier cosa que queráis, crear un mundo nuevo, una nueva familia, unos valores nuevos, incluso cosas que todavía son desconocidas. Es algo muy posible, es muy posible y se está haciendo.

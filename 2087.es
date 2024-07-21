@@ -1,5 +1,7 @@
 Seminario, Mahamaya Shakti (por la mañana)
+
 Universidad de Birmingham, Inglaterra 20-4-1985
+
 Sabía que los ingleses fueron las personas más inteligentes, pero también debo decir que estas personas tienen una gran inteligencia para llegar siempre al punto correcto. Se dice que, al nivel del Sahasrara, la Diosa encarna como Mahamaya; porque el trabajo que Ella tiene que hacer es de una naturaleza muy distinta. Al nivel del corazón, el Anahata, Ella tiene que defender a los buscadores -solo defender- de las obstrucciones u obstáculos de las fuerzas malignas que no son tan sutiles, son superficiales, son como formas; formas humanas con las que resulta fácil luchar y matarlas.
 
 Pero al nivel del Sahasrara el trabajo es muy complicado. Primero, que el Sahasrara de los seres humanos ya es muy complicado, y no es que el tipo o clase sea muy precario sino que, además, cada país tiene su propia complicación que añadir al Sahasrara. Aparte de eso, en el Sahasrara tenemos las semillas de todos los centros, no solo de los siete centros con los que tratamos; y muchísimos nadis están en funcionamiento o son corregidos a través del Sahasrara.

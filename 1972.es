@@ -1,4 +1,5 @@
 Charla,  Shri Ganesha Jayanti. Pratishthan (India), 10 de Febrero de 2008.
+
 Hoy es un día muy importante para todos nosotros, los sahaja yoguis, porque se celebra el nacimiento de Shri Ganesha. Shri Ganesha es aquel al que adoramos y por el que obtuvimos nuestra Realización. Por mucho que le recordéis, hasta que no conozcáis sus cualidades especiales no podréis llegar a Él. Su cualidad más destacada es: que es la Encarnación del Supremo, de Brahma.
 
 Al venir a este mundo creó la música (sanget), el ritmo (tal) y las notas (sur). Solo por su gracia la gente se hace una con la música (tallen). ¡Un niño tan pequeño que llegó al mundo e hizo semejante trabajo! Ha dado muchísimo a todos y todavía hoy está activo. No importa cuántos pujas hagáis a Shri Ganesha, no es suficiente. Mucha gente dice: “No vemos a Shri Ganesha. Incluso después de adorarle tanto no conseguimos llegar a Él”.

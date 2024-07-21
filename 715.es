@@ -1,5 +1,7 @@
 Charla después del Sahasrara puja
+
 Alpe Motta, Italia 4-5-1986
+
 Estas canciones se cantan en los Himalayas y que se canten aquí también... Es extraordinario traerlas, desde tan lejos, para cantarlas aquí.
 
 Creo que ya os he dado una charla bastante larga y la reacción de algunos de vosotros ha sido muy buena, pudisteis absorberla muy bien; aunque, según decían, otros  se quedaban dormidos, esto ocurre por la negatividad. Tenéis que luchar contra vuestra propia negatividad. La negatividad es la que hace preguntas. Cuando yo hablo solo expreso la Verdad Absoluta; aun así hacéis preguntas y rechazáis lo que digo, y cuando empezáis a rechazar todo nada queda en vuestro cerebro, porque os quedáis anclados en la última frase y no estáis en el presente. Todo es como una fuga y, cuando os fugáis, os quedáis dormidos. Hoy he hecho el máximo esfuerzo para llevaros hacia vuestra mente consciente. Tenéis que estar conscientes. Tenéis que estar alerta. Esa es la cuestión, que hasta que no estéis conscientes no podéis ascender. Una persona que no sea normal, no puede ascender. Tenéis que haceros personas normales.

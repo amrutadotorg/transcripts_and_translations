@@ -1,5 +1,7 @@
 Mahalakshmi Puja: Madre Tierra
+
 Ashram de Surbiton. 21-8-1983
+
 Para decir algo acerca de la conexión entre Sahaja Yoga y la Madre Tierra. Es muy importante que entendamos el valor de la Madre Tierra. Ella ha sido muy amable con todos vosotros, Ella ha estado absorbiendo vuestras vibraciones, Ella os ha dado todo lo que veis a vuestro alrededor. Por tanto hoy tenemos que entender la conexión y la expresión simbólica de la Madre Tierra dentro de nosotros.
 
 También os he dicho antes que Kundalini, la cual está en la forma de tres vueltas y media, en el interior de un hueso triangular. Esta morada de Kundalini recibe el nombre de Mooladhara y su representación en el universo es la Madre Tierra, en el puja se representa como Kumbha.

@@ -1,6 +1,9 @@
 Makar Sankranti Puja
+
 Pratishthana - Puna, 14 de Enero de 2002
+
 (Traducción del texto en Marathi)
+
 El significado de Makar Sankranti es “Sankraman”, que quiere decir “el día que comienza un cambio”. En este día, el sol comienza a “desplazarse” hacia el hemisferio norte. En India, todos las fiestas se celebran según la posición de la luna, por eso tienen fechas diferentes cada año. Makar Sankranti se basa en la posición del sol y por esta razón se celebra el 14 de enero todos los años.
 
 Makar Sankranti indica el día en el que el Sol empieza a ser más fuerte. El calor del sol es bueno para los seres humanos. Gracias a este calor podemos caminar, podemos hablar... Pero los seres humanos también se enfadan debido al calor del sol, y por eso este día comemos jaggery1, para despertar la dulzura al hablar.

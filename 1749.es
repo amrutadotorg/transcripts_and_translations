@@ -1,5 +1,7 @@
 Shri Ganesha Puja
+
 Moscú, Rusia. 19-9-1994
+
 Hoy vamos a adorar a Shri Ganesha. Shri Ganesha reside en el chakra Mooladahara, no en el Mooladhara (hueso sacro). En el Mooladhara reside la Kundalini. Ella es la Madre de Shri Ganesha y la llamamos Gauri. Ayer ya visteis en la representación teatral cómo Shri Ganesha tenía cabeza de elefante.
 
 Todas estas cosas han ocurrido en otro mundo. Hay muchos mundos de los cuales sabemos muchas cosas a través de este mundo. Es una cuestión de nuestra consciencia. Ahora nos encontramos en el estado de consciencia humana, y desde ahí hemos ascendido a una consciencia más elevada a la que llamamos la cuarta dimensión. Esto no es posible sin la presencia de Shri Ganesha.

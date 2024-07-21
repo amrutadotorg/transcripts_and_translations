@@ -1,5 +1,7 @@
 Puja de cumpleaños
+
 Bombay, 21 de marzo de 1985
+
 [la traducción corresponde a la segunda parte que es en ingles, hasta el minuto 20 Shri Mataji habla en Marathi]
 
 Hoy es el día de Gauri. Gauri es quien, como una Virgen, creó a Shri Ganesha de la misma forma vosotros habéis recibido vuestra Realización. ¡De la misma manera!

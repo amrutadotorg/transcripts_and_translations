@@ -1,5 +1,7 @@
 Guru Nanak Puja
+
 Noida House - India 23-11-1999
+
 Hoy es el cumpleaños de Shri Guru Nanak. Se celebra por todo el mundo con más entusiasmo del que he visto en India. Por primera vez se ha anunciado en muchos periódicos y en diferentes medios.
 
 Guru Nanak siempre habló de Sahaja Yoga. Cualquier otra cosa, dijo, es sólo alardear. Acerca de la religión dijo que guardar el ayuno, ir de peregrinación, etc., son sólo formas de aparentar. Ahora tenéis que descubrir el poder que está en vosotros y establecerlo. Guru Nanak estuvo repitiendo lo mismo una y otra vez. Él nunca habló de rituales pero cuando vino Guru Teg-Bahadur hubo guerra con los líderes mahometanos. Por eso indicó que se tuvieran preparadas la Kada (brazalete de hierro) y la espada (kripan). Pero Guru Nanak siempre habló del espíritu. Lo explicó muy claramente, pero nadie tuvo en cuenta lo que había escrito. Simplemente ponían un dedo en las coplas y las leían. ¿Podíamos entenderle de esta manera? Si leemos sus escrituras apropiadamente y las absorbemos, toda la Shabad-Jalam (confusión) en que la mayoría de la gente está atrapada, llegará a su fin. ¡Ved la situación de los Sikhs!

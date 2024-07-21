@@ -1,5 +1,7 @@
 Seminario: "La Nueva Era"
+
 Plaw Hatch Hall, Inglaterra 16-11-1980
+
 Seminarios como este son muy útiles porque podéis escoger gente que esté muy seriamente interesada en Sahaja Yoga, que sea dedicada, que tenga pasión por Sahaja Yoga, que sienta qué es la cosa más importante de la vida.
 
 Os habréis dado cuenta de que vosotros sois los hombres y las mujeres de Dios. Y de que tenéis que estar preparados para enarbolar la bandera de la Nueva Era. De transformar Sahaja Yoga en Maha Yoga, en una vasta área de espiritualidad. Vosotros sois los canales y los que vais a generar esta energía. Si fuerais simplemente canales, entonces, vuestra responsabilidad habría sido mucho menor.

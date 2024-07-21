@@ -1,4 +1,5 @@
 Navaratri puja
+
 Cabella. 20 - 10 - 1996
 
 Como sabéis, hoy es un día especial. Estamos adorando a la Diosa, que vino a esta tierra nueve veces, para matar a todos los demonios, destruir toda negatividad y guiar a todos los bhaktas (devotos) hacia la adoración. Todo su trabajo ya ha sido descrito. Sin embargo, han vuelto nuevos tipos de demonios, nuevos tipos de gente negativa.

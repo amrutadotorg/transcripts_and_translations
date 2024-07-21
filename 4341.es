@@ -1,4 +1,5 @@
 Inaguración, concierto y  discurso de apertura de la nueva Academia de Música (trasncripción de la parte en inglés. Vaitarna (India), 1 de Enero de 2003
+
 Siento haber hablado en hindi, pero tener que hablar de mi padre en otro idioma me resulta muy difícil, aunque él fue un experto del inglés y solía leer mucho en esa lengua. Tenía su propia biblioteca de donde yo también aprendí inglés, pues mis estudios fueron en marathi. Yo nunca estudie hindi o inglés. Gracias a su biblioteca y a mi afición a la lectura, fui aprendiendo inglés y también hindi. Ahora todos dicen que hablo un inglés y un hindi muy buenos, y me sorprende porque para mí son lenguas extranjeras.
 
 Y cuando me matriculé tenía un libro muy pequeño en inglés y para ciencias también tuve un libro muy pequeño. Y desde luego cuando llegué a la facultad de medicina no hubo ninguna duda sobre mis idiomas, porque solía leer mucho. Por tanto, os aconsejaría a todos que leyerais, que leyerais más. Pero no leáis libros sin sentido, debéis leed libros famosos. Así es cómo mejoré los idiomas y lo tuve que hacer muy bien.

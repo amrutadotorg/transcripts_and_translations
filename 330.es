@@ -1,5 +1,7 @@
 Sahasrara Puja
+
 Cabella Ligure 5-5-1996
+
 Hoy estamos celebrando la apertura del Sahasrara y debo decir que fue un gran acontecimiento, fue un gran logro para toda la humanidad. Ni siquiera Yo pude verlo anteriormente, pero ahora lo veo con claridad, el hecho de que sin la Realización hubiera sido imposible dirigirse o hablar a la gente. Cuando tuvo lugar la apertura del Sahasrara pensé “¿cómo le voy a hablar a la gente de ello, si no me van a entender?” Pensé que incluso sería un gran error por mi parte el hablar del Sahasrara, porque en ninguna de las escrituras se menciona nada sobre este chakra; como mucho se menciona o se describe algo con mucha ambigüedad y la gente ni siquiera pensaba que pudiera existir un Reino más allá del Sahasrara. Uno debe entrar en este Reino que es el Reino de la Realidad.
 
 En aquel momento, cuando se produjo la apertura del Sahasrara sentí que me rodeaba una tremenda oscuridad y pensé que hasta que no hubiese muchas luces para alumbrar, la gente no se daría cuenta de lo importante que es tener luz.

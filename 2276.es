@@ -1,5 +1,7 @@
 Shri Krishna Puja
+
 Nueva Jersey, 8 de Junio de 1997
+
 Hemos decidido celebrar este puja en la tierra de Shri Krishna. La gente a veces me pregunta ¿cómo es que, siendo esta la tierra de Shri Krishna, las personas no son nada espirituales? ¿Cómo es que se pierden en “búsquedas” que no conducen a la Verdad? ¿Cómo es que la gente de América no tiene la consciencia suficiente como para reconocer la Verdad y saber lo que todavía tiene que encontrar?
 
 El tiempo de Shri Krishna fue, como sabéis, al menos dos mil años después de Shri Rama. Shri Rama estableció una fuerte disciplina como requisito para el crecimiento de los seres humanos. Todo funciona de acuerdo con el tiempo en el que ocurren las cosas. La gente era extremadamente rígida, disciplinada y perdió el contacto con la verdad. Los hombres abandonaban y maltrataban a sus esposas, hacían todo tipo de cosas en nombre de Shri Rama. Los seres humanos son muy dados a hacer siempre cosas que no están bien.

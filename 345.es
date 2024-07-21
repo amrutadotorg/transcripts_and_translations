@@ -1,5 +1,7 @@
 Sahasrara Puja
+
 Gorai Creek Bombay, 5 de Mayo de 1983
+
 En nombre de todos vosotros, doy las gracias a los sahaja yoguis de Bombay que han organizado todo esto y en mi propio nombre les digo muchas gracias a todos ellos. Han elegido un bonito lugar para todos nosotros. Es también un regalo de Dios el que en este momento esté sucediendo aquello de lo que os hablé, sentada bajo estos mismos árboles, acerca del Sahasrara. Hace catorce años (también podríamos decir que han pasado trece años y ahora ha comenzado el decimocuarto) se consumó esta gran tarea de la apertura del Sahasrara en este mundo. Os he hablado acerca de esto muchas veces, cada día del Sahasrara: lo que sucedió, cómo se hizo y cuál fue su importancia.
 
 Pero el decimocuarto aniversario es muy importante porque el hombre vive en catorce niveles y el día en que cruza el nivel decimocuarto se transforma en un sahaja yogui completo. Por tanto, en el día de hoy Sahaja Yoga se ha transformado en Sahaja Yogui.

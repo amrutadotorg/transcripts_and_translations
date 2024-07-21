@@ -1,4 +1,5 @@
 Segunda noche del Navaratri, 13 de Octubre, 2007, Sydney, Australia
+
 ¿Podéis oírme todos desde ahí? Aquellos que no me oigan, que levanten la mano. (Shri Mataji y los yoguis se ríen de la broma). Muy bien, gracias. Bueno, mejor que cantéis una canción. Lo siento, me lo acaban de decir y hay gente esperando (cantar).
 
 (El grupo ‘Music of Joy’ canta ‘Ayi singha pe sawar. Maiya’).

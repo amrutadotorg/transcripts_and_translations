@@ -1,4 +1,5 @@
-Mahashivaratri Puja (Hindi/Inglés). 
+Mahashivaratri Puja (Hindi/Inglés).
+
 Delhi (India), 9 de Febrero de 1991.
 
 Nos hemos reunido aquí para adorar a Shri Shiva. Se dice que Shiva es muy simple y muy inocente. Por esto es importante conocerle. El trabajo de la Kundalini es el trabajo de la Devi, que es quién hace esta creación de los seres animados e inanimados y en nuestro interior, en la forma de Kundalini, nos lleva hacia Shri Shiva. Mientras adoramos a Shri Shiva, debemos ver si sus cualidades se han desarrollado dentro de nosotros o no. Por esto es por lo que, primero, debemos  entender la Kundalini.

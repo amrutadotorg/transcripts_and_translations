@@ -1,4 +1,5 @@
 Concepto y realidad
+
 Nueva Delhi, India. 28 Marzo 1983
 
 Me inclino ante todos los buscadores de la Verdad. Antes que nada me gustaría agradecer al Dr. Nagendra Singhi el haber sido tan amable en esta ocasión. De hecho, siempre le he tratado como a mi Jyéstha (hermano mayor del esposo), e incluso encuentro difícil buscar la manera de expresar mi gratitud por haber venido y haberles hablado de Mí, a quienes ha conocido desde hace muchos años.

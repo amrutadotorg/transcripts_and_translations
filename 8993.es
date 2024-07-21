@@ -9,7 +9,7 @@ Otro problema que tenemos es que entendemos todo a través del dinero. Pero si 
 Entonces debemos saber que cualquier cosa que debe sucedernos, tiene que suceder mediante un proceso viviente, sin pagar por ello y sin ningún esfuerzo de nuestra parte. Esto es muy difícil de aceptar, para nosotros los seres humanos. Pero es un hecho que no podemos hacer nada acerca de esto.
 Existe dentro de ti el poder, la energía que se llama el Espíritu Santo (o Kundalini). Está en este hueso triangular. Este hueso se llama hueso sacro, lo que significa que los Griegos sabían que era un hueso sagrado. Sin embargo, hemos fallado en el ascenso espiritual debido a que la gente no ha buscado su evolución o su segundo nacimiento en el sentido real, su actualización real.
 Cristo ha dicho tienen que nacer otra vez, y cuando Nicodemus le pregunto ¿cómo, tengo que entrar de vuelta en el vientre de mi madre? Él dijo no, lo que ha nacido de carne es carne.
-Tienen que nacer del Espíritu Santo. El Espíritu Santo es el poder de la Madre que da el segundo nacimiento. 
+Tienen que nacer del Espíritu Santo. El Espíritu Santo es el poder de la Madre que da el segundo nacimiento.
 Pero donde esta ese Espíritu Santo? Ese Espíritu Santo es el poder dentro de nosotros que reside en el hueso sacro, enrollado tres vueltas y medía. Cuando este poder se despierta dentro ustedes, obtienen la actualización de su segundo nacimiento. Es una actualización, no es solamente un bautismo artificial, donde alguien pone la mano en tu cabeza y dicen, “bueno, ya eres cristiano” o “has nacido de nuevo”... No es así, tiene que suceder por sí mismo.
 
 Todos poseemos esta energía dentro de nosotros. Es el epítome de nuestra evolución. Debemos descifrarlo ahora. Esto tiene que suceder dentro de nosotros. Es un proceso viviente muy simple. Como una semillita puede germinar por sí misma, de la misma manera, esta energía se eleva dentro de ti.
@@ -38,7 +38,7 @@ En Sanscrito, tanto a un alma realizada como a las aves se le llama dvija. Dvija
 Ustedes pueden ver en este diagrama como hemos desarrollado dos instituciones dentro de nosotros, una a través de nuestros condicionamientos o super ego y la otra a través de nuestro trabajo, el ego. Estas dos instituciones convergen en el área del hueso de la fontanela, cerrándola y convirtiéndonos en un huevo humano. Así, el “yo” se desarrolla: yo soy indio, yo soy español, yo soy esto o lo otro. En este estado, aun cuando ustedes pudieran tener la creencia que todos somos uno, es solo una proyección mental. Pero cuando este huevo se rompe y ustedes surgen como una nueva persona, entonces se dan cuenta que realmente son parte de una unidad. Se actualizan. Actualmente sienten que son uno y lo mismo, porque pueden sentir a otros en las puntas de los dedos, pueden sentirse a sí mismos en la punta de sus dedos. Así lo sabemos definitivamente.
 
 Hoy veo que aquí hay muchos buscadores de la verdad y estoy feliz de conocerles. Por Gracia Divina, su actualización debería de sucederle a todos hoy mismo.
-Hace como 100 años, existió un poeta llamado William Blake que ha descrito a los buscadores de la verdad como la gente de Dios. Él ha dicho que los hombres de Dios deben convertirse en profetas y que tendrán los poderes de transformar a otros en profetas. Y esto es lo que debe suceder, por lo cual no se puede pagar y no se puede hacer nada. Como una vela encendida puede encender otra vela, así se obtiene la iluminación. Ustedes están listos para ello y es su derecho de nacimiento recibirla. 
+Hace como 100 años, existió un poeta llamado William Blake que ha descrito a los buscadores de la verdad como la gente de Dios. Él ha dicho que los hombres de Dios deben convertirse en profetas y que tendrán los poderes de transformar a otros en profetas. Y esto es lo que debe suceder, por lo cual no se puede pagar y no se puede hacer nada. Como una vela encendida puede encender otra vela, así se obtiene la iluminación. Ustedes están listos para ello y es su derecho de nacimiento recibirla.
 Al convertirse en esa vela encendida, ustedes pueden iluminar a otros.
 
 Una persona que vive en el campo, en India, ha dado realización a diez mil personas. De esto, han sido testigos estos yoguis (los yoguis que la acompañan en esta ocasión).
@@ -48,14 +48,14 @@ En el occidente, nos hemos desarrollado como la parte exterior del árbol, pero
 
 Espero que hoy obtendrán su realización, al menos la mayoría de ustedes y mañana les explicaré acerca de los centros energéticos. De seguro se han dado cuenta que este conocimiento es ilimitado y que no puedo cubrirlo completamente en una o dos charlas. Cuando se transformen en el Espíritu podrán obtener el conocimiento por ustedes mismos. Para esto no tiene que ir a la universidad ni tomar ningún curso especial. No hay curso en esto, hay que devenir. Transformarse es el objetivo.
 
-Ahora, a todos ustedes que buscan la verdad, les pido humildemente que olviden cualquier cosa que han hecho anteriormente para encontrar el Espíritu. Deben saber ahora que para encontrarlo no deben buscarlo sino que deben convertirse en el Espíritu. Encuentro que en occidente, las personas pagan por buscar el Espíritu, desperdician mucho dinero. Luego se enredan es la búsqueda y se pierden completamente. No quieren cambiar sus ideas de ninguna manera. He visto que en la búsqueda, muchos se convierten en personas anormales. Se enferman, se convierten en epilépticos, tienen problemas de corazón, toda clase de problemas. Sin embargo una persona divina tiene que ser muy saludable y llena de paz. Tiene que ser muy sabia y extremadamente compasiva. Y también debe tener poderes para saber si otra persona es realizada o no. 
-En todos los países están naciendo muchos niños realizados. Pero la gente no sabe que clase de hijos tienen! No saben cuidar estas grandes almas que han venido a esta tierra. Y tienen un ego tan grande que no quieren aceptar que sus hijos pudieran ser almas tan inteligentes. Pero yo sé que esos niños son inteligentes. 
+Ahora, a todos ustedes que buscan la verdad, les pido humildemente que olviden cualquier cosa que han hecho anteriormente para encontrar el Espíritu. Deben saber ahora que para encontrarlo no deben buscarlo sino que deben convertirse en el Espíritu. Encuentro que en occidente, las personas pagan por buscar el Espíritu, desperdician mucho dinero. Luego se enredan es la búsqueda y se pierden completamente. No quieren cambiar sus ideas de ninguna manera. He visto que en la búsqueda, muchos se convierten en personas anormales. Se enferman, se convierten en epilépticos, tienen problemas de corazón, toda clase de problemas. Sin embargo una persona divina tiene que ser muy saludable y llena de paz. Tiene que ser muy sabia y extremadamente compasiva. Y también debe tener poderes para saber si otra persona es realizada o no.
+En todos los países están naciendo muchos niños realizados. Pero la gente no sabe que clase de hijos tienen! No saben cuidar estas grandes almas que han venido a esta tierra. Y tienen un ego tan grande que no quieren aceptar que sus hijos pudieran ser almas tan inteligentes. Pero yo sé que esos niños son inteligentes.
 En España también han nacido muchos niños que son gente grandiosa. Así que es apropiado que los padres tengan su realización. Para resolver los problemas maritales, cualquier problema, también financieros, lo mejor es que tengan su realización. Ustedes no conocen las maneras de actuar de Dios, que tan grande es Su alcance. Krishna ha dicho “yogakshemam vahamyaham”, que significa “primero acepten su yoga y entonces cuidare de su bienestar”. Este Yoga no es una actividad física, se trata de la unión con lo Divino (yoga en Sanscrito= unión con Dios). Y también tiene otro significado: “kaushalam” (excelencia en acción) que significa la profundidad alcanzada para saber usar el yoga.
 
 Esto es como hablar de la televisión: si ustedes van a una aldea pequeña en la India y le dicen a la gente que a través de la televisión pueden ver muchas imágenes, no se los creerán. Pero si conectan la televisión a la red eléctrica y la encienden, ellos verán que fantástico es. Si este instrumento no esta conectado a la red eléctrica, no sirve de nada. De la misma manera, Si ustedes solo hablan de la conexión sin realmente conectarse a la red, nunca obtendrán ayuda para ascender. Además, el significado de Sahaja es: Saha significa “con” y Ja significa “innato”. Es decir, es tan simple. Es espontáneo y pasa de manera muy simple. Les debe suceder, les pertenece, más vale tener este despertar.
 
-Hace como 100 años atrás, se escribieron libros horribles en contra del despertar de la Kundalini. Esto no tiene ninguna relevancia acerca del conocimiento tradicional de la Kundalini. Empezó como algo nuevo para las Américas o para los occidentales que siempre buscan algo nuevo. Pero todo conocimiento debe tener un antecedente tradicional, no puede empezar de la nada. 
-Toda clase de ideas sin sentido y personas que querían hacer dinero llegaron al oeste y los explotaron. Lo siento mucho. Estas personas se aprovecharon de su ingenuidad y lo lamento mucho. 
+Hace como 100 años atrás, se escribieron libros horribles en contra del despertar de la Kundalini. Esto no tiene ninguna relevancia acerca del conocimiento tradicional de la Kundalini. Empezó como algo nuevo para las Américas o para los occidentales que siempre buscan algo nuevo. Pero todo conocimiento debe tener un antecedente tradicional, no puede empezar de la nada.
+Toda clase de ideas sin sentido y personas que querían hacer dinero llegaron al oeste y los explotaron. Lo siento mucho. Estas personas se aprovecharon de su ingenuidad y lo lamento mucho.
 
 Estoy segura que obtendrán su realización, a pesar de cualquier cosa que hayan hecho, porque ustedes son buscadores de la verdad.
 
@@ -99,10 +99,10 @@ Shri Mataji le pregunta al yogui que es su interprete: ¿Cuánto tiempo has pra
 
 Yogui: “desde el 82, Mataji. Tres años”
 
-Shri Mataji: Jose solo tiene tres años practicando Sahaja Yoga y le pueden hacer cualquier pregunta, él les puede responder (risas). Es verdad, sin duda. Él es muy humilde pero sabe todo, porque es humilde, por eso. ¿Tú no les has dicho esto? ¡Lo sabía! (risas). ¡Está bien! 
+Shri Mataji: Jose solo tiene tres años practicando Sahaja Yoga y le pueden hacer cualquier pregunta, él les puede responder (risas). Es verdad, sin duda. Él es muy humilde pero sabe todo, porque es humilde, por eso. ¿Tú no les has dicho esto? ¡Lo sabía! (risas). ¡Está bien!
 Creo que ahora debemos dejar de hacer preguntas. ¡Los españoles preguntan demasiado! (bromeando). Esta será la impresión que me llevare sino dejan de preguntar. Esto no funcionara (refiriéndose a la elevación de la Kundalini) porque me hacen preguntas. No hay gravedad en esto. Si debe funcionar, funcionará. Yo quiero que esto funcione, pero si todos están así....
 
-Pregunta: yo fui a una reunión de control mental y ahí nos ensenaron a usar nuestra energía. 
+Pregunta: yo fui a una reunión de control mental y ahí nos ensenaron a usar nuestra energía.
 Al interprete:¿Ella quiere decir algo (refiriéndose a Shri Mataji)?
 
 Interprete: No, ella quiere escuchar.
@@ -138,22 +138,22 @@ Yo me case con un caballero del norte de India y ahí, las mujeres casadas debe
 
 (El intérprete anuncia que la experiencia de Auto Realización va a comenzar)
 
-Shri Mataji: Lo único que les pido es que no molesten a los demás. Si deben irse, se pueden ir ahora. Son solo 5, 10 minutos que tomaremos pero no molesten a los demás, deben ser cívicos. 
+Shri Mataji: Lo único que les pido es que no molesten a los demás. Si deben irse, se pueden ir ahora. Son solo 5, 10 minutos que tomaremos pero no molesten a los demás, deben ser cívicos.
 Y algo más, en el occidente es muy común que la gente se sienta culpable. ¡Muy culpable por nada! Así que primero deben perdonarse a sí mismos y saber que son el templo de Dios y que deben respetarse a sí mismos.
 Para que ustedes puedan elevar su propio Kundalini, les diré que chacras que deben tocar. La mano izquierda simboliza su deseo, así que deben extender su mano izquierda abierta hacia mí. Deben estar cómodos pero no se sienten encorvados. Ustedes son más jóvenes que yo así que se pueden sentar como yo me siento.
 
 Bien, pongan su mano izquierda hacia mí y usaremos la derecha para elevar la Kundalini al tocar los diferentes centros energéticos, como les instruiré. Primero les diré que estos centros son:
 
-Primero, el corazón donde el Espíritu reside. 
-Luego colocamos la mano en la parte superior del estómago, después en la parte inferior del estómago. Regresamos a la parte superior del estómago. 
-Subimos la mano al corazón. 
-Después ponemos la mano en la parte izquierda del cuello, lo que es muy importante porque la mayoría tiene este centro bloqueado debido a la culpa. Sentirse culpable es muy peligroso. 
+Primero, el corazón donde el Espíritu reside.
+Luego colocamos la mano en la parte superior del estómago, después en la parte inferior del estómago. Regresamos a la parte superior del estómago.
+Subimos la mano al corazón.
+Después ponemos la mano en la parte izquierda del cuello, lo que es muy importante porque la mayoría tiene este centro bloqueado debido a la culpa. Sentirse culpable es muy peligroso.
 De hecho, la espondilitis es causada por el sentimiento de culpabilidad o quizás les dé angina y enfermedades del corazón. Así que debemos entender que este centro es muy importante porque he visto que la gente occidental tienen este problema. Pongan su mano ahí desde el frente, no por atrás.
 
-A continuación deben poner su mano en la frente y después en la parte trasera de su cabeza. 
-Siguiendo, con la mano estirada pondrán la palma de la mano en el hueso de la fontanela y presionaran ahí, moviéndola siete veces. 
-Finalmente les pediré que bajen sus manos y podrán sentir la brisa fresca por encima de su cabeza y también en sus manos. Por primera vez verán el Poder Omnipresente y se convertirán en seres más sutiles. 
-Ahora deben cerrar los ojos. Nadie debe abrirlos por los próximos 5-10 minutos, ya que debemos atraer nuestra atención al interior. Extiendan su mano izquierda hacia mí y cierren sus ojos. 
+A continuación deben poner su mano en la frente y después en la parte trasera de su cabeza.
+Siguiendo, con la mano estirada pondrán la palma de la mano en el hueso de la fontanela y presionaran ahí, moviéndola siete veces.
+Finalmente les pediré que bajen sus manos y podrán sentir la brisa fresca por encima de su cabeza y también en sus manos. Por primera vez verán el Poder Omnipresente y se convertirán en seres más sutiles.
+Ahora deben cerrar los ojos. Nadie debe abrirlos por los próximos 5-10 minutos, ya que debemos atraer nuestra atención al interior. Extiendan su mano izquierda hacia mí y cierren sus ojos.
 Con mucho respeto a su propio ser, por favor pongan la mano derecha en su corazón con los ojos cerrados. Aquí pregúntenme algo fundamental: “¿Madre, soy el Espíritu?”. Tres veces.
 
 Para la segunda pregunta pongan su mano en la parte superior del estómago, en el lado izquierdo. Todo lo haremos en el lado izquierdo. Aquí harán otra pregunta fundamental. Si tú eres el espíritu te conviertes en tu propio maestro, en tu propio gurú y en tu propio guía. Así que pregunten tres veces “¿Madre, soy mi propio maestro? ¿Madre, soy mi propio gurú? ¿Madre, soy mi propio guía? Pregunten tres veces.
@@ -165,8 +165,8 @@ Dios es el océano de amor y gracia, pero por encima de todo es el océano de 
 Ahora pongan su mano en la frente. Sin importar cuantas veces, digan de corazón: “Madre, yo perdono a todos”.
 Es un mito que perdonamos o no perdonamos, pero cuando no perdonamos estamos del lado equivocado. Mejor decir: “Madre, perdono a todos”. Díganlo de corazón.
 
-En seguida, lleven su mano a la parte trasera de su cabeza y sosténganla apretando. Para satisfacción propia, digan: “Oh divino, si he hecho algo malo, por favor perdóname”. Apriétenla. 
-Estiren la mano y pónganla encima de la cabeza, en el área central del hueso de la fontanela y presionando fuerte, muevan la mano siete veces (de manera circular, en el sentido de las manecillas del reloj). Una vez más, yo no puedo infringir su libertad, ustedes deben pedir: “Madre, quiero mi realización, por favor dame realización”. Presionen con fuerza y díganlo siete veces, moviendo la mano (en círculo) siete veces. Presionen con fuerza. 
+En seguida, lleven su mano a la parte trasera de su cabeza y sosténganla apretando. Para satisfacción propia, digan: “Oh divino, si he hecho algo malo, por favor perdóname”. Apriétenla.
+Estiren la mano y pónganla encima de la cabeza, en el área central del hueso de la fontanela y presionando fuerte, muevan la mano siete veces (de manera circular, en el sentido de las manecillas del reloj). Una vez más, yo no puedo infringir su libertad, ustedes deben pedir: “Madre, quiero mi realización, por favor dame realización”. Presionen con fuerza y díganlo siete veces, moviendo la mano (en círculo) siete veces. Presionen con fuerza.
 
 (Madre sopla en el micrófono imitando el sonido del viento)
 
@@ -177,7 +177,7 @@ Ahora, para sentir al Todopoderoso, pongan sus brazos encima, así y pregunten 
 
 Bajen las manos, con las palmas abiertas hacia mí y vean si sienten algo en ellas, súbanlas más alto. Con el corazón, solo con el corazón. Algunos sienten más en la izquierda, algunos en la derecha.
 Para balancear los canales energéticos, pongan la izquierda hacia mí y la derecha apuntando a la Madre Tierra.
-Ahora pongan la derecha hacia mí y la izquierda doblada desde el codo, apuntando hacia arriba, con la palma hacia atrás. Dirijan ambas manos hacia mí y vean si sienten la brisa fresca. Es muy sutil. 
+Ahora pongan la derecha hacia mí y la izquierda doblada desde el codo, apuntando hacia arriba, con la palma hacia atrás. Dirijan ambas manos hacia mí y vean si sienten la brisa fresca. Es muy sutil.
 Si, les dije...ustedes son grandes buscadores. Muy silencioso. No está caliente. Me están mirando sin pensar. No piensen. Ustedes pueden hacerlo, no piensen. Están mas allá del pensamiento.
 Cuando vayan a casa no discutan, manténganse calmados y duérmanse. Mañana vengan tranquilamente. No deben hablar. Una vez que empiezan a pensar, pierden sus vibraciones.
 Les diré como protegerse. Todos deberían hacerlo. Deben proteger su aura.
@@ -190,7 +190,7 @@ Con la mano izquierda hacia me, tienen que proteger su aura con la derecha de es
 -Tres...Todos háganlo. Cuatro....cinco....los ayudara. Seis y siete.
 
 Ahora eleven su Kundalini tres veces. Su Kundalini esta por aquí cuando están sentados (a la altura de la cadera). Pongan su izquierda a esa altura. Deben hacer esto en casa. Y la derecha hace esta acción: hacia arriba hacia el frente y hacia abajo (alrededor de la mano izquierda). Mientras la izquierda se eleva hasta alcanzar la parte de arriba de la cabeza. Empecemos. Y hay que hacer un nudo, les diré como.
-Hagámoslo. Observen la mano izquierda. Relajen los hombros, inclinen la cabeza hacia atrás, denle una vuelta y hagan un nudo. Una vez más. Con la mirada en la mano izquierda, relajen los hombros, inclinen la cabeza hacia atrás, denle vuelta y un nudo. La tercera vez, hagan tres nudos. Eso es todo. Ahora más rápido. Ahora, uno...Otra vez, dos...De nuevo, tres. 
+Hagámoslo. Observen la mano izquierda. Relajen los hombros, inclinen la cabeza hacia atrás, denle una vuelta y hagan un nudo. Una vez más. Con la mirada en la mano izquierda, relajen los hombros, inclinen la cabeza hacia atrás, denle vuelta y un nudo. La tercera vez, hagan tres nudos. Eso es todo. Ahora más rápido. Ahora, uno...Otra vez, dos...De nuevo, tres.
 Chequen sus manos. ¿Mejor? ¿Cuantos han sentido la briza fresca emanando de su cabeza? ¿Y en sus dedos? Por favor alcen ambas manos. ¡Grandioso! Casi todos lo han sentido. Y los que no lo sintieron, lo sentirán mañana. Definitivo, se los prometo.
 Traigan a sus amigos. Llámenlos. Solo estaré aquí mañana. Muchas gracias.
 

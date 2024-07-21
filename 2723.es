@@ -1,5 +1,7 @@
 Gudi Padwa
+
 Palam Vihar, Gurgaon, India, 13-4-2002
+
 El festival de Gudi Padwa que celebramos hoy, también se celebra en otras partes de India, incluso en el sur.
 
 En todas partes se celebra este festival. El calendario "Samvat" y el calendario de los Shalivahanas, ambos comienzan el mismo día. Y ese día es hoy. En todo el país se celebra este día (el Año Nuevo). Todas las fechas importantes del año se ajustan en base a este día, especialmente los festivales. Nosotros, la gente de India, seguimos el calendario lunar, mientras que los occidentales siguen el calendario solar. Por eso las fechas de sus festivales no cambian. Pero aquí (en India) todos los festivales se basan en la posición de la luna. y por eso las fechas cambian, y un mismo festival cae en diferentes años en distintas fechas. La razón por la que damos importancia a la luna y mantenemos todas nuestras fechas de acuerdo a su posición es que la luna tiene una influencia sobre los seres humanos.

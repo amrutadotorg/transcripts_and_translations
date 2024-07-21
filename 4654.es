@@ -1,5 +1,7 @@
 Seminario, Abrid vuestros corazones
+
 Mill Farm Sherborne, Inglaterra 02-08-1981
+
 En qué lugar tan hermoso estamos todos. Es una bendición de Sahaja Yoga para que todos vosotros os relajéis. Relajaos bien, porque solamente en relajación os daréis cuenta de que: ahora somos almas realizadas, que hemos entrado en el Reino de los Cielos, que podemos ver toda la belleza que Dios ha creado alrededor de nosotros, que nos hemos vuelto sensibles a su gracia, su bondad y su amor.
 
 Habéis organizado un seminario y estoy muy contenta. Siempre he querido que organizarais seminarios, que os reunierais y vivierais juntos, y os comprendierais unos a otros.

@@ -1,4 +1,5 @@
 Shri Durga Mahakali Puja
+
 Francia 25 - 07-1992
 
 Hoy nos hemos dispuesto para hacer el puja a Shri Durga o “Kali”, que es el aspecto de la Diosa que destruye todo el mal y toda la negatividad.

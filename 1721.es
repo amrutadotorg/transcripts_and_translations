@@ -1,6 +1,9 @@
 (Falta la traducción de la primer parte que habla en Marathi)
+
 Bombay, 22 de marzo de 1984
+
 Sed dulces, amorosos y sosegados
+
 Acabo de decirles a los sahaja yoguis indios que no deberían intentar copiar el estilo occidental de la sociedad orientada hacia el ego, en la que la gente usa palabras rudas, pensando que así se modernizan. Utilizan palabras rudas como “¡A mí que me importa!”, todo ese tipo de frases que nosotros nunca hemos usado, que son desconocidas para nosotros. Decir esto a cualquier persona es incorrecto. ¿Cómo podéis decir “Te odio”? Pero ahora he visto a gente hablar de este modo. “¿Qué nos ocurre?” “¿Quiénes sois vosotros para decir eso?” Nosotros no hablamos así. Cualquier persona que venga de buena familia no podría hablar así, porque esto se refleja en la familia. Me sorprende la manera en que la gente habla en los autobuses, en los taxis. No puedo entender esta manera de utilizar el lenguaje; de modo que les he pedido que el lenguaje esté lleno de amor y dentro de nuestro estilo tradicional.
 
 La manera en la que regañamos a nuestros niños. Si tenemos que regañar a nuestros niños utilizamos un lenguaje que les haga honorables: Damle Sahab se ha puesto un kurtapijama, así que decimos “pareces un Shivaji Maharaj. Bienvenido, Shivaji Maharaj”. Deberíamos hablar un lenguaje así de respetuoso para que no se asusten.

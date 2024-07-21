@@ -1,4 +1,5 @@
 Diwali Puja. Novi Ligure, Italia. 25 de octubre de 1998.
+
 Me alegra muchísimo veros a todos aquí, para celebrar el Diwali Puja. Se suponía que lo íbamos a celebrar en Portugal pero, al final, nos hemos reunido aquí. Este es un Puja muy corto pero muy significativo. El primer día del Diwali se compra algo para la familia. Quizá algún utensilio para la cocina o alguna joya para la esposa o algo parecido; porque es el día del ama de casa y hay que celebrarlo como un homenaje a las amas de casa.
 
 Como resultado de esto sabéis que en India -incluso hoy día- las amas de casa son muy respetadas. De hecho, al ama de casa se la respeta en todo el mundo. Os sorprenderá que -incluso en el protocolo de las recepciones gubernamentales- la esposa sea muy importante, así como el lugar donde se sienta y su posición en cada acto social. Incluso hoy día -hasta en los países más modernos o “avanzados”- se tiene un especial respeto por la figura de la esposa, aunque esta no tenga mucha cultura y sea una mujer sencilla, es decir, aunque no sea muy moderna.

@@ -1,5 +1,7 @@
 Shri Rama Puja, día de Dassera
+
 Suiza, Les Avants 4-10-1987
+
 Hoy estamos celebrando en Suiza la coronación de Shri Rama en el día de Dassera.
 
 Ocurrieron muchas cosas en este día y la más importante fue que Shri Rama fue coronado rey. También mató a Ravana ese día. Puede que muchos se pregunten cómo es que Shri Rama mató a Ravana y fue coronado en la misma fecha. En aquellos días en lndia teníamos aviones supersónicos. Es un hecho y esos aviones se llamaban "pushpaka", que significa "flor"; se les llamaba pushpaka y alcanzaban una gran velocidad. Después de matar a Ravana fue a Ayodhya con su mujer y así es como fue coronado. En el noveno día adoró a la Diosa para obtener fuerza, obtener la Shakti para sus armas, y el décimo día mató a Ravana. Podéis imaginar lo muy avanzada que estaba la gente en los tiempos de Shri Rama y su reinado. La razón era que el rey fue una encarnación y al mismo tiempo un rey benevolente, tal como lo describió Sócrates. La historia de Shri Rama es muy interesante en su totalidad.

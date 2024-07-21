@@ -1,5 +1,7 @@
 Shri Krishna puja, Vishuddhi chakra
+
 Vienna, 04-09-1983
+
 Antes de ir a América, quería hablar más sobre el Vishuddhi chakra y sobre el aspecto de Shri Krishna dentro de nosotros. En el primer puja en Génova, hablé mucho acerca de ello, pero no tiene un fin, porque es el centro del Virata. Pero uno tiene que comprender que el mensaje de Shri Krishna era la entrega. Ahora bien, la entrega que nosotros pensamos vulgarmente es como un enemigo que se entrega a otro enemigo. Así, cuando se pronuncia la palabra "entregarse" erigimos nuestras barreras, pensando que tenemos que entregar algo a la otra parte. Pero cuando Shri Krishna hablaba acerca de entregarse, Él estaba diciendo "entregadme vuestros enemigos a mí para que me desembarace de ellos".
 
 Ahora bien el primer enemigo que tenemos es el ego. Y con el ego empiezan otra clase de problemas, porque él es la más grande barrera para nuestro conocimiento. Y el ego empieza, como sabéis, desde el Vishuddhi chakra, y puede ser absorbido por el Vishuddhi chakra.

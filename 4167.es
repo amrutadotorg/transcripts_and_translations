@@ -1,4 +1,5 @@
 Puja de Navidad. Ganapatipule (India), 25 de Diciembre de 1997.
+
 [Falta la traducción al español de la primer parte, que está en Hindi]
 
 Siento tener que hablar en Hindi, pero la mayoría de los que están aquí son indios, algunos hablan marathi, y otros son del norte de la India...

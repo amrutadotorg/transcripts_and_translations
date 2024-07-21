@@ -1,5 +1,7 @@
 Shri Krishna Puja
+
 8 de agosto de 2003, Puna - India
+
 Tenemos que darnos cuenta de que Sahaja Yoga se ha extendido mucho y en todo el mundo la gente respeta Sahaja Yoga pero, hasta que Sahaja Yoga no se manifieste completamente dentro de nosotros, la gente que respeta Sahaja Yoga no va a seguir haciéndolo. Por eso es esencial que miremos en nuestro interior y veamos qué cosas son las que nos traen problemas. Deberíamos descubrirlo. Deberíamos mirar hacia nosotros mismos, dentro de nosotros y eso no es tan difícil.
 
 Cuando queremos ver nuestro rostro nos miramos en el espejo. De la misma manera, cuando necesitamos ver nuestro Espíritu, deberíamos descubrir cómo verlo dentro de nosotros. Muchos sahaja yoguis me han preguntado: “Madre, ¿cómo podemos ver lo que está dentro de nosotros y cómo estamos?” Para ello es necesario que nos volvamos muy humildes. Si no tenemos humildad, nuestros propios pensamientos nos nublarán.

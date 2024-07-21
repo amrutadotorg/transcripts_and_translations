@@ -1,5 +1,7 @@
 Puja de cumpleaños
+
 Calcuta 21-03-1994
+
 Cada año celebramos el cumpleaños de diversas personas y cada año hacemos un voto prometiendo “este año no haré esto o no haré aquello”. Esta no es una forma muy buena de ver hasta dónde hemos llegado en la vida. Muchas personas que realmente han alcanzado un alto nivel en su vida espiritual no necesitaban un cumpleaños, sino que sentían que cada día era su cumpleaños; para comenzar de nuevo, para seguir adelante, para entender, para aprender, cada día era un año nuevo para ellos.
 
 En nuestra propia vida vemos que nuestro entorno cambia muy lentamente. A veces es chocante, a veces te sorprende ver cómo el entorno no ha cambiado; pero a nivel sutil hay un tremendo cambio que está teniendo lugar dentro y fuera de nosotros.

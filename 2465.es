@@ -1,4 +1,5 @@
 Guru Puja. Cabella Ligure, Italia. 4 de julio de 2004.
+
 Es para mí un gran placer, una gran alegría, ver que han venido tantos sahaja yoguis para el Guru Puja. Es muy gratificante pensar que sois tantísimos discípulos. Nunca esperé que un día me siguiera tal cantidad de gente. Lo que sí se espera de vosotros es que sigáis mi Mensaje de Amor.
 
 Yo no tengo que decir nada sobre el amor. El amor es un don absoluto, el don de sentir a los demás. De nada sirve hablar o debatir sobre él: sencillamente sentís el amor. Yo diría que para sentir el amor hay que tener corazón pero, ¿qué hacer para tener corazón? No es algo que podáis construir vosotros: está todo ahí. Lo tenéis, el hecho de que podáis sentir ese amor es algo que ya se os ha regalado; y es algo que proporciona mucho gozo y mucha paz.

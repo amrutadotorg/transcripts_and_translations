@@ -1,4 +1,5 @@
 Adi Shakti Puja
+
 Cabella Ligure, 26-06-1994
 
 Hoy hemos decidido tener un ADI SHAKTI Puja. Hay una diferencia entre hacer un Puja a Shakti Kundalini o a la Adi Kundalini y a la ADI SHAKTI. La diferencia es que, por una parte, la Kundalini se refleja en vosotros por la Adi Kundalini, y por otra parte está el poder de la Adi Shakti, que es el Paramchaitanya. Por tanto, si lo veis en su totalidad, tiene dos aspectos: uno es su poder, el Paramchaitanya y otro es su reflejo en los seres humanos como la Kundalini. El tercer trabajo que la Adi Shakti tenía que hacer era crear todo el Universo. En primer lugar, y como visteis ayer (en el audio-visual) se creó el Cosmos y después este planeta especial llamado Madre Tierra.

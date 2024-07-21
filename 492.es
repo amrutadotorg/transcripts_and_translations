@@ -1,4 +1,5 @@
 Diwali Puja. Lago Piru, Los Ángeles, Estados Unidos. 3 de noviembre de 2002.
+
 Os deseo un Diwali muy, muy feliz. Veros a todos aquí me hace sentir un gran gozo. Habéis aceptado Sahaja Yoga de una forma tan hermosa... Es algo vuestro, el Ser os pertenece, el Espíritu os pertenece. Pero “dedicarse” al Ser es difícil. Creo que, sencillamente, se están cumpliendo vuestros deseos. Y es por eso por lo que habéis recibido la Realización. Es algo que no se puede forzar, como muy bien habéis comprobado.
 
 Tiene que funcionar solo con vuestro deseo, con vuestra entrega. No sirve de nada hablar de ello o intentar convencer de ello, lo que funciona es vuestro deseo; tan simple como eso. El poder del deseo que reside en vuestro interior lo hace funcionar. Muchas personas, que no están aquí,  han recibido su Realización en distintas partes del mundo. Me acuerdo de todos ellos, y vosotros deberíais recordarlos también.

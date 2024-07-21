@@ -1,5 +1,7 @@
 La meditación: El viaje individual hacia la colectividad y la dicha
+
 Puja en Sydney 14-03-1983
+
 En estos momentos todos vosotros os habéis dado cuenta de que dentro de vosotros descansa la paz, la belleza y la gloria de vuestro ser. Hay todo un océano de ello, y no lo podemos buscar fuera; tenemos que ir hacia el interior. Es lo que se llama “estado de meditación”, vosotros lo buscáis y gozáis en él. Como cuando estáis sedientos y vais a un río o al océano para tratar de calmar vuestra sed. Pero ni siquiera el océano puede daros agua dulce. Por tanto, ¿cómo es posible que algo que se encuentre fuera pueda daros esa profundidad que está dentro de vosotros? Tratáis de buscarlo fuera, y es ahí donde no se encuentra. Está en vuestro interior, absolutamente en vuestro interior. Es así de simple porque es completamente vuestro. Está a vuestro alcance, ahí mismo.
 
 Sea lo que sea lo que habéis estado haciendo, saliendo fuera a buscar el gozo, el así llamado gozo, la así llamada felicidad, la así llamada gloria de los poderes mundanos, de las posesiones mundanas, ahora tenéis que ir en la otra dirección, tenéis que proyectaros hacia vuestro interior. No deberíais sentiros tristes por lo que habéis hecho hasta ahora. Simplemente no ha sido el procedimiento adecuado para alcanzar el verdadero gozo de la vida, la “gloria real” de vuestro ser.

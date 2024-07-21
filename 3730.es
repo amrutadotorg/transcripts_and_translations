@@ -1,5 +1,7 @@
 Puja de cumpleaños
+
 India, Delhi, 21 de Marzo de 1998
+
 Me ha llenado de gozo ver cómo habéis preparado esta hermosa bienvenida. Es vuestro amor el que os muestra formas tan distintas de expresar vuestro corazón y de disfrutar de Sahaja Yoga. No puedo entender cómo llegan a vosotros ideas tan especiales. ( Se hicieron banderas de todos los países que estaban representados en el Puja). Vosotros representáis cada uno a vuestro país. Deseo que, cuando volváis llevéis con vosotros estas banderas, junto con el mensaje de que el tiempo de resurrección ha llegado, y de que tenemos que ascender desde este nivel humano a otro superior. Si esto ocurre, vuestra vida cambiará mucho, seréis felices. Abandonaréis toda idea absurda que conlleve odio, y todo deseo de herir a los demás. Todas estas cosas sólo tienen el propósito de proporcionar un placer sádico a muchas personas que disfrutan destruyendo el gozo y la felicidad de los demás.
 
 Para conservar la felicidad, los sahaja yoguis tenéis que soportar mucho, tolerar muchas cosas absurdas, de hecho, ya lo habéis hecho y, gradualmente, a medida que Sahaja Yoga se vaya estableciendo en vuestros países como algo hermoso y puro, como algo muy importante, el resto de las personas se animará a seguir el camino que vosotros ya habréis recorrido. Vuestras vidas reflejarán la belleza de vuestro ser interior y de Sahaja Yoga.

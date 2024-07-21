@@ -1,5 +1,7 @@
 Puja de semana Santa
+
 Estambul - Turkia, 25 Abril de 1999
+
 Hoy nos hemos reunido aquí, en Estambul, para celebrar la resurrección de Cristo y la vuestra. La resurrección de Cristo fue un gran mensaje para nosotros. Él le ganó la batalla a la muerte, surgió de ella con un cuerpo “viviente”. Esto no es sólo algo simbólico, ocurrió de verdad. De hecho, Él era divino, una persona divina y todo esto pasó realmente.
 
 ¿Qué era la muerte para Él? Para los seres eternos, no existe la muerte. Para una persona eterna, la muerte no tiene sentido. Quizás, en un momento dado, puede que parezca muerta, pero no puede morir nunca. Cristo era así. Era una encarnación muy especial, que vino a esta tierra con el propósito de resucitar de la muerte.

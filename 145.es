@@ -1,4 +1,5 @@
 Guru puja, Inglaterra 27/07/1980
+
 Hoy hemos preparado esta adoración a vuestro Guru que, tal vez, es vuestra Madre. ¿Por qué se ha preparado este Puja? Deberíamos saber que es muy importante, para cada discípulo, adorar a su Guru. Pero el guru ha de ser un guru real, no uno que simplemente explota a los discípulos y no está autorizado por Dios. Se prepara un Puja porque habéis sido iniciados en las Leyes del Señor. Se os han dicho cuáles son los dharmas de un ser humano.
 
 En realidad, para esto no necesitáis un guru. Podéis leer un libro y saber cuáles son las Leyes del Señor. Pero un guru tiene que ver que las practicáis. Debéis practicar estas Leyes e integrarlas en vuestra propia vida; pero sin un guru, sin una fuerza correctora, es muy difícil seguirlo porque hay un gran salto entre la conciencia humana y la conciencia divina, y ese espacio solo lo puede llenar un guru que es en sí mismo completo.

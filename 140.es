@@ -1,4 +1,5 @@
 Shri Ganesha Puja. Cabella Ligure, Italia. 19 de septiembre de 1993.
+
 Hoy nos hemos reunido aquí para hacer el puja a Shri Ganesha. La primera deidad creada por la Adi Shakti fue Shri Ganesha, porque primero era necesario crear la deidad de los principios. La deidad de los principios en el sentido de que cualquier cosa creada, cualquier cosa que existe se le llama "bhava"; todo lo creado hasta el nivel humano, todo tenía que ser creado a través del mecanismo implantado la energía, de otro modo nada hubiera podido ser creado.
 
 Si estudiáis la composición molecular de la materia, por ejemplo el dióxido de azufre, y luego analizáis por separado el azufre y el oxígeno hasta llegar a su composición molecular, entonces observáis que estos átomos de oxígeno y azufre oscilan. Oscilan con una frecuencia determinada. Utilizan tres tipos de frecuencia. Imaginad dentro de la molécula, pensad en ello, dentro de la molécula de una sustancia hay una energía que está actuando. Puede que uno se pregunte, ¿por qué tiene que haber una energía dentro de la materia?
