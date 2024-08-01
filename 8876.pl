@@ -1,4 +1,7 @@
-Guru Puja. Cabella Ligure (Włochy), 20 Lipiec 2008.
+20 lipca 2008
+Jak Zostać Guru
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
 
 Dzisiaj jest bardzo wielki dzień dla wszystkich sahaja yoginów. Ponieważ Sahasrara otworzyła się w was i mogliście poczuliście istnienie Boga. Samo mówienie, że jest Bóg, nie wystarczyło. I mówienie, że nie ma Boga także było złe, bardzo złe, a ludzie, którzy tak mówili, narazili się na cierpienia. Dopiero po otrzymaniu realizacji wiecie, że Bóg istnieje i że istnieją wibracje. To bardzo wielkie otwarcie na całym świecie. Dziś mówię, że to dlatego jest to dla was jeden z największych dni.
 Wielu z was czuło chłodny powiew na dłoniach i z mózgu. Niektórzy rozwinęli się w Sahaja Yodze, niektórzy nie. Niektórzy nadal mają stare "catche". Teraz jednak muszę powiedzieć, że bardzo wielu z was może stać się guru. Czyli nauczycielami. I powinniście działać jak nauczyciele. Żeby działać jak nauczyciel, powinniście naprawdę gruntownie znać Sahaja Yogę, jej teorię i praktykę, a wówczas możecie stać się guru. To ogromna odpowiedzialność, jest mnóstwo do zrozumienia dla Guru.
