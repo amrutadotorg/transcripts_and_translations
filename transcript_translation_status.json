@@ -6452,6 +6452,10 @@
         "transcript-english-needed"
     ],
     [
+        72895,
+        "transcript-english-needed"
+    ],
+    [
         72904,
         "transcript-english-needed"
     ],
@@ -6801,6 +6805,10 @@
     ],
     [
         10128,
+        "transcript-english-not-needed"
+    ],
+    [
+        10129,
         "transcript-english-not-needed"
     ],
     [
@@ -7360,6 +7368,10 @@
         "transcript-english-not-needed"
     ],
     [
+        20091,
+        "transcript-english-not-needed"
+    ],
+    [
         20093,
         "transcript-english-not-needed"
     ],
@@ -7697,6 +7709,10 @@
     ],
     [
         43562,
+        "transcript-english-not-needed"
+    ],
+    [
+        43571,
         "transcript-english-not-needed"
     ],
     [
@@ -8205,6 +8221,10 @@
     ],
     [
         68051,
+        "transcript-english-not-needed"
+    ],
+    [
+        68095,
         "transcript-english-not-needed"
     ],
     [
@@ -12508,6 +12528,10 @@
         "transcript-hindi-draft-hi"
     ],
     [
+        63802,
+        "transcript-hindi-draft-hi"
+    ],
+    [
         19614,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13237,10 +13261,6 @@
     ],
     [
         62227,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        63802,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -14457,6 +14477,10 @@
     ],
     [
         72906,
+        "transcript-marathi-needed-mr"
+    ],
+    [
+        77069,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -17212,8 +17236,16 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        63788,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         65037,
         "translation-hindi-to-english-draft"
+    ],
+    [
+        77069,
+        "translation-hindi-to-english-draft-mr"
     ],
     [
         6891,
@@ -17685,10 +17717,6 @@
     ],
     [
         62226,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        63788,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -19332,6 +19360,10 @@
         "translation-marathi-to-english-needed"
     ],
     [
+        63788,
+        "translation-marathi-to-english-needed"
+    ],
+    [
         64239,
         "translation-marathi-to-english-needed"
     ],
@@ -19382,6 +19414,10 @@
     [
         72905,
         "translation-marathi-to-english-needed"
+    ],
+    [
+        77069,
+        "translation-marathi-to-english-needed-mr"
     ],
     [
         3797,
