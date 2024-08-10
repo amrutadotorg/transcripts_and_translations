@@ -1,3 +1,543 @@
-Brahmam Gardens, Earls Court, London (UK), 1982.
+29 October 1981
+Talk to Sahaja Yogis
+28 Bramham Gardens, London (England)
+Talk Language: English | Transcript (English) - Draft
 
-To co możemy dzisiaj zrobić, powinnam wam powiedzieć o praktycznej stronie medytacji, dobrze? Zobaczmy, czym jest medytacja, co możemy zrobić podczas medytacji. Pierwszym, co otrzymaliśmy jest lewa strona, to jest Mana Shakti, to jest siła waszych emocji, czyż nie? Emocje są połączone także z waszą prawą stroną, z Praną. Załóżmy na przykład, że ponoszą was emocje. Jeśli właśnie teraz poniosły nas emocje, to zaczęliśmy szybciej oddychać i czuliśmy, że całe nasze ciało reagowało, dlatego czuliśmy także reakcję Prany, czyli prawej strony, która w ten sposób próbowała się przejawić. Kiedy zaczynamy płakać, pojawia się element wody, i wszystko, co się pojawia, wszystkie te emocje tak bardzo wylewają się na zewnątrz, także nasza Prana jest w to zaangażowana. Załóżmy na przykład, że jesteście przestraszeni, jesteście przestraszeni, jeśli bardzo się czegoś boicie, to co się wtedy dzieje? Kiedy jesteście przestraszeni, zaczynacie również bardzo szybko oddychać, nieprawdaż? Zatem jest to połączone. Jest to więc połączone. Jeśli jesteście przestraszeni, jest to powiązane z waszą Praną w waszym oddychaniu, cały wasz system jest połączony z waszymi emocjami, system fizyczny. Jeśli często płaczecie lub za dużo łkacie, albo jesteście osobą smutną, będzie to widoczne na waszej twarzy. Wasze Vishuddhi także wskazuje na to, nie tylko Anahata, ale także Vishuddhi. Potem wasza Agnya również przestaje funkcjonować. Tak więc, wszystkie czakry odzwierciedlają lewą stronę w taki sposób, że ujawnia się to na poziomie fizycznym, Dowodzi to, że obie strony są ze sobą bardzo mocno powiązane. Zatem musimy w jakiś sposób rozpuścić te dwie strony w nas, tę lewą i prawą stronę, bo jeśli tego nie rozpuścicie, to jesteście w połowie drogi. Tak więc musicie rozpuścić te obie rzeczy. Co więc powinniśmy zrobić, aby je rozpuścić? Co możemy zrobić podczas medytacji? Czy macie jakieś sugestie? Powiedzmy, że mamy Pranę i Manę. Prana reprezentuje prawą stronę, a Mana Shakti to jest lewa strona, tak? Obie trzeba rozpuścić. Laya oznacza rozpuszczenie. A teraz, co zrobimy, aby rozpuścić te dwie rzeczy? One są ze sobą połączone. Po Realizacji a nie przed nią. Zatem przed medytacją wchodzimy w stan równowagi, której strony jest więcej a której jest mniej. W tym czasie. Załóżmy, że w tym czasie poniosły was emocje, wtedy musicie przerzucić prawą stronę na lewą. Jeśli macie w tym czasie zakłócenia na lewej stronie, mówiąc o zakłóceniu miałam na myśli to, że jeśli wasza lewa strona jest zamrożona, wtedy musicie podnieść lewą stronę i zrównoważyć się przed medytacją. A teraz zobaczmy przede wszystkim to, której strony jest mniej. Połóż ręce w ten sposób. Wszystko w porządku? Czy czujesz chłodny powiew? Czy odbierasz? (Shri Mataji mówi do małej dziewczynki) Kiedy już jesteście zrównoważeni, to najlepszą rzeczą jest skierować uwagę na swoje emocje, na Mana Shakti. Obserwujcie je. Możecie oświecić wasze emocje poprzez myślenie o waszej Matce, dobrze? Po prostu oświećcie je, a Ona rozwiąże te problemy, wszystkie problemy w Mana, czyż nie? Zatem, kiedy już będziecie połączeni z tymi emocjami i zaczniecie obserwować je w swojej medytacji, zobaczycie, że te emocje wzrastają w was i jeśli spróbujecie oddać te emocje waszej Matce, to znaczy oddać je Lotosowym Stopom waszej Matki, one także zaczną się rozpuszczać i staną się w pewien sposób...rozprzestrzenione, rozprzestrzenione. Zaczniecie to rozwijać w taki sposób, że poczujecie, iż kontrolujecie te emocje. Kontrolujecie je i dzięki kontroli tych emocji, wasze emocje, które są rozprzestrzenione, oświecone -- są bardzo potężne. A kiedy te emocje odczuwacie w ten sposób, przyczyna tych emocji może zostać rozwiązana. Np. właśnie teraz jesteśmy poruszeni emocjonalnie, bo opowiadałam, powiedzmy o tych dzieciach. Oczywiście, każdy by był. Kiedy jesteście tym poruszeni, składacie problem tych wzrastających w was uczuć, tych fal uczuć, które napływają, składacie do Lotosowych Stóp waszej Matki i one zostają dotknięte przez tę moc, można by powiedzieć. Wtedy te emocje zostają oświecone, a kiedy te emocje zostaną oświecone, mają moc rozwiązywania problemu. Czy rozumiecie? Kiedy one osiągną brzeg, gdzie znajdą się w zasięgu światła, wtedy ten problem może zostać rozwiązany. Z uwagi na to, że teraz nie jesteście pojedynczą komórką, jesteście w przestrzeni, jesteście w Samashti; a ponieważ osiągnęliście taką pozycję, macie te moce wejścia do ciała innej osoby, aby poczuć wibracje innej osoby, aby podnieść Kundalini -- w innym przypadku nie moglibyście tego zrobić. Zatem bardzo łatwo możecie to zrobić, bo Ja jestem tu przed wami we własnej osobie. A więc łatwo jest po prostu umieścić te emocje tutaj w ten sposób, że one zostają oświecone i wasze życzenia zostają spełnione, bo emocje są niczym innym jak życzeniami, życzeniami niespełnionymi. Zatem jak to się dzieje? Dzieje się to w ten sposób, że podnosicie te emocje i oddajecie je, jak gdyby te emocje były w rzeczywistości lewą stroną. Jak powiedziałam, są one pragnieniem. Zatem, bierze się to pragnienie, każde pragnienie, i umieszcza w Pranie. A jak umieszczacie to w Pranie? Poprzez kontrolowanie swojej Prany. Dlatego, widzicie, robi się Pranayamę. Na przykład, siedzicie teraz sobie bardzo wygodnie, macie jakieś pragnienie i kierujecie na to swoją uwagę. Wiecie, uwaga jest bardzo ważna. A teraz należy skierować tę uwagę na Pranę tak, żeby były emocje i wtedy umieśćcie te emocje w waszej uwadze, co oznacza, że teraz jesteście ich świadomi. I teraz, to co macie zrobić, to obserwować swoje oddychanie. Starajcie się zredukować swoje oddychanie, spowolnić je w taki sposób, że jak zrobicie wydech, to odczekajcie chwilę, a dopiero potem bierzcie długi wdech i wtedy zróbcie wydech. W ten sposób w ciągu jednej minuty będziecie oddychać rzadziej niż normalnie. Dobrze? Spróbujecie zrobić tak: zróbcie wdech z emocjami, utrzymajcie uwagę na tych emocjach tak, aby połączenie zostało ustanowione. Lepiej? Zobaczcie, Kundalini podnosi się. Kiedy oddychacie, to zauważacie, że pomiędzy oddechami jest przestrzeń, którą po prostu zostawiamy pustą. Zróbcie wdech i zostawcie pustą przestrzeń. Teraz wydech. Teraz zostawcie pustą przestrzeń. Zróbcie wdech i zatrzymajcie go. Potem wypuśćcie powietrze. Zatrzymajcie. Teraz wdech. Teraz zacznijcie oddychać w taki sposób, żeby wstrzymywać oddychanie. Wasza uwaga powinna być na sercu, albo powinna być na emocjach. Lepiej. Na chwilę zatrzymajcie powietrze, zróbcie wydech, potem zatrzymajcie oddech przez chwilę, potem to powtórzcie. Wtedy zauważycie, że przez chwilę nie będziecie oddychać. Widzicie, siedzicie spokojnie. Pomiędzy waszą Praną i Maną następuje Laya, obie Shakti stają się jednym. Teraz w tym stanie, gdy jesteście wyciszeni, pomyślcie o swoim intelekcie. Zniknął. Pomyślcie o tym, nie ma go, już go nie ma. To co się dzieje, w rzeczywistości to jest Laya, uwaga jest skierowana na intelekt i oświeca ten intelekt. Zobaczcie, nie ma już myśli. Spróbujcie odnaleźć swój intelekt w sobie, spróbujcie zobaczyć „gdzie jest mój intelekt?" Spróbujcie go odnaleźć. Nie ma go tam. Nie funkcjonuje. Spróbujcie ponownie. On działa, ale teraz stał się samashti. Stał się teraz kolektywny. Ha! Widzicie? Czy nadążacie? Nie ma myśli. To ćwiczenie da wam świadomość bez myśli, ustabilizuje świadomość bez myśli. Nie ma myśli.
+Practical session with Sahaja yogis, Bramham Court Ashram, 28 Brahmam Gardens, London, UK, 29th October 1981.
+
+Shri Mataji: All right? Good, good. How are you? How is the Baby?
+
+YOGINI: It feels good.
+
+SHRTI MATAJI: [Shri Mataji laughs] Hmm. Yeah. How to keep the [INDIST.]. Hallo! We give a Bandhan. Really I have forgotten. What was that about? Hmm? [to the Baby:] No, no, no, nolu, nolu, hoho. Hoho, oh ho. [all laugh] Oh. Oh. Oh. Haha. Haha. [all laugh] Aha. Haa? Aha, haa ...
+
+BABY: Hm. [all laugh]
+
+Shri Mataji: He like it. [Baby breezes loudly]
+Yesterday’s picture upset Me so much, I couldn’t sleep the whole night. Horrifying - in one city there are three thousand children on the list who are battered and out of which every week six are killed. Can you imagine? Six are killed every week – I mean shame-full it is, I tell you. I used to think in the whole of England. It is only in one city. In Birmingham I think it was. Three-thousand children on the list and every week six are killed.
+
+Yogi: Now what use to work for the NSPCC Mother? The national, that is the national society for the prevention of cruelty to children.
+
+Shri Mataji: Ah, where?
+
+Yogi: And my wife used to work for them and ....
+
+Shri Mataji: Where was that?
+
+YOGINI: In London but it [INDIST.] country.
+
+Shri Mataji: Ah?
+
+YOGINI: [INDIST.] here to London [INDIST.]
+
+Shri Mataji: In London it is a?
+
+Yogi: Yes.
+
+Shri Mataji: It’s hor- ...
+
+YOGINI: [INDIST.]
+
+Shri Mataji: ... just imagine!
+
+Yogi: There branch is all over the country, Mother, and they cannot called, and they were on one point a million pounds in that because they cannot call with all the children they have to care for.
+
+Shri Mataji: Yes, and they showed some children, it’s such a mess I tell you. Why I just couldn’t sleep last night, the whole night I couldn’t sleep.
+
+ANOTHER Yogi: Some of the cases, Mother, which is horrifying. Children who have been taken by their mothers and there was a picture of one child who had been burned with the bars with an electric fire. The mother had taken the child and done this to it. Others were they had boiling water pulled on them. One child who had a father who had taken a cigarette on the child, had marks all over its body. This – I mean – and that is not rare, I cannot say that is ...
+
+Shri Mataji: Where I told you, how can they do it? What sort of parents these are? They are off their heads completely. Completely off their heads I tell you. One there was one girl, she battered the boy so much and then the boy was recovered and all that - so sweetly came back to her, loved her and kissed her – you know – he had forgiven here completely, such a sweet thing and how can they do it? I just can’t understand.
+
+Yogi: When one hears about it, Mother. Nay. You look at small children who are cracking, I mean these children are cracked.
+
+Shri Mataji: So small as that!
+
+ANOTHER Yogi: Now children like this, children weeks old even, Children smaller then Greg, yeah as nice as ...
+
+Shri Mataji: Where have they done that?
+
+Yogi: [breezes loudly]
+
+Shri Mataji: But why do they do it?
+
+Yogi: Not feeding them, starving them in cases were the children have been starved.
+
+Shri Mataji: But why, why do they, what do they say, what is the reason?
+
+YOGINI: They don’t know the reason, they say it’s emotional things but they don’t, [INDIST.] like the husband told her [INDIST.].
+
+Yogi: If the husband is left, you know, the woman left to call the children and quiet often is that point [INDIST.]
+
+Shri Mataji: But in one case yesterday the husband he was looking like a rakshasa, I tell you. And it was the husband who was beating the child. And he was put in jail and came out and another child was to be born and they said the wife cannot stay with it. So he said, why not I have seen people breaking the rips of the children and they are still there. And why me of all the thing? Horrible! It’s real hell I tell you.
+
+Yogi: And they get away with the mother in many, many cases. Ah there is one parent - ....
+
+Shri Mataji: This is the maximum here I believe. In America they don’t have this much. I don’t know how they - ...
+
+Yogi: They have it, but ... I mean the scale how much is going on in this country is ... sort of a crime.
+
+Shri Mataji: What happened to people, are their hearts frozen?
+
+Yogi: It’s because, in most cases resent of the child, the parents might resent the child, so they hate them at the end. The child is vulnerable, you know, people who have hate-feelings in them, they have a small child, who is defenseless and they take it out on the child. This is ....
+
+[Baby breezes loudly]
+
+SHRI MATAJI: Oh God. Oh God, [INDIST.SOUNDS LIKE: what is it?]. I couldn’t sleep the whole night, I just couldn’t bare it, but I don’t know. I used to think two children in the whole week in England was too much for Me, but it’s in one place? And in one place!
+
+[Baby breezes loudly and makes a little noise]
+
+[to the Baby:] Better. You get enough, you are pet enough. You are pet enough. Isn’t it? You are pet enough. Ah, aha, ah. How much better? Hm. Hm.
+
+[Baby breezes loudly and makes a little noise]
+
+He is holding his head.
+
+Yogi: Hm. He is, he is trying to sit up [INDIST.].
+
+Shri Mataji: Hm. [baby breezes] He is all right now. He is all right. I have cooled him
+down on the head. I have cooled him down.
+
+[Baby breezes loudly and makes a little noise]
+
+This is on the increase, that’s the main point.
+
+[Baby makes some noise]
+
+Must be possessed I think this people! They have no heart.
+
+Yogi: So I just can’t understand how someone can do it. I mean, looking at my son, my daughter – I don’t understand the matter how angry I feel, when I could be made very angry, I could see a wrong somewhere, I mean many times I felt hate, but I mean how can you take out on tiny children. [Baby breezes loudly] I did not understand [Shri Mataji laughs to the baby] how anger you feel, you know the child, the children -....
+
+Shri Mataji: I mean, you see, I feel more, I agree with this people the way they are behaving than anything else. How can children be born here? Just [INDIST.SOUNDS LIKE: think it]! What a place it is.
+[Baby breezes loudly] [to the baby:] It’s all right. Now better? All right? How much is that? Gail, if you go and ask that boy, that while cleaning My room, please open the window, because you see hermetical I felt for three days. [Shri Mataji laughs] You are better. You still off? Who is the [INDIST.]? Really? [all laugh]
+
+YOGINI: Come on Greg.
+
+Yogi: Yeahh!
+
+Shri Mataji: It’s all right now, have it.
+
+Yogi: Ah! Ah!
+
+ANOTHER Yogi: Mister [INDIST.] just come back from shopping.
+
+Shri Mataji: Oh I see.
+
+Yogi: And then ah –
+
+Shri Mataji: [to the baby: ] Hello! Hello! [Shri Mataji laughs] Now, lalalalala there. Not there. Not there. Not there. Not there. You are all right.
+Now the dilatation of the people have taken place ... it’s all right ...
+[to the baby:] Yes! Yes! What has happened now, are you all right? Are you all right? You want to come now? Now come, you want to come to Me, ah? First you were crying, now you want to come to Me. You felt very cool and nice? Did you? [Shri Mataji laughs] How are you? All right? [Shri Mataji laughs] Now you are laughing, now you are laughing, now knowing, otherwise he didn’t know before. Ha? What was it? You want to come to Me? [Shri Mataji laughs] Trying to come to Me? All right? How many children have I to carry now in a program? [all laugh] Like jail- [INDIST.] she goes on crying till I take her. And now - oohohh. [all laugh] So, let’s – ah – I want to have something practical. You’ll have it. Please sit down. I didn’t? [Yogis laugh, Shri Mataji too]
+
+[to a Baby:] Hello! Hello!
+
+It’s better now. A little caught up on the left, I don’t know why. Left side. Ah, you don’t go to any psychologist or anyone, nothing like that, never? You don’t go near ... the tradition is not then, may seem [INDIST.] but it is tradition and if you, if you had the tradition – like We have in India – to their fitted just like [Shri Mataji snaps], that’s what happens. Once they get their realization they know it is realization, like you must say it that day, isn’t it? He said, it’s like a setting we have got, We just find the diamond that is setted there. That’s the thing We see there and ego comes up and the rigid because they can’t accept Me as anything, but as Christians you can talk to them that Christ has said, I’ll send you a Comforter and a Councilor and a Redeemer. You should say these are the three qualities Mother has. She is a Comforter and She is also a Councilor and She is a Redeemer. She has redeemed so many people. And these three qualities are nothing but Mahakali, Mahasaraswati and Mahalakshmis – they are the three qualities. So He said it in His own style and that’s how We interpreted in our own style but this is what it is. And if that is so, then why to reject? I mean, Christ has said that, nothing against Her will be tolerated.
+
+Yogi: Seems to be like You mentioned recently, some people will come and then they might have a stomach-pain or they might have a problem and they, and they come and You make them well again and they go away and then the next year they come back and they say, Mother we don’t believe, but make us well. It is it people are coming to You ... [Shri Mataji laughs] ... for a little while ... Do you made to feel happy? And ... but you know well ... thanks! ... and close your mind again [Shri Mataji laughs a lot].
+
+Shri Mataji: That’s typically western you know?
+
+Yogi: Yes. People go away and they think about it. They shouldn’t stay in it and enjoying it, they go away, they think about it.
+
+Shri Mataji: What can you think? You see, they didn’t get well by thinking. What we should do, give them a big Mantra is: Don’t think! Don’t think! Don’t think!
+
+[Yogis laugh]
+
+Yogi: Like the children.
+
+Shri Mataji: I think that would be a good idea. You see, so many people have come – I tell you – and so many have got their realization, but how many have stayed is the point. Actually, in Sahaja Yoga it is easy to get realization, no doubt – but to maintain it and to rise is not so simple as you think it and We have to work it out. Ah though Kundalini helps you a lot, but still you have to work it out. In the Vedas you should see these people are called as, human beings are called as Pashus. Pashus means the ones which are under bondage. Actually the animals name is the same – Pashus. So they are under bondage of their problems like temper, lust, greed, hatred ... They are under the bondage of all these things, under the bondage of their senses. Now when they are realized, then their eyes open. That’s called as [INDIST.], their eyes are open. Now so they get a new category of people, you see now they start feeling the collective. That’s called as samaschty. So the individual which is bound is opened out, but after that – you see – that’s not the only Shakti, the power on which one can live. You have to develop other powers which are under line and the power underlying us is to get over this first bondage is and that getting over is also sort of manifes-, it is many fold. When you start getting over it, you don’t realize how many powers you have got. You have got the power to enter into the body of another person, otherwise how do you know, what another person has got? You see your Aura can enter into another personality and can feel another personality, the vibrations of that person – imagine! You have a power to enter it, otherwise how can you find out anyone. Now think of a person who is not realized – can you find out what’s wrong with him? But we take it for granted, we don’t realize it it’s such a big power you have got. A Siddhi - to enter into the body of another person by which you can feel that person, you can know about that person, you can raise the Kundalini, you can give Realization. Imagine! All these Siddhis, you got all Siddhis in one shot. And people used to work so hard for it and do it. Now if you are made to work very hard for it, then maybe you may realize the value of that. You see but there is no time. Like – ah - he was telling Me – David Brawl – that if you put a big photograph somewhere it could be cheap Mother, but if You consider it and We asked people, put your hands towards, see if the cool breeze is coming? I said, but what it is? There will be no identification with ah, with Me and then that’s not going to work out. See, they have to know that I have done it and they have to identify. This is the condition.
+
+[the baby breezes] Better now? Feeling better?
+
+So now how many are there coming from that area?
+
+Yogi: There are four, there are four of us who regularly come to meetings – with myself.
+
+Shri Mataji: But there you can have a program.
+
+Yogi: We are going to, Mother and ....
+
+Shri Mataji: Where is this park, where resides this, this ....
+
+Yogi: Queens-park. It’s North-London, it’s few miles from Hampstead.
+
+Shri Mataji: Away?
+
+Yogi: Yes. It’s between here and Hampstead.
+
+Shri Mataji: Between here and Hampstead?
+
+Yogi: Hmm, north of London.
+
+Shri Mataji: Is it?
+
+Yogi: Hm.
+
+Shri Mataji: Ah!
+
+Yogi: It’s west of Hampstead.
+
+Shri Mataji: It’s a – say these region to expecting a religion – how can you expect Rajneesh to be there? Now We have Christ.
+
+Yogi: Because this, they are really – I don’t know else, the west as a whole seems to be very mentally orientated, very mentally orientated.
+
+Shri Mataji: I [INDIST.SOUNDS LIKE: may] not. Yesterday only there was a another BBC-Program about what is the death of a man and all that. He said, one side is definitely mechanical in a man, but another is something like morality. You see, We didn’t say it so, We couldn’t explain everything, so he said that there is something like morality. Now, what We can do is to, Philip, what should I tell you the practical side, the meditation. All right? Let’s see what this meditation is, what We have to do on a meditation.
+
+The first thing we have got is the left side – you see – is the Mana-Shakti, is the power of your emotions. All right? Now, emotions are connected with your right side, also - prana. Say for example if you are emotionally disturbed, just now we got disturbed, so our shva, our breathing also increased and we felt the whole body was sort of, say reacting and the, we were feeling the reaction of the Prana, right side also. That it was trying to express itself. Like we started the tears, is the water-element and all that came in and the whole emotion was so much pouring out and with that our Prana was also involved.
+
+Say for example if you are frightened, if you are frightened – [aside: {INDIST.}, it’s all right] – if you are frightened too much then what happens? [aside: this is all right] If you are frightened than also you get your breathing very fast – isn’t it? So it is connected. [aside: Yes, come in, come in!] So it is connected. If you are frightened it is connected – with your Prana, in your breathing and your whole system is connected with your emotions, physical system. If you cry too much, or if you weep too much, or if you are a sad person - that shows on your face, your Vishuddhi-Chakra also shows, and not only Anahata but also Vishuddhi. Then also your Agnya goes out. So all the Chakras reflect the left side in such a way that physical manifestation is also there. So it proofs that both are very much connected.
+
+So to, if you have to, somehow or other, dissolve these two sides within us, the left and the right side – because if you do not dissolve it you are left half way here – so you have to dissolve these two things. And to dissolve these, what should we do? What can we do – in meditation?
+
+[aside:] Can you suggest?
+
+Say we have got Prana and Mana. Now Prana represents the right side and the Mana-Shakti is the left side. All right? These two have to be dissolved – in the air, means dissolved. Now how do we do it? To dissolve these two things, they are connected with each other. After realization, not. So before meditation We give ourselves a balance, all right? Which side is more resided left at the time. Supposing you are emotionally – at that time – disturbed, then you put your right to the left. If you are that time disturbed on the left side – ah, I mean disturbed in that sense that if a left side is frozen, then you raise your left side and give yourself a balance before meditation.
+
+Now let us see, which side is less, first of all. Put your hands like that. Are you all right? Getting cool breeze? Getting it? [INDIST.SOUNDS LIKE: May this side not.] All right. Better? Are you getting in this side? Now – something moving? Cool breeze is coming now? Is there a cool breeze? Is it? There is cool breeze in your hand? Are you feeling it? All right.
+
+So once you have given yourself a balance then the best thing is to pay attention to your emotions, to Manas-Shakti. Watch them. You can enlighten your emotions by thinking of your Mother. All right, just enlighten them. Just She will solve the problem. Whatever are the problems in the Mana, all right? So once you get connected with those emotions and you start looking at them in your meditation you will see these emotions are rising within you and if you try to put these emotions on your Mother, as put at the Lotus-Feet of your Mother, they will start also dissolving those emotions and they’ll become sort of – ah - expanded. Expanded, you see.
+
+You will extend that in such a way that, you will feel you are in control, these emotions. You are in control of them and by that controlling those emotions your emotions – which are expanded, enlightened – are powerful. And these emotions, when you feel that way, then the cause of those emotions can be solved. For example just now you got emotionally stirred up because I talked about – say – these children. Naturally, anybody would be. Now when you are stirred up with that you put that problem and those feelings that are rising in you, that those waves of feelings that are coming at the Lotus-Feet of your Mother.
+
+So they get touched, say by that power you can say. Then these emotions become enlightened and when these emotions become enlightened they have a power to solve the problem. Do you see the point? As if they had reached the shore where they got the light and this problem can be solved. Because now you are not in an individual self, you are in the expanse, you are in the samashti and because you have entered into that position, that’s why you have got these powers of entering to another person’s body, to see the vibrations of another person, to raise the Kundalini. Otherwise you could not have done it.
+
+So for you it is very easy to [INDIST.SOUNDS LIKE: weep] because I am also sitting here in Person. So easy to put these emotions just there so that they get enlightened and your wish is fulfilled, because emotions are nothing but wishes. These are unfulfilled wishes. Now how they do it otherwise is also this way that you take up these emotions and put them, so that is, these emotions are actually - the left side, as I said, is the desire.
+
+So the desire is taken, any desire, and is put in the Prana. Now how do you put it on the Prana? That you control your Prana – that’s why they do Prana-yamas, you see? Like you sit down now, very comfortably, now you have a desire, you put your attention to that. Attention is very important – you see? Now this attention is to be put onto the Prana, so the emotions are there and then bring those emotions and put them into your attention, means they are now, you are aware of them.
+
+Now what you do is to watch your breathing. See now, try to reduce your breathing, reduce it. In the sense that you have breathed out, wait for a while, then breath in - for a long time. Then you breathe out. So in one minute your breezing will be less than normal. All right? Try that. Breathe in – now with the emotions, keep the attention on the emotions – you see? – so that the connection is established.
+
+Hmm. Better? You see the Kundalini rises? Now when you are breathing you find that there is a space in-between, which you just leave it vacant. Breathe in! Now leave it vacant. Now breathe out. Now leave it vacant. Breathe in. Keep it there. Then leave it. Keep out-side. Now breathe in. Now start breathing in such a way that you stop your breathing. Your attention should be on the heart, or could be on the emotions.
+
+It’s better? Keep the breathing inside for a while, then bring it out, then outside for a while. Then again, then you’ll find that for a while you will not breathe. Hmm. You see, you settle down. The layer takes place between your Prana and your Mana. Both the Shaktis become one. Now at this stage when you are silent, now you think of your intellect – it’s lost. Now just think of it, it’s lost, it’s no more there. So what is happening, actually that this layer – the attention goes into the intellect and enlightens the intellect.
+
+Aha, now see, the thought is not there – try to find your intellect within yourself! Now see! See, where is my intellect? Try to find it! It’s not there, it’s not working. Again try it! It is working, but it has become the samashti, has become the collective now. Ha! See now! Did you follow that? There is no thought. This exercise will give you this thoughtless awareness, establishes in you the thoughtless awareness. There is no thought. So the second lesson – all right?
+
+May God bless you!
+
+Hmm. Yesterday I told you about the physical side – is how to physically achieve the balance by doing all these movements and all that and there is also raising your Kundalini like that and how to put certain chakras in places. Like first of all the Mooladhara, which is very important, Mooladhara Chakra - for that the exercise, as I told you, has to be with both the feet ... Can We try that again? Just to put both the feet together ... Now I tried to pull it towards yourself. No, no – with this, now, holding it, yes, towards yourself and push the thing down ... Yes ... [Shri Mataji laughs, the Yogis too] Now, the other way round, the other way round you can do it, is to push it downward and pull your – with the hands – you push it down. Yes now, push it up – the, the heels – yes, now, push it towards yourself, again, again. Now put it down on the sides.
+
+[Yogis laugh]
+
+It is stiff, I must say. All right, again. Now I tell you one, you may try another thing for this – is to put your, one foot across and one foot like this, that’s it. Push it, ha ... now it’s better, that way ... now push it up. It is this one, upward, just push it how much you can, push that down ... yes ... push one down and one push up, it is better ... now the other one you do the same way ... push that down at the center, ha ... now push that up ... with one hand you can push that up, with one hand you can push that down ... would be a better idea ... now like this, like this, like this ... just try, now ah ... hold it from the sides, hold it from the sides, like he is holding ... no, no, that ha-, that, put it down, your hand, yes. Now hold it this foot with the left hand, with the left hand, it doesn’t go that side, [Shri Mataji laughs] it’s [Shri Mataji laughs] like the way he is sitting ... all right, it’s all right. Now push it, push it down, this one and push that up, push that up and push this down. Now the other one you try, now the other one you try, again.
+
+Hmm. Can you? No, no, no – that one down now. Which one was, yes, correct, correct. Now this is the other way - ha. Just push that one down, as much as you can. Push this down. Now you will see it will little bit opened out. Now see yourself, is it opening out? Now put it, put it down again. See, is it better now for sitting. Better? Now see now, is it better? Like it! [Yogis laugh] It’s better now.
+
+Yogi: Now [INDIST.] here.
+
+Shri Mataji: Sorry. Yeah. You see, gradually it will work out, gradually it will work out for you people, because you are not used to it, not, so at this age also it’s rather difficult, but it will work out, gradually that - ... You sit like that! From now, if she sits like this, you see, from the very childhood, than she can never sit like that.
+
+Yogi: Jane?
+
+Shri Mataji: Can you sit like that?
+
+Yogi: Does you understand?
+
+Shri Mataji: Let’s see. Let’s see. If – can see?
+
+Yogi: Shri Mataji is sitting before you ...
+
+Shri Mataji: Ah?
+
+Yogi: ... so be like [INDIST.] go meditating.
+
+Shri Mataji: Ha good, you can do it, you are good, excellent, she is good. Ah, that’s better.
+
+Yogi: They are very subtle, Mother.
+
+Shri Mataji: They are subtle, but you see, that’s how you grow up and then when you do not, you give up this habit, as you start sitting on a chair, then you give up the habit and then the chair becomes, you see, ...
+
+Yogi: But the way she was sitting, I cannot sit. Only she was sitting [INDIST.] like that and she sits right [INDIST.SOUNDS LIKE: like that on the floor] ...
+
+Shri Mataji: Yes
+
+Yogi: ... and she has legs out there. [Shri Mataji laughs] It’s just [breathes loudly] It’s really strange [INDIST.] legs.
+
+Shri Mataji: Children are very subtle. Now then, this is one thing I told you how to improve your Mooladhara yesterday – all right? Now the second thing was about the Swadishthana, you have to hold both the legs together, like this. Try to push it together. So, now, push it like that. Hold the hands and just turn, just try to take out the heat of [Shri Mataji laughs] ... turn it ... [Shri Mataji laughs more, then the Yogis laugh loudly] He is tall, is he? See that! [Shri Mataji laughs] Now, is all right, now you turn on, on the water like this here. The tall people are [Shri Mataji laughs] rather difficult.
+
+ANOTHER Yogi: Like the thin ones legs, Mother.
+
+Shri Mataji: Yes, now see, that’s how, now you’ll see, your Swadishthana will improve. Hmm, just more. You see? Now let us see, now put your hands towards Me, that’s it. You see? It improves. Swadishthana improves like that.
+
+Then I told yesterday about, how to raise the Kundalini of others with a light in your hand. Now you don’t have lights today, but you can take some lights. There are some lights, you can take from that, some candles, all of you. You can get some plates, but the doors are closed now. You can get it from upstairs, also get Me a glass of water.
+
+YOGINI: [INDIST.SOUNDS LIKE: Mother, we have provided some water, but this is not chilled.]
+
+Shri Mataji: Here! All right. Thank you, thank you very much. [Shri Mataji eats something] Hmm.
+
+Yogi: [INDIST.SOUNDS LIKE: Is it a good idea ...]
+
+Shri Mataji: You like that?
+
+ANOTHER Yogi: [INDIST.SOUNDS LIKE: I just can’t ...]
+
+ANOTHER Yogi: Is it a [INDIST.] decision to like this position not?
+
+Shri Mataji: Is she bringing some plates?
+
+Yogi: Is it a good idea to sit in the lotus-position, Mother?
+
+Shri Mataji: Hmm?
+
+Yogi: Is it a good idea to sit in the lotus, lotus position? [INDIST.]
+
+Shri Mataji: I don’t know, I don’t want, it’s too much, sometimes. For meditation you shouldn’t do it. For exercise is all right, but not for meditation. In meditation: sahaj-asana. Sahaj-asana is when both the legs are absolutely spread out as much as you can. Very much like that, very comfortable. It should be a comfortable position. That is the [INDIST.].
+
+Yogi: Mother, we have to go.
+
+Shri Mataji: Hmm. You have to go now?
+
+Yogi: Yes, Mother.
+
+Shri Mataji: All right ...I must say, ...
+
+Yogi: We have to go now.
+
+Shri Mataji: ... what – ah – David [INDIST.SOUNDS LIKE: Browled] told Me that if you go to these People, TM-People they take three years to make you into a teacher and they make a real showman-ship out of that, a real showman-ship.
+
+BABY: Papey!
+
+Shri Mataji: Bye Bye! Bye Bye! So don’t worry, it will work out, we’ll have to train you up to have a real Guru-style and behavior.
+
+Yogi: Yes. We have a meeting in Queens-Park ...
+
+Shri Mataji: Ha?
+
+Yogi: ... coming soon. We have a meeting pretty soon. The Hampstead-meeting, is it the twelfth?
+
+YOGINI: But we can’t have the hall in Hampstead next Thursday, so I projected they had one in Queens-Park next Thursday.
+
+Yogi: So is it ...
+
+Shri Mataji: All right.
+
+Yogi: ... the following is out there.
+
+YOGINI: The twelfth.
+
+Yogi: The twelfth.
+
+YOGINI: The twelfth. Oh it’s twelfth – sorry.
+
+Yogi: So what the meeting, the Hampstead-meeting is moving to Queens-Park for one evening.
+
+Shri Mataji: Oh they are good. But you must advertise and must make some hand-bills. These people will go ...
+
+Yogi: Yes.
+
+Shri Mataji: Na?
+
+Yogi: Yes.
+
+Shri Mataji: That’s on Thursday-when?
+
+Yogi: That’s Thursday the twelfth, Mother.
+
+Shri Mataji: Twelfth – I can’t see Thursday.
+
+Yogi: Two weeks from tonight, two weeks from tonight.
+
+Shri Mataji: I wouldn’t be there. In two weeks I won’t be there. Next week I will be ...
+
+[GAP]
+
+... so seekers. One type is only for them-selves, they are seeking, you see, as long as they get their realization. But some have this Guru-Principle in them, they do it for the whole, you see? But most of them are at that level, we have got it now, it’s all right. But even for yours sake you have to come to the meetings. Everybody cannot be thought all these things, you see, but they have to come to the meetings, even for their own sake I am saying, even for sickness. They are cured, but they can be again very sick or something else. So even for sickness they have to come, to the meetings they have to come. But the people who will work out from the angle of being use-full to others will be less in number. This all-pervading Power itself is the one that is in a principle is the collective compassion and if you are not that, then you have not achieved much. You have to do for others, if you are doing only for yourself then it’s of no use.
+
+Did you take the candle now? How are you? With a candle? All right? Better now.
+
+[GAP]
+
+And this is all because of this Hippy-Business I tell you. All these drugs, it’s a horrible thing, it’s a very bad thing, one has to work it out. First of all it makes you extremely lazy I say and insensitive. Insensitivity is the first thing. You see, you can be very, very dirty, filthy – you won’t feel it. Others feel it, but you don’t. Hippies in India are so obnoxious, the Indians are frightened.
+
+I heard two of them, they came when I was in Bombay, no, in Delhi, first time. Now they are lost, I don’t know where they have gone. One of them was [INDIST.SOUNDS LIKE: Archie] from Sweden or something, I don’t know. And they were smelling so bad, absolutely smelling! They don’t wash their hands, they have no sense of cleanliness, nothing. And for anyone to live with a person like that it’s absolutely [INDIST.], they are just like primitive people. Even primitive one are much more clean. They can’t go to that limit.
+
+And when it becomes a group, then God save others! I mean they don’t want to see this, when they are Hippies they don’t want to see it. Till they come to Sahaja Yog’ they will not even be able to know that it is so. You agree with Me? It’s a very funny cult I tell you. And they all group together and they justify each other - I mean from one extreme to another extreme. [INDIST.SOUNDS LIKE: Over-meticulousness, over-, over-cleanliness,] over-this thing and [INDIST.].
+
+Yogi: Superiority is also ...
+
+Shri Mataji: Ah?
+
+Yogi: Superiority as well. It’s a kind of Ego, I think.
+
+Shri Mataji: Hm? They think so, they think our whole mind is in the spirit, we are not material things, they think. I mean it’s all connected. Look at the nature, how clean it is. How cl-, who cleanses it? You go in any forest, any place, it’s all very, very clean. Who looks after that, who washes it? And these, this is so unnatural, absolutely unnatural behavior to live like animals, worse than animals it is. They don’t take their bath – ah – it’s all there.
+
+[aside:] But there ....
+
+They will have lots of psychological problems, I tell you. Because if you take abnormally something, thinking which is a good thing, you develop such terrible problems psychological. It’s a ego-stuff, it’s a ego-stuff I think. I went to this Santa Cruz and the way people were there some of them – horrifying! One fellow came, he took out most of his clothes and he was smelling like that, his mouth was smelling, his body was smelling – just like a tiger I should say. Tiger is better, just I can’t understand, he is a human being, educated fellow.
+
+And We went to have lunch with some persons, it was before Santa Cruz, we went that – do you remember? – that place We went to, for lunch .... I was sitting on a, on a bench – you see - and the whole thing was so stinking, because somebody has set there. We had to change the urge. How -, one must get rid of it, one must develop sensitivity to it.
+
+Untidiness – I can’t understand, look at God, God is so tidy. He has made His Nose, His Eyes, everything so nicely, isn’t it? And they are not spiritual. I can tell you, [INDIST.SOUNDS LIKE: this way is also with stomach], because I have seen now Hippies, they can be very, very materialistic. They are very worried about their belongings, they are very miserly, they can live on others money, they’ll rob their -, they can do anything, because they have no self-respect.
+
+So I mean one should also see the bad things of this cult. The good thing is there, because they are not aggressive, maybe like the other side is, but there another side is horrifying. Like two types of devil, right sided I call as [INDIST.] you see and the left sided as rakshasas. And they can become rakshasas! And they can do any kind of [INDIST.] thing, any kind of [INDIST.] thing. Some of them are indulging into horrible things in India, horrible things.
+
+Rajneesh has got all that lost, that kind. Gutters, absolutely gutters – as the worms in the gutters don’t feel anything dirty they don’t feel. You see rajneesh has this thing now, he has got the film, you won’t be eat, able to eat your food for three days. Everything done on mass-level! You see, when I am saying all that it is coming up.
+
+Now another thing is, they dress up also like that, in rags. They dress up in rags, you see, like beggars on the street and their clothes will be absolutely what you can call them dirty, anti-clean, I don’t know what to call, what color. And this is just laziness, simple laziness I tell you. And they wear something angora because they don’t want to exert at all. Lazy lumps! But the bhuts are there of the same style and they catch hold of it. I would say all the hippies must throw away all their clothes, most of them which are like that, it will help. It will definitely help.
+
+You have many like this?
+
+YOGINI: [INDIST.]
+
+Shri Mataji: Throw them away! Just throw them away! Please don’t keep them. Try to select clothes which are more clean-looking – all right? You can have only three or four, need not have many – throw away the rest of them! I mean the whole tendency is towards that, they think they look like saints, while wearing this nonsense, they are just like beggars in India. Our Indian beggars dress up the same way. I can understand, because they want to beg – so they wear such clothes that excites pity, you see, so very dirty clothes, they’ll wear some kinds of rags, they’ll have thorn clothes – but here the very well educated go in for that, for what?
+
+Also, may be, that they want to show that – you see – they are very humble people, maybe that. Or to excite the pity of others .... It’s a masochist this style of behavior. They just to excite, everybody should feel, oh what a poor thing. The whole behavior is like that, they are too intelligent and they work it out, I tell you. I was amazed, hair never combed, never properly done, little lices in their hair, horrible! And big beard .... I mean, do you think God likes such people. This is a miss-understanding, these people.
+
+Prophets, which Prophet was like this, I don’t know. I have not known of any Prophet who looked horrible like this. And I don’t know, which one they are saying. The very best thing is all of them should use oil. That’s the best thing. Let them start using oil. Oil the body, oil the head – oil! Then these bhoots will run away. That Santa Cruz-crowd was -, We had a, We had a gentleman, a Sikh-gentleman with Us, who was extremely upset, you know, that why should Mother come to this crowds. He said, I should not put My Foot down there, this one, you remember? He was very upset, it’s all [INDIST.] and they should not have brought Me there.
+
+And very ill-mannered, extremely jerky type and there is no fines about it, there is no – I mean - sophistication. I don’t say it should be artificial, but we are human beings, we cannot be like animals, you see, the way the animals like it. When they slap, they rememb-, they were, remind Me of a bear. Have you seen a bear slapping? [Yogis laugh] And when they, it just comes, [Yogis laugh] stands before you, can you do like that? Finished! [Shri Mataji laughs] Turned down! No mental activity! When they clap also they [Shri Mataji claps] go on like this, you see? Just like [Yogis laugh] a monkey, just like a monkey, [Shri Mataji claps all the time] you know, looking at one side. They don’t know what they are doing.
+
+It’s idiotic I tell you. [Shri Mataji laughs] Every way! I mean they are seekers, that’s why they are important, but how can seekers go about like this in a group and all these mad people must understand, they’ll become lunatics, really. They are in for it, because all the lunatics will jump on them. I have seen certain lunatics with those pants, you know, baggy pants, exactly like hippies. If you put a hippy and a lunatic you won’t be able to [INDIST.] [Yogis laugh] I mean there is no difference at all, in any way!
+
+That’s what’s happening in Santa Cruz, you know? One lunatic came in, he looked like a hippy [Yogis laugh] and now see, how he was, I said now, you are not getting realization, I am sorry, it doesn’t matter, it works on. He said, no, it’s has to work out now. And we didn’t know he was wearing a wig, you see? Took out the wig and there was a big bald head below that. He said, you better give me now. But We some or another tried to get rid of him and he went at the back of it. And then the [INDIST.SOUNDS LIKE: goat] was standing there, there was some sort of a dog, I don’t know what happened and he just hit [INDIST.] [Shri Mataji snaps with the fingers] Went into that!
+
+He was a mad man, he was absolutely mad, but among all the hippies he was lost, We couldn’t make out that he was mad. He came from a lunatic asylum, from a mental hospital and We could not – they said if you tell him, he went to the police, what is there, they’ll put him in the mental home. Because they all hippies looked the same, how are We to make out, who is mad, who is not? And another one took out all his clothe and sitting in such a funny manner, I didn’t know how to look at him.
+
+All strange people, you know? I mean you are seekers, you must have self-esteem. But they don’t take their bath, imagine, they don’t take their bath! God cannot like people who do not take their bath. It’s a simple thing I must tell you. Even, nobody will like, you tell Me Jeremy, supposing somebody is smelling, will they like it? You see. Only rajneesh may....
+
+So one should pay attention to ones own being. After all, if you have to go to God, I mean, supposing you have to go to the temple, the women will wear their best Saris, as you have to present yourself to God, to show that gratitude, that we are so happy, that you have given us this world. But if you go like this, like beggars, what does it mean? What does that mean? That there is no sense of gratitude in your heart....
+
+And they’ll wear all their ornaments, if they have to go to the temple, they’ll take their silver out, put everything, decorate all the offerings in that silver Thali like that and carry it .... It looks so beautiful, going to a temple. A woman going to a Temple in India is so beautiful. She takes out all her things, combs her hair nicely and [INDIST.SOUNDS LIKE: goes]. The best Sari you should wear. We do in the church, I mean, most of the ladies and men go there just to see the clothes only. [Yogis laugh]
+
+Yogi: And the bhoots.
+
+Shri Mataji: I [INDIST.].
+
+Yogi: And the bhoots Mother.
+
+Shri Mataji: And the?
+
+Yogi: And the bhoots.
+
+Shri Mataji: And the bhoots. That’s what it is. But at least, thanks God, people will wear proper dresses. Otherwise if the hippies go to the church, I think the bhoots will run away. [Yogis laugh] It’s a very funny cult! I mean, I want to condemn it out and out, absolutely! The cult is wrong, all the Sahaja Yogis who are coming from that, just throw it away. Like as We say Catholicism or any kind of – ah – fanaticism is wrong, in the same way this fanaticism of hippy-ism is absolutely wrong. Is going to destroy you all completely and is good for nothing.
+Felicity is another person who is gone into this nonsense. Worst is Jane, worst is Jane. The person who was really come out of it, among girls, is Maureen. Really come out of it! Even the dress and all that. Pamela, see Pamela, look at her! You don’t know when she is sane, when she is insane. It’s true. Untidiness - is the sig-, untidiness is the sign of a person who is untidy inside. It’s very nice to say, we are spiritual – the spirit is so clean. It doesn’t require anything, I mean even if I don’t take bath for three month you won’t have any smell, know that, but I enjoy bathing. Every flower bathes in the dews, the dew that drops in, waits for it.
+
+You understand now? It’s very abnormal, it’s very abnormal, it’s a horrible thing, is – I mean it’s like doing TM. There you pay for it to get a bhoot. And in this you just become a bhoot without paying. That’s the only difference. I mean if children see you, the hippies, in their real way, they would run away. But I didn’t say all these things before, but I didn’t want to frighten people, because they get angry if You say that. It’s a fact, I tell you. But why are you not to [INDIST.SOUNDS LIKE: assume] that, I don’t understand, what is again?
+
+I mean you have to be thank-full to God – or not? How the flowers come out in their better, best dress, the whole nature comes out in such a beautiful way, even if they have ripped up all their flower-, their, their leaves during autumn, still they look so beautiful. Even when it is so great, it is so nice.
+
+This hippies look just like walking devils, I tell you, sometimes. Like the dead bodies have come out of their, walking, ohohoo, like that. Horrible! Better tell people in Brighton, all right? It’s important. As sooner they take to proper dresses, the better it would be. Otherwise the bhoots won’t leave. Bhoots are just standing around, you see, who have got it. First of all take drugs, dress up like a bhoot - is it? – become lazy. Only thing you have to put “welcome bhoots!” [Shri Mataji laughs, Yogis too] Otherwise you are that, absolutely! That bode is not there, otherwise everything signifies to that. So you all must take up a vow, that you not become dress up like bhoots, we dress up properly and live properly.
+
+I don’t know what has harmed more then what, I can’t say that Gurus have harmed you more or this Hippy-ism has harmed you more, or ...because it’s so mixed up, I will say. Psychologically that Felicity has the problem. Look at this [INDIST.SOUNDS LIKE: Anna]! She is a eternal problem, eternal problem, what shall I do with her, you all tell Me. Today again a letter has come from Don.
+
+Yogi: She has the solution in her hands, Mother.
+
+Shri Mataji: Hmm?
+
+Yogi: She has the solution in her hands, Mother.
+
+Shri Mataji: But that’s what, they are insensitive, not? Here she came, she used all her methods to create a pity for herself, I achieve. And they have no privacy of any kind. See, she discusses everything about her husband, with everyone, it was too much. And then these peoples were frightened back, you know, especially, another reason sympathizing with her and Steve came and told Me, Mother that – you know – she is insane, is going to commit suicide ... [Shri Mataji laughs] ... and she is going to, she, she doesn’t want to stay in the upper part of the building because she may commit suicide.
+
+Actually Hippies like to stay in a, just like a snake you see, inside some sort of a thing. I said, really? Now you better tell her, that is on the fifth floor and when you look about to commit suicide, let us know. They’ll all watch you falling down. If you want to see, have your fall down, but to inform us, before you drop down, because we don’t want to be involved with any police-case. They don’t want, they don’t mind getting into police or anything. Anything is all right, you see, getting there, doing a great revolutionary work by smuggling these drugs into the country. And when I told this Pat, I asked Pat, what is happening so long. [Shri Mataji laughs] She said, Mother I told her, you better jump, Mother has said. She said, ah? [Shri Mataji laughs] I couldn’t tell her. [Shri Mataji laughs] [INDIST.], Mother said so, She says, Mother said, you better jump, would be a good idea and We want to see that. [Yogis laugh] She never jumped, never, not even once. [Yogis laugh]
+
+And this fellow was, then, he was about to get her troubles, Pat, helping around, one case. Then she got after Don, and they are not sympathies, he, he, he thought that, poor Lady we must help. When they came to see Me, I said, Don I would like her to die, no doubt. I saw him in the meeting, I saw him very sick. I said I have to go and see some Ladies in the Hotel. They have come from India, just take Me in the car. I sat in the car and such heat coming out from his body. I said [Shri Mataji snaps], what have you been doing? Thin down, absolutely! He said, I am been looking after Anna. I was so angry with him! Now she wants to come back again to [INDIST.].
+
+Yogi: She has been in [INDIST.SOUNDS LIKE: Fullment], through about.
+
+Shri Mataji: Ah?
+
+Yogi: She has been in Fullment for a time, Fullment mental hospital.
+
+Shri Mataji: That’s the place for her. [a Yogini laughs] She should be there. But how is she out?
+
+Yogi: She is out now.
+
+ANOTHER Yogi: Yes, she is back in home.
+
+Shri Mataji: She is back?
+
+Yogi: [INDIST.], yeah.
+
+Shri Mataji: She will be back now and she has got now a house given by the council.
+
+Yogi: Yeah.
+
+Shri Mataji: She should settle down there. So she says that I’ll go to hell if I do not do Sahaja Yoga. She should do Sahaja Yoga, but not to come to [INDIST.]. I don’t want others to suffer on account of her. Somebody has to tell Don that they should keep away from her and let her stay in her council-house. Say, Mother tells her. And she really play games about you. She makes the whole thing look so difficult. I mean she is a seeker, this is the worst part, to see the seeker. And has been a seeker for ages, I mean, that’s why I love her so much. I went to a place to cure her and everything but this bhoot comes into her and she again wants to do the same thing. It’ hard to save her, if she doesn’t want to get rid of the bhoot, then ....
+
+Has you got the keys?
+
+YOGINI: No, not yet Mother, [INDIST.].
+
+Shri Mataji: Hmm.
+
+YOGINI: Just you see mother.
+
+Shri Mataji: Hmm.
+
+Yogi: Is there an exercise that we can do for Vishuddhi?
+
+Shri Mataji: Hmm?
+
+Yogi: Is there an exercise that we can do for Vishuddhi?
+
+Shri Mataji: Right side?
+
+Yogi: No, Vishuddhi.
+
+Shri Mataji: Which both?
+
+Yogi: Well, both, yeah.
+
+Shri Mataji: Just yesterday I told that, exercise is one of them is to raise your Kundalini up. And lying with your head, you put both the hands straight, as much as you can. Let’s see. No, not like that. Move it ... Hmm ... now go straight, straight, straight ... put both the hands here, hmm, there, and now do it, ha. See, they are not straight hands. Put them straight, ha. Now, now ... can’t do it. It’s better now!? Just put it straight. Better now. You are doing better. Now still it’s [INDIST.SOUNDS LIKE: stout], hands are [INDIST.]. Hmm, now see ... see your vibration. It should be better.
+
+Yogi: [INDIST.SOUNDS LIKE: I can’t say].
+
+Shri Mataji: Another one is to lock your hands behind, like this. Yes ... put it down ... head. It’s good, it’s very good, it’s all right. Push your hand a, head back, Anna, in the center. You have thinned down, have you got liver?
+
+YOGINI: [INDIST.SOUNDS LIKE: Fasting for three days.]
+
+Shri Mataji: Hmm. Get some sugar. You very much thinned down. What are you worried about? Ah? Do you worry about something?
+
+YOGINI: Not really.
+
+Shri Mataji: Ah?
+
+YOGINI: Not really.
+
+Shri Mataji: Your brother is better now? He too has the same Hippy-problem, is it?
+
+YOGINI: Yes. It’s true.
+
+Shri Mataji: That’s it. Now such an [INDIST.SOUNDS LIKE: intended] fellow, it’s wasted. Now are you better now?
+
+YOGINI: Yes.
+
+Shri Mataji: Hmm? Ah, better? It’s much better, the sun has also come up. You see? It has been nice enough for since I have been here. They are saying tomorrow it will rain, I said, [INDIST.SOUNDS LIKE: I can’t see]. [Yogis laugh]
+Has he come?
+
+YOGINI: Yes.
+
+Shri Mataji: Hmm?
+
+YOGINI: Yes Mother, he has just come.
+
+Shri Mataji: He has got the key?
+
+YOGINI: Yes.
+
+Shri Mataji: Just call him in one minute.
+
+YOGINI: Yes.
+
+Yogi: Rajendra!
+
+Shri Mataji: And now finish it off. [Yogis laugh] When the women do it, and it looks nice, beautiful and they know how to do it delicately. It is a job of the women. That’s why the men here are not marrying, you know? They don’t need the women any more. Look at the woman is there just to fix her breakfast, to do everything for her, make her tea, fix her breakfast, take her clothes for the laundry, I think iron it, I don’t know. [Yoginis laugh] Next thing they will, they will be wearing a tie. [Yogis laugh] Going too much, I mean it’s should not be that. The woman must be kept as a woman, that doesn’t mean she is dominated, in anywhere, that’s her job.
+
+What’s the job of a woman is [INDIST.SOUNDS LIKE: to do it] you should be proud. I mean, you are supposed to be house-proud women once upon a time, I don’t know this word came from England only. House-proud. It’s gone or what? Nowadays men are house-proud. But I can’t understand cutting the grass outside men can do it. But I can’t understand, why should they wash the utensils, they should never do that. Now what do they do women here, I don’t know what do they do? If they find anything untidy, now how can you bear it, for any woman? Right side, you see. She wants to see things [INDIST.] everywhere.
+
+Actually these movements are make you really unisex, you can’t make out man and a woman and there is no differentiation at all. The beauty is lost. It’s minimum of minimum, these differentiation should be, there a man should be a man and a woman should be a woman, minimum of minimum. [Shri Mataji laughs] What is so difficult? And then the bhuts come on to a man of a woman and on a woman of a man and they get all these perversions.
+
+Better now? [INDIST.SOUNDS LIKE: If he] was saying he may like to go. You are saying that parents have been very nice and they found a shop for you. All the lady-like things go away, horrible. And those rags and things within, just throw them away, really! And they are never washed! They are so dirty!
+
+Yogi: Is this unisex they ...
+
+Shri Mataji: Ah?
+
+Yogi: Is this unisex things/selling [??], Mother? Is that unisex thing, Mother?
+
+Shri Mataji: Unisex?
+
+Yogi: Hmm. This fashion is on the Kings-Road where they have all these shops, than this bus goes up Kings-Road, you see ...
+
+Shri Mataji: You see, the shops I can don’t blame for excessive demand, demand, then come out for everything, you see, if you say Ladies-Dresses for man, all right. You’ll have that. [Yogis laugh, Shri Mataji too]
+
+Anything you want! You see, Shop-Keepers you can’t blame, because all the shop-keepers are there because of the demand, you see, whatever demand is there -.
