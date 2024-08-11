@@ -3008,6 +3008,10 @@
         "transcript-english-draft"
     ],
     [
+        9611,
+        "transcript-english-draft"
+    ],
+    [
         9800,
         "transcript-english-draft"
     ],
@@ -4772,10 +4776,6 @@
         "transcript-english-draft"
     ],
     [
-        25914,
-        "transcript-english-draft"
-    ],
-    [
         25915,
         "transcript-english-draft"
     ],
@@ -5420,10 +5420,6 @@
         "transcript-english-draft"
     ],
     [
-        62634,
-        "transcript-english-draft"
-    ],
-    [
         62720,
         "transcript-english-draft"
     ],
@@ -5661,6 +5657,10 @@
     ],
     [
         77092,
+        "transcript-english-draft"
+    ],
+    [
+        77129,
         "transcript-english-draft"
     ],
     [
@@ -9332,6 +9332,10 @@
         "transcript-english-reviewed"
     ],
     [
+        25914,
+        "transcript-english-reviewed"
+    ],
+    [
         26389,
         "transcript-english-reviewed"
     ],
@@ -9485,6 +9489,10 @@
     ],
     [
         71624,
+        "transcript-english-reviewed"
+    ],
+    [
+        77126,
         "transcript-english-reviewed"
     ],
     [
@@ -11836,6 +11844,10 @@
         "transcript-english-verified"
     ],
     [
+        62634,
+        "transcript-english-verified"
+    ],
+    [
         62635,
         "transcript-english-verified"
     ],
@@ -11917,6 +11929,14 @@
     ],
     [
         77100,
+        "transcript-english-verified"
+    ],
+    [
+        77125,
+        "transcript-english-verified"
+    ],
+    [
+        77136,
         "transcript-english-verified"
     ],
     [
@@ -16256,6 +16276,10 @@
         "translation-english-to-italian-verified"
     ],
     [
+        77136,
+        "translation-english-to-italian-verified"
+    ],
+    [
         13658,
         "translation-english-to-marathi-draft"
     ],
@@ -18646,10 +18670,6 @@
     [
         44584,
         "translation-marathi-to-english-draft"
-    ],
-    [
-        77092,
-        "translation-marathi-to-english-draft-hi"
     ],
     [
         5483,
