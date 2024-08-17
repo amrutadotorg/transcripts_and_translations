@@ -792,10 +792,6 @@
         "transcript-english-draft"
     ],
     [
-        5959,
-        "transcript-english-draft"
-    ],
-    [
         5968,
         "transcript-english-draft"
     ],
@@ -5656,6 +5652,14 @@
         "transcript-english-draft"
     ],
     [
+        77258,
+        "transcript-english-draft"
+    ],
+    [
+        77268,
+        "transcript-english-draft"
+    ],
+    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -8785,6 +8789,10 @@
     ],
     [
         5941,
+        "transcript-english-reviewed"
+    ],
+    [
+        5959,
         "transcript-english-reviewed"
     ],
     [
@@ -11937,6 +11945,10 @@
     ],
     [
         77136,
+        "transcript-english-verified"
+    ],
+    [
+        77259,
         "transcript-english-verified"
     ],
     [
@@ -16284,6 +16296,10 @@
         "translation-english-to-italian-verified"
     ],
     [
+        77268,
+        "translation-english-to-italian-verified"
+    ],
+    [
         13658,
         "translation-english-to-marathi-draft"
     ],
@@ -18042,6 +18058,10 @@
     [
         38473,
         "translation-hindi-to-english-reviewed"
+    ],
+    [
+        77259,
+        "translation-hindi-to-english-reviewed-fr"
     ],
     [
         563,
