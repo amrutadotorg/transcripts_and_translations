@@ -5652,35 +5652,19 @@
         "transcript-english-draft"
     ],
     [
-        77320,
+        77398,
         "transcript-english-draft"
     ],
     [
-        77329,
+        77399,
         "transcript-english-draft"
     ],
     [
-        77330,
+        77401,
         "transcript-english-draft"
     ],
     [
-        77336,
-        "transcript-english-draft"
-    ],
-    [
-        77339,
-        "transcript-english-draft"
-    ],
-    [
-        77341,
-        "transcript-english-draft"
-    ],
-    [
-        77343,
-        "transcript-english-draft"
-    ],
-    [
-        77360,
+        77402,
         "transcript-english-draft"
     ],
     [
@@ -8556,6 +8540,18 @@
         "transcript-english-not-needed"
     ],
     [
+        77375,
+        "transcript-english-not-needed"
+    ],
+    [
+        77376,
+        "transcript-english-not-needed"
+    ],
+    [
+        77377,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -9549,26 +9545,6 @@
     ],
     [
         77126,
-        "transcript-english-reviewed"
-    ],
-    [
-        77332,
-        "transcript-english-reviewed"
-    ],
-    [
-        77342,
-        "transcript-english-reviewed"
-    ],
-    [
-        77353,
-        "transcript-english-reviewed"
-    ],
-    [
-        77354,
-        "transcript-english-reviewed"
-    ],
-    [
-        77365,
         "transcript-english-reviewed"
     ],
     [
@@ -12016,83 +11992,31 @@
         "transcript-english-verified"
     ],
     [
-        77319,
-        "transcript-english-verified"
-    ],
-    [
-        77322,
-        "transcript-english-verified"
-    ],
-    [
-        77323,
-        "transcript-english-verified"
-    ],
-    [
-        77324,
-        "transcript-english-verified"
-    ],
-    [
-        77327,
-        "transcript-english-verified"
-    ],
-    [
-        77328,
-        "transcript-english-verified"
-    ],
-    [
-        77331,
-        "transcript-english-verified"
-    ],
-    [
-        77344,
-        "transcript-english-verified"
-    ],
-    [
-        77349,
-        "transcript-english-verified"
-    ],
-    [
-        77351,
-        "transcript-english-verified"
-    ],
-    [
-        77352,
-        "transcript-english-verified"
-    ],
-    [
-        77356,
-        "transcript-english-verified"
-    ],
-    [
         77357,
         "transcript-english-verified"
     ],
     [
-        77359,
+        77381,
         "transcript-english-verified"
     ],
     [
-        77361,
+        77393,
         "transcript-english-verified"
     ],
     [
-        77362,
+        77394,
         "transcript-english-verified"
     ],
     [
-        77363,
+        77395,
         "transcript-english-verified"
     ],
     [
-        77364,
+        77396,
         "transcript-english-verified"
     ],
     [
-        77366,
-        "transcript-english-verified"
-    ],
-    [
-        77367,
+        77400,
         "transcript-english-verified"
     ],
     [
@@ -16236,6 +16160,10 @@
         "translation-english-to-hindi-draft"
     ],
     [
+        77319,
+        "translation-english-to-hindi-draft"
+    ],
+    [
         15159,
         "translation-english-to-hindi-in-progress"
     ],
@@ -16261,10 +16189,6 @@
     ],
     [
         77010,
-        "translation-english-to-hindi-in-progress"
-    ],
-    [
-        77319,
         "translation-english-to-hindi-in-progress"
     ],
     [
@@ -17508,14 +17432,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        77353,
-        "translation-hindi-to-english-draft-fi"
-    ],
-    [
-        77368,
-        "translation-hindi-to-english-draft-th"
-    ],
-    [
         6891,
         "translation-hindi-to-english-in-progress"
     ],
@@ -18308,10 +18224,6 @@
         "translation-hindi-to-english-verified"
     ],
     [
-        77341,
-        "translation-hindi-to-english-verified-fi"
-    ],
-    [
         12972,
         "translation-hindi-to-marathi-draft"
     ],
@@ -18852,8 +18764,8 @@
         "translation-marathi-to-english-draft"
     ],
     [
-        77329,
-        "translation-marathi-to-english-draft-fa"
+        77398,
+        "translation-marathi-to-english-draft-sk"
     ],
     [
         5483,
@@ -19692,6 +19604,10 @@
         "translation-marathi-to-english-needed"
     ],
     [
+        77394,
+        "translation-marathi-to-english-needed-ru"
+    ],
+    [
         3797,
         "translation-marathi-to-english-reviewed"
     ],
@@ -19734,6 +19650,10 @@
     [
         19069,
         "translation-marathi-to-english-reviewed"
+    ],
+    [
+        77402,
+        "translation-marathi-to-english-reviewed-nl"
     ],
     [
         1721,
