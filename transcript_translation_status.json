@@ -5652,19 +5652,7 @@
         "transcript-english-draft"
     ],
     [
-        77419,
-        "transcript-english-draft"
-    ],
-    [
-        77425,
-        "transcript-english-draft"
-    ],
-    [
-        77426,
-        "transcript-english-draft"
-    ],
-    [
-        77427,
+        77462,
         "transcript-english-draft"
     ],
     [
@@ -6565,6 +6553,18 @@
     ],
     [
         77348,
+        "transcript-english-needed"
+    ],
+    [
+        77459,
+        "transcript-english-needed"
+    ],
+    [
+        77460,
+        "transcript-english-needed"
+    ],
+    [
+        77464,
         "transcript-english-needed"
     ],
     [
@@ -9556,6 +9556,14 @@
         "transcript-english-reviewed"
     ],
     [
+        77466,
+        "transcript-english-reviewed"
+    ],
+    [
+        77469,
+        "transcript-english-reviewed"
+    ],
+    [
         29,
         "transcript-english-verified"
     ],
@@ -12000,27 +12008,11 @@
         "transcript-english-verified"
     ],
     [
-        77413,
+        77455,
         "transcript-english-verified"
     ],
     [
-        77417,
-        "transcript-english-verified"
-    ],
-    [
-        77418,
-        "transcript-english-verified"
-    ],
-    [
-        77423,
-        "transcript-english-verified"
-    ],
-    [
-        77424,
-        "transcript-english-verified"
-    ],
-    [
-        77433,
+        77465,
         "transcript-english-verified"
     ],
     [
@@ -14824,6 +14816,10 @@
         "translation-english-to-chinese-simplified-verified"
     ],
     [
+        77455,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
         77088,
         "translation-english-to-deutsch-draft"
     ],
@@ -16492,6 +16488,14 @@
         "translation-english-to-marathi-verified"
     ],
     [
+        77466,
+        "translation-english-to-spanish-not-verified"
+    ],
+    [
+        77469,
+        "translation-english-to-spanish-not-verified"
+    ],
+    [
         76515,
         "translation-english-to-spanish-reviewed"
     ],
@@ -16501,6 +16505,10 @@
     ],
     [
         77433,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        77465,
         "translation-english-to-spanish-reviewed"
     ],
     [
@@ -17444,10 +17452,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        77417,
-        "translation-hindi-to-english-draft-bg"
-    ],
-    [
         6891,
         "translation-hindi-to-english-in-progress"
     ],
@@ -17953,6 +17957,10 @@
     ],
     [
         72895,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        77464,
         "translation-hindi-to-english-needed"
     ],
     [
