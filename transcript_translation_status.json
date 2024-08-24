@@ -388,10 +388,6 @@
         "transcript-english-draft"
     ],
     [
-        2340,
-        "transcript-english-draft"
-    ],
-    [
         2382,
         "transcript-english-draft"
     ],
@@ -5516,10 +5512,6 @@
         "transcript-english-draft"
     ],
     [
-        64692,
-        "transcript-english-draft"
-    ],
-    [
         64716,
         "transcript-english-draft"
     ],
@@ -5652,7 +5644,7 @@
         "transcript-english-draft"
     ],
     [
-        77462,
+        77487,
         "transcript-english-draft"
     ],
     [
@@ -6300,6 +6292,10 @@
         "transcript-english-needed"
     ],
     [
+        64692,
+        "transcript-english-needed"
+    ],
+    [
         64730,
         "transcript-english-needed"
     ],
@@ -6565,6 +6561,38 @@
     ],
     [
         77464,
+        "transcript-english-needed"
+    ],
+    [
+        77490,
+        "transcript-english-needed"
+    ],
+    [
+        77492,
+        "transcript-english-needed"
+    ],
+    [
+        77493,
+        "transcript-english-needed"
+    ],
+    [
+        77494,
+        "transcript-english-needed"
+    ],
+    [
+        77495,
+        "transcript-english-needed"
+    ],
+    [
+        77496,
+        "transcript-english-needed"
+    ],
+    [
+        77497,
+        "transcript-english-needed"
+    ],
+    [
+        77498,
         "transcript-english-needed"
     ],
     [
@@ -8676,6 +8704,10 @@
         "transcript-english-reviewed"
     ],
     [
+        2340,
+        "transcript-english-reviewed"
+    ],
+    [
         2362,
         "transcript-english-reviewed"
     ],
@@ -9553,14 +9585,6 @@
     ],
     [
         77126,
-        "transcript-english-reviewed"
-    ],
-    [
-        77466,
-        "transcript-english-reviewed"
-    ],
-    [
-        77469,
         "transcript-english-reviewed"
     ],
     [
@@ -12005,14 +12029,6 @@
     ],
     [
         77357,
-        "transcript-english-verified"
-    ],
-    [
-        77455,
-        "transcript-english-verified"
-    ],
-    [
-        77465,
         "transcript-english-verified"
     ],
     [
@@ -16361,6 +16377,10 @@
     ],
     [
         1576,
+        "translation-english-to-italian-verified"
+    ],
+    [
+        2345,
         "translation-english-to-italian-verified"
     ],
     [
