@@ -1,9 +1,9 @@
 29 October 1981
 Talk to Sahaja Yogis
-28 Bramham Gardens, London (England)
+23 Bramham Gardens, London (England)
 Talk Language: English | Transcript (English) - Draft
 
-Practical session with Sahaja yogis, Bramham Court Ashram, 28 Brahmam Gardens, London, UK, 29th October 1981.
+Practical session with Sahaja yogis, Bramham Court Ashram, 23 Brahmam Gardens, London, UK, 29th October 1981.
 
 Shri Mataji: All right? Good, good. How are you? How is the Baby?
 
