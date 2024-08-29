@@ -5644,10 +5644,6 @@
         "transcript-english-draft"
     ],
     [
-        77588,
-        "transcript-english-draft"
-    ],
-    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -12028,6 +12024,10 @@
         "transcript-english-verified"
     ],
     [
+        77606,
+        "transcript-english-verified"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -16184,6 +16184,10 @@
         "translation-english-to-hindi-draft"
     ],
     [
+        77606,
+        "translation-english-to-hindi-draft"
+    ],
+    [
         15159,
         "translation-english-to-hindi-in-progress"
     ],
@@ -16393,6 +16397,10 @@
     ],
     [
         77268,
+        "translation-english-to-italian-verified"
+    ],
+    [
+        77588,
         "translation-english-to-italian-verified"
     ],
     [

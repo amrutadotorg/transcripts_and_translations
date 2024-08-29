@@ -1,3 +1,362 @@
-Šrí Krišna púdža: Musíte dávat, dávat a dávat, 29/09/1996, (nekontrolováno), New York, USA
+29 September 1996
+You Have To Give, And Give, And Give
+Krishna Puja
+Camp Vacamas NJ, New Jersey (United States)
+Talk Language: English | Transcript (English) - VERIFIED
+Shri Krishna Puja, NJ (USA), 29 September 1996.
 
-Dnes jsme se rozhodli uspořádat Krišna púdžu, protože Amerika je Krišna bhúmi. Je velmi překvapivé, že tak velká inkarnace Šrí Krišny přišla ještě mnohem později než Ráma a poslala své zvláštní lidi žít do Ameriky. Samozřejmě, je mnoho těch, kteří v této zemi hledají, o tom není pochyb. Ale je také mnoho těch, kteří je uvádějí v omyl. Tak zjistíte, že přes veškeré úsilí se nám nedaří Sahadža jógu příliš rozšířit. To, co se člověk musí naučit z Jeho života, je velmi, velmi důležité. První a nejdůležitější věc, kterou učil, byla kolektiva. Chytal malé chlapce a společně si s nimi hrál. Ráma to nedělal. Držel se žen, které prodávaly mléko a také máslo, těch, které si chodily napustit vodu do džbánu. On je ten, kdo všechny takové lidi ve vesnici Gókul shromáždil. Dělal všemožné žertíky svým přátelům a své matce a matčiným přátelům. Choval se jako velmi zlobivé dítě, jen aby ukázal, že byl stejný jako my všichni. Jak víte, byl inkarnací Šrí Višnua. Nejprve se narodil Šrí Ráma, přijal inkarnaci jako Šrí Ráma, který byl v árijské rase, to znamená, že v té době jsme měli árijskou rasu, která byla jakoby nadřazená, vyšší rasa než ostatní. Ale když přišel jako Krišna, zrodil se v dynastii Jádavů, můžete to tak nazvat. Nebyli nadřazení, prodávali mléko, měli pastýře krav a dělali práci, která nebyla v žádném náboženském stylu. Ale byli to nevinní prostí lidé, žijící na vesnicích v dětství Šrí Krišny a viděli velké zázraky. Zabíjel démony. Zabil Pútanu. Všechny tyto lidi poslal Jeho strýc Kamsa, aby ho zabili. Tak to mělo být, protože musel dokázat, že je inkarnací Šrí Višnua a to se mu podařilo. To, jak jako dítě ty lidi zabil, je pozoruhodné. A jak je odhalil, přestože byli všichni maskovaní. V dnešní moderní době je pro lidi těžké uvěřit, že by mohla existovat nějaká inkarnace jako Šrí Krišna. V Sahadža józe máme metodu, která naprosto potvrzuje pravdu, že Šrí Krišna vládl na čakře Višuddhi. Od dětství je vidět, že měl rád kolektiv. A snažil se vytvořit kolektiv lidí, kteří byli velmi prostí, nevzdělaní, dobrosrdeční. A to je Jeho zvláštní vlastnost. A všichni lidé z té vesnice Ho velmi dobře znali, všichni se o Něj starali. A když musel odejít, byli velmi smutní a všichni za Ním běželi a plakali. Byl to malý chlapec, který odcházel. Koneckonců, co se děje? Malý chlapec odchází z vesnice. Celá vesnice se shromáždila, aby ho oplakala. To je to, co my všichni sahadžajogíni musíme vědět. I jako dítě byl velmi kolektivní osobností. On vlastně vyzařuje kolektivnost. Kolektivní vědomí, kterému se těšíte, je díky Jeho požehnání. Zjistila jsem, že Američané jsou velmi kolektivní v tom smyslu, že se více starají o jiné země, než o svou vlastní. Chtějí jít až do Vietnamu, teď do Iráku, teď na nějaké jiné místo. Jezdí po celém světě, snaží se napravovat. Ale ve své vlastní zemi nevidí, co je špatně. Je tak rozdělená. Rozdělená hlavně na základě rasy, rasové diskriminace, je rozdělená podle náboženství, a to všechno jsou jen koncepty, které přijali, a bojují mezi sebou. A teď, po tom všem, jsou lidé, kteří věří, že se narodili jako zločinci a že by měli být zločinci. A jejich zločinnost jde velmi daleko. Jsou to gangsteři. Dokonce i malé děti se staly gangstery. Ale nejhorší je, že také tito malí chlapci, včetně ostatních, všichni tito zločinci jsou považováni za velké hrdiny. Jednou jsem viděla malého chlapce, který měl na sobě tričko s fotografií jiného mladého chlapce. Tak mi to řekl, a já se zeptala: „Kdo je to?“ – „Ty to nevíš? Je to velmi známý gangster,“ řekl. Ve svých třinácti letech je to velmi slavný gangster a ten chlapec si ho velmi hrdě vystavuje jako velkého hrdinu, nebo jako by to byl Bůh, řekněme. Tak se podívejte, jaká zvrácenost, do jakých mezí bylo použito požehnání Šrí Krišny. Proto je tato země velmi obtížná. Jeden negativní útok za druhým. Například, jako první začali křesťané, kteří tvrdili, že Krista zabili Židé. On nikdy – to není pravda, to není pravda. Nikdy ho nezabili Židé. „Krista zabili Židé“, to je naprosto nepravdivé tvrzení. Naprosto. Kristus nebyl zabit Židy. Jak může nějaký dav zabít člověka? Je to tamní zákon. Římané, nebo můžete říci římský zákon, ho ukřižoval. Takže Křesťané začali pěkně mučit Židy, protože Kristus byl zabit. Nevím, jak si takovou absurdní myšlenku vysvětlit. Někdo byl zabit tolik let zpátky, a k čemu je teď zabíjení nějakých vnuků těch lidí nebo pravnuků těch lidí? Ale oni to neudělali, Židé to neudělali. Přesto tady byla ta představa, že Židé zabíjeli. A křesťané měli pocit, že mají právo Židy mučit. Takže když sem Židé přišli, nikdy neměli dobré postavení, byli velmi mučeni a velmi trápeni. To se dělo všude, ale tady mnohem víc. Takže mezi Židy se teď objevili nějací ďáblové, jako je Freud. A ten řekl: „Dobře. Musíme ty křesťany zcela zničit.“ Naprosto. Jejich morální kořeny musí skončit.“ A tak začal s vlastní psychologií, aby křesťany zničil. A křesťané to hloupě přijali. Dělali všechno, co jim řekl, experimentovali se vším, co dělal. Když jsem byla jednou ve Švýcarsku, přišly dvě dívky a na programu se třásly. Nechápala jsem to. Zavolala jsem na ně: „Proč se třesete?“ A ony odpověděly: „My jsme vlastně držitelky velkého titulu ve Freudově učení a dělaly jsme všechny Freudovy experimenty.“ „A proč se tedy třesete?“ „Protože se máme moc třást!“ Takže se řídili tím Freudem a tuhle pomstychtivost, která tam byla, nikdo neviděl, dokonce ani Židé. Výsledkem bylo, že jsme měli lidi, kteří byli smrtelně proti každému a navzájem se ruinovali, ničili se. Pak začala tahle černobílá záležitost. Lidé předkládají nejrůznější teorie, aby ukázali, že černí jsou špatní, nebo bílí jsou špatní. Rozdíl je jen na úrovni kůže. Pokud chcete, můžete si tu kůži rozříznout a přesvědčit se sami. Vnitřek těla je stejný. Ale bylo to tak. Tato metoda rozdělování začala a stále pokračuje. Vždycky říkám, že bez černochů Američané zůstanou na suchu. Podívejte se, jaký mají talent. Nejen hudební. V Atlantě, jak jsem viděla, vyhrávali samí černoši a běloši nikde. Jen si to představte. Velmi pěkně běhali, velmi svižně až do konce, víte. A všichni běloši si říkali: „Ha, ha, ha.“ Pěkně si užívali své postavení. Také nemáte takovou výdrž jako černoši. Také i ve hrách je to stejné. Co se s tím vším stane s Amerikou? Je to země, která musí být kolektivní kvůli Šrí Krišnovi. Všichni jsou tu přistěhovalci. Kdo není přistěhovalec? Nezáleží na tom, jestli přišli dříve nebo později. Díky Bohu, jak už jsem vám mnoho- krát říkala, že Kolumbus zabloudil a přišel tady a ne do Indie. Jinak by tu nezůstali žádní Indové a žádná Sahadža jóga. Myslím, že to byl Hanumanův trik. Ten ho oklamal a Kolumbus sem přišel. Díky Bohu. Teď jste v zemi, kde musíte být kolektivní. Krišna vás neušetří, dokud nebudete kolektivní nebo dokud se nevzdáte toho hlubokého nesmyslu s rozdíly – jako kůže ap. Pak náboženské rozdíly. Měl přítele, který byl chromý na jednu nohu. Měl několik přátel, kteří byli velmi černí. Měl několik přátel, kteří byli docela indičtí běloši, měla bych říct. Neměla bych říkat, bílí jako vy, ale indicky bílí. Měl všechny možné barvy. A sám se narodil v Jádavské vanše. I když to byli prodavači mléka, mlékaři, kteří prodávali lidem mléko. Nenarodil se ve velmi královské rodině jako Šrí Ráma. I když byl, protože později se stal králem Dváriky. Ale v Jeho stylu, v Jeho chování, v Jeho životě nikdo nepoznal, že by byl královskou osobností. Mohl spát pod stromem. Mohl jíst všechno, co se mu dostalo pod ruku. Z Jeho života si můžete přečíst spoustu sladkých, milých příběhů, které ukazují, jak těšil ze svého kolektivu a nikdy se nevytahoval. A Jeho kolektivita musí být v této zemi vypracována. Pokud a dokud to nevyjde z vašeho srdce, nebude to fungovat. Takové problémy jsme tu měli s kolektivitou vždycky. Například jedna paní, víte, ona je velká dáma, myslím. Začala opravovat lidi: „Proč to sem dáváte? Vždyť se to tady špiní. Tahle věc je taková a taková.“ Takovou ženu by měli občas poslat do nějaké stáje, aby ji vyčistila. Pak se vzdá těch nesmyslných představ, které má. Pokud jste sahadžajogín, nemůžete se takto chovat. A takové chování může Sahadža jógu zničit. Slyšeli jste mě někdy říkat: „Tohle je špinavé, tohle není dobré, tohle se mi nelíbí?“. Řekla jsem to někdy? Především musíme pochopit, že pokud máme být kolektivní, měli bychom se vzdát těchto hloupých představ o sobě samých. Někteří lidé získají nějaké postavení, možná nějaké peníze, možná bych řekla, že mají zázemí. Pokud na něm lpíte, pak nejste sahadžajogín. Jste světci! Nemůžete být nároční. Musíte dávat a dávat a dávat. Ať už je vaše životní pozice jakákoli, pokud vás to může přemoci, pak vůbec nejste sahadžajogíni. Šrí Krišna, který je Virátou, který je velkou Prapůvodní osobností, neprojevil žádné takové známky své velikosti. Američané však mají zvláštní schopnost ukázat, že jsou něčím výjimečně velkým. Ale sahadžajogíni, prosím vás, neučte se těmto věcem. Musíte přimět ostatní, aby se to odnaučili. Pokud to nejde, je lepší Sahadža jógu navždy opustit. Takoví lidé udělají všechny nešťastnými a zničí Sahadža jógu v Americe. I ohledně protokolu byste se měli stát nadčasovými. Absolutně nadčasovými. Pokud si teď dáváte záležet na čase, Šrí Krišna si s vámi zahraje triky a vaše časování skončí. Stalo se to včera. Musíte tedy vědět, že čas je vaším otrokem a že nesmíte být otrokem času, pokud jste sahadžajogín. Jinak jím nejste. To znamená, že nejste vedeni Božským. Božské vše velmi dobře vyřeší. Ale pro koho? Pro sahadžajogíny. Ale pokud nejste sahadžajogíni, upadnete dolů. V každém případě bychom měli zjistit, jaké věci jsme mezi sebou nahromadili, které nejsou Šrí Krišnovou vlastností. Šrí Krišna jako dítě kradl dámám máslo. Proč? Proč kradl máslo? Protože ho prodávaly vojsku Kamsy, Jeho strýce, který byl ďáblem. Chodili ho prodávat až do Mathury. Tak ho kradl, protože ho potřebovaly děti, a dával ho dětem. Ten nápad se mu nelíbil. Proč by ho měli dostávat ti strašní rakšasové z Mathury? Právě naopak je to v Americe. Všichni falešní guruové, všichni rakšasové sem přicházejí a dostávají všechno máslo. Jako by lidé neměli mozky, aby to pochopili, zatímco Šrí Krišna je mozek Viráty. Ale tady zjistíte, že lidé nemají mozek. Přijde kdokoli, něco řekne a oni: „Ach, ha, ha, skvělé.“ Někdo mluví ve velkém – dobře. Rozdají své peníze. Rozdají své domy. Své děti vyřadí ze školy – za něco nesmírně hloupého. Zatímco On je mozek v těle Viráty. Takže tento druh bezmoci přichází a my se opravdu začínáme, dokonce i sahadžajogíni se začínají chovat způsobem, který ukazuje, že jsou opravdu bez mozku. Kromě toho je to Kubéra. Je to Bůh bohatství. Proto je v této zemi bohatství. Ale všechno toto bohatství se stává dluhy, jak vidíte, díky zvláštním mozkům Američanů. Jsou tak hloupí, že cokoli se prodává na trhu, ať už to potřebují, nebo ne, koupí to. Vezmou si půjčku, zase si vezmou půjčku, vezmou si půjčku, až jsou naprosto zadlužení. Tady, v zemi Kubéry, byste měli být opravdu bohatí. Bohatý neznamená jen mít zůstatek na účtu, ale znamená to skrze temperament. Nyní je to mnohem lepší, ale kdysi byli Američané nejskromnějšími sahadžajogíny. Posílali mi jako dárek svíčky a já jsem je schovávala. Říkala jsem: „Babo, proč vůbec posíláš svíčky? Neposílejte nic, protože ty svíčky každý uvidí a co si o tom řeknou – že byly poslány svíčky.“ Teď o tom mluvím kvůli introspekci. Jsme kolektivní? Jsme ochotni se podělit o všechno, co máme? Díváme se na lidi, kteří přicházejí z jiných zemí, svrchu? Máme v sobě racioanalismus. Třicet pět sahadžajogínů přijelo z Austrálie do Ameriky, jako by to byl nějaký hadž. Vrátili se s velmi špatnými vibracemi. Polovina z nich byla ze Sahadža jógy vyhozena. Představte si, že Austrálie je země, kam posílali všechny zločince. Takže posuzovat sebe sama znamená především vidět své vibrace, že byste měli meditovat a posoudit své vibrace, jestli jste opravdu kolektivní, nebo ne. Protože takoví nejste, Sahadža jóga se nešíří. Viděla jsem lidi z Hare Rama Hare Krišna. Ubožáci, nic nenašli. Vstanou ve čtyři hodiny, začnou svůj Hare Rama Hare Krišna bhadžan – ve čtyři hodiny. Dobrá. Celý den pak nosí velmi tenké dhóti, ve kterém se třesou. Oholí si hlavu a dají si sem prasečí ocas, který se kupuje na trhu. Když uvidíte jejich oddanost, budete překvapeni. Jak to, že jsou tak oddaní, když vůbec nic nenašli? A co jeptišky? Když je uvidíte, budete žasnout. Jeden chlapík k nám přišel z katolické církve. Chtěl se stát knězem. Říkal: „Matko, Sahadža jóga – vy neděláte nic, nic.“ Řekla jsem mu: „Co chceš dělat?“ „Tam jsme v pátek nemohli jíst žádné maso. V sobotu jsme nemohli nic pít. V neděli jsme se pak celý den museli postit a modlit se k Bohu.“ „A dál? Co po zbytek času?“ „Zbytek času jsme se museli učit nazpaměť Bibli a pak ji odříkávat. A když jsme udělali byť jen jednu chybu, otec nám dal pěkný výprask.“ To je další problém Sahadža jógy protože je to hra Šrí Krišny. Je to tak jednoduché. Nemusíte dělat nic takového. Žádná kázeň, nic. Nechá se to na vás, jste svým vlastním pánem. Jste svým vlastním guruem. Ale ty věci, které se ve vaší mysli drží, které jsou pravým opakem života Šrí Krišny, které jste si osvojili v této zemi, tam stále jsou, tu a tam, tu a tam zůstaly. Někteří lidé jsou opravdu stále tak zaneprázdněni sami sebou. Vypadají tak bledě, hubeně – řeknu vám, nemohu uvěřit, že jsou to sahadžajogíni. Když se tedy podíváme na život Šrí Krišny – na to, jak žil. A pak šel na pomoc Pánduovcům. Řekl Ardžunovi: „Mohu být tvým vozatajem. Mohu řídit tvůj vůz. Ale nebudu bojovat.“ Ardžuna věděl, že On je všemocný, že když je tam On, všechno se vyřeší. „A celé své vojsko dám Kuruovcům, aby viděli rovnováhu.“ Řekl, tedy dobrá. Nebojoval proto, aby se předváděl: Já jsem to, já jsem tamto. Jako tady: „Matko, já jsem lídrem.“ „Eh?“ „Já jsem lídr.“ „Neslyším, neslyším tě.“ „Neslyším, neslyším tě.“ „Matko, já jsem to.“ Jste sahadžajogíni. Je to velmi velké jméno, kterého jste dosáhli. Nejvyšší postavení, kterého jste dosáhli. Nic dalšího už není třeba dosáhnout. Jak se mě někdo zeptal: „Matko, Indové v Indii nikdy nejsou napadeni. Proč jsme my pořád napadáni?“ Odpověděla jsem: „Protože Indové v Indii vědí, že už toho dosáhli. Už není čeho dosáhnout. A vy chcete mít Boží realizaci – nevím, jakou jinou realizaci.“ Oni takhle nepřemýšlejí. Říkají: „Teď jsme dosáhli svého. Jsme v moři. Je na nás, abychom ho přeplavali.“ Některé z těchto věcí jste překročili, někteří z vás je naprosto ztratili. Ale někteří z vás tam stále jsou. Jsou to ty nejnebezpečnější věci, jak řekl Kristus: „Dávejte si pozor na reptající duše.“ Nevím, jak zastavit tyto malé, krysám podobné lidi, kteří podřezávají hnízdo Sahadža jógy. Dostala jsem mnoho zpráv a jsem opravdu šokována. Jak je možné, že po tolika letech mé návštěvy o sobě lidé mluví špatně a vytváří tyto problémy? Přátelství Šrí Krišny je dobře známé, víte, jak se choval k Sudamovi. Všechny Jeho krásné projevy se musí projevit ve vaší povaze. Pak jedině může být tato země zachráněna. Musím říct, že je to – teď tu máme Kanadu, máme tu prý i lidi, říkali mi, že i z Rakouska. Z celého světa, z Anglie. Ale stejně nás není tolik, kolik by nás mělo být. Když si vezmete jenom Rakušany, tak těch musí být dvojnásobek. Když to dokázali oni, proč to nedokážeme my? Protože neděláme introspekci a nevymaňujeme se ze svého ega. Oni řeknou: „Proč Krišna nemeditoval?“ Musíte meditovat na Šrí Krišnu. Když bude meditovat On, co se s vámi všemi stane? Celkově jsem byla se včerejším programem nějak velmi spokojená. Navzdory – jako obvykle v New Yorku, naší neschopnosti udělat opravdu dobrou reklamu, nesystematickému všemu. Navzdory tomu, že jsme měli tolik lidí a já jsem na ně naložila odpovědnost. Protože o to jde – je to odpovědnost Šrí Krišny. A to je to, co je teď vaší odpovědností. Jste zodpovědní za Ameriku a za Kanadu, Jižní Ameriku. Vy všichni jste zodpovědní a vy lidé byste měli být takoví, aby lidé, kteří vás vidí, poslouchají, jsou s vámi, věděli, že to jsou Gopa a Gópí  Šrí Krišny. Dokud se tak nestane, je tato Amerika tím nejtěžším místem. Někdy mám pocit, že to není Gókul, ale Mathura. Tak je to i pro vás – a jinak se těšit nemůžete. Pokud žijete se všemi svými starými šaty, nemůžete si užívat. Musím říct, že tentokrát tu bylo tolik lidí a já jsem je požádala, aby slíbili, a požádala jsem je, aby na ně dali bandhan, a jsem si jistá, že se budou snažit můj slib dodržet. Jsem si tím jistá. Ale jste to vy, lidé, kdo je zklamali. Když vás vidí, jsou zklamaní. Višva Nirmala Dharma je zde vlastně poprvé ustanovena jako náboženství. Je to tak. Ale zbytek je nula. Takže všechny tyto rozdíly a rozdělení musí skončit a měli bychom být zajedno v kolektivní přirozenosti Šrí Krišny. Zaprvé, meditace je velmi důležitá. Introspekce je velmi důležitá. A také vzájemné setkávání, rozhovory, vzájemné poznávání je velmi důležité. Všude to funguje. Ohromně to fungovalo v Indii, ohromně v Rusku, ohromně v Bulharsku, tak proč ne tady? Není to móda pro lidi bez mozku. Je to živoucí proces, živoucí proces, který musí proběhnout, kde musíte dozrát. A já zjišťuji, že Američané nejsou vyzrálí. Vy už jste ale vyspělí. Jste teď vyzrálí lidé. A doufám, že se od nynějška budete všichni chovat jako zralí lidé. Nechť vám Bůh žehná!
+Today we have decided to have Krishna Puja because America is the Krishna bhoomi.
+
+It’s very surprising that such a great incarnation of Shri Krishna came even much later than Rama and has sent His special people to live in America.
+Of course, there are many who are seeking in this country, no doubt. But there are many who are also misleading them. That’s how you find, despite all our effort, we have not been able to expand Sahaja Yoga very much.
+
+What one has to learn from His life is very very important. The first and foremost thing He taught was collectivity. He used to get hold of small boys and play with them together. Rama didn’t do that. He used to get hold of ladies who were selling milk and also butter, those who used to go to fill their waters – water in the pitcher. He is the one who collected all such people in the village of Gokul. He played all kinds of pranks on His friends and His mother and the mother’s friends. Behaved just like a very naughty child, just to show that He was just like all of us.
+
+As you know, He was the incarnation of Shri Vishnu. First Shri Rama was born, took incarnation as Shri Rama, which was in the Aryan race, means that time we had an Aryan race which was sort of superior, superior race than others. But when He came as Krishna, He took His birth in Yadav dynasty, you can call it.
+They were not superior, they were selling milk, having cowherds and doing work not of any religious style. But they were innocent simple people living in the villages, and they saw the great miracles of Shri Krishna’s childhood.
+
+He killed demons. He killed Pootana. All these people were sent by His uncle Kamsa to kill him. It was to be, because He had to prove that He was the incarnation of Shri Vishnu and He did it. As a child, how He killed those people is remarkable. And how He made them out though they were all camouflaged.
+
+In these modern times, difficult for people to believe that there could have been any incarnation like Shri Krishna. But in Sahaja Yoga, we have method of absolutely establishing the truth that Shri Krishna was there ruling on the Vishuddhi chakra. From His childhood, you can see He was fond of collectivity. And He tried to create collectivity of people who were very simple, uneducated, good-hearted people. And that is His special quality. And all the people of that village knew Him very well, all cared for Him.
+And when He had to go, they felt very sad and all of them came running and crying for Him. It was a small boy who was going. After all, what is there? A little boy from the village is going. The whole village had gathered to cry for Him.
+
+That is what we all Sahaja Yogis have to know. As a child also, He was a very collective personality. He actually emits collectiveness. The collective consciousness that you enjoy is because of His blessing.
+I find that Americans are very collective in the sense, they are more bothered about other countries than about their own. They want to go all the way to Vietnam, now to Iraq, now to some other place. Going all over the world, they try to correct. But their own country they do not see what’s wrong. It’s so divided. Mainly divided on race, racial discrimination, is divided by religions, and all of these are just concepts which they have accepted and are fighting among themselves.
+
+Now after all these, there are people who believe they are born criminals and they should be criminals. And their criminality is going very far. They are gangsters. Even small children have become gangsters. But the worst part is that the, these little boys also, including others, all these criminals are regarded as big heroes.
+I have seen once a young boy wearing a shirt with another young boy’s photograph over it. So he told me – I said, “Who is this?” “You don’t know? Very famous gangster is he”, he said. At the age of thirteen years he is a very famous gangster and this boy is very proudly putting up that – like a big hero, or you can call it like a God there. So see the perversion to what limit Shri Krishna’s blessings have been used. That’s why this country is very difficult.
+
+One after another there has been attack of negativity. For example, first thing started by Christians, who said that Jews killed Christ. He never – It’s not true, it’s not true. He was never killed by Jews. “Christ was killed by Jews”, is a false statement, absolutely. Christ was not killed by Jews. How can a multitude kill a man? It’s the law there. The Romans, or you can call the Roman law crucified Him. So the Christians started nicely torturing the Jews, because Christ was killed. I don’t know how to explain this such absurd idea.
+
+Now somebody was killed so many years back, and now what’s the use of killing some grandchildren of those people or great grandchildren of those people? But they did not, the Jews did not. Still, this concept was there that the Jews killed. And the Christians felt they have a right to torture the Jews. So when the Jews came here, they were never given a good position, they were tortured very much and troubled very much. It happened everywhere but very much more here.
+
+So among Jews now came out some devils, like Freud. And he said, “All right. We must shatter these Christians absolutely. Their moral roots must be finished.” So, he started his own psychology to destroy the Christians. And Christians stupidly accepted. They did whatever he said, experimented whatever he did.
+
+When I was once in Switzerland, two girls came and they were shaking in the program. I couldn’t understand. I called them. I said, “Why are you shaking?” So they said that, “Actually we are very much degree holders in Freudian knowledge and we have done all experiments of Freud.” “And then why are you shaking?” “Because we have power to shake!” How about that? So, they followed this Freud and this vindictiveness that was there was not seen by anyone, even by Jews.
+
+As a result we had people who were deadly against each other and ruining each other, destroying each other.
+Then this Black and White business started. All kinds of theories people are putting up to show that the Blacks are bad or the Whites are bad. The difference is only skin-deep. If you want you can cut the skin and see for yourself. Inside body is the same. But it was so. This divisive method started and it’s still going on.
+
+I always say, without Blacks, Americans will be left high and dry. Look at the talent they have. Not only music.
+Atlanta, I saw, all the Blacks were winning and Whites were not anywhere. Very nicely they used to run, very swiftly at the end of it, you see. And all the Whites were saying, “Ha, ha, ha.” They were nicely enjoying their position. You don’t have the stamina of the Blacks also. So, in games also, same thing. With all this what is going to happen to America? 
+
+It’s a country which has to be collective because of Shri Krishna. All of them are immigrants here. Who is not an immigrant? Whether they came earlier or later doesn’t matter. Thank God, I have told you many-a-times that Columbus lost his way and came here, not to India. Otherwise, there would have been no Indians left and no Sahaja Yoga. I think it was the trick of Hanumana. He misled him and Columbus came here. Thank God! Now you are in a country where you have to be collective. Krishna won’t spare you unless and until you are collective or you give up this nonsense of skin-deep differences.
+
+Then religious differences. He had a friend who was lame by one leg. He had some friends who were very black. He had some friends who were quite Indian white, I should say. I shouldn’t say white like you people, but Indian white. He had all kinds of colors. And He took His own birth in the Yadav vansha. Though they were milk sellers, milkmen who used to sell milk to people. He didn’t take His birth in a very royal family like Shri Rama. Though He was, because later on He became the king of Dwarika. But in His style, in His behavior, in His life, nobody could see that He was a royal personality. He could sleep under a tree. He could eat anything that He could get.
+
+All kinds of sweet, sweet stories you can read in His life, showing how He was enjoying His collectivity, never showing off. And His collectivity has to be worked out in this country. Unless and until it is done from your heart, it’s not going to work out. We had problems like this always with our collectivity here. For example, a lady, you know, she is a big lady, I think. She started correcting people, “Why do you put here? This thing is getting dirty. That thing is this and that.” Such a woman should be sometimes sent to some stable to clean it. Then she will give up these nonsensical ideas that she has. If you are a Sahaja Yogi, you cannot behave like this. And this kind of behaviour can destroy Sahaja Yoga. Have you ever heard me saying that, “This is dirty, this is not good, I don’t like this?” Did I say, ever?
+
+First of all, we have to understand, if we have to be collective, we should give up these stupid ideas about ourselves. aSome people get some position, maybe some money, maybe I would say, have a background. If you are sticking on to it then you are not a Sahaja Yogi. You are saints! You cannot be demanding. You have to give, and give, and give. Whatever may be your position in life, if that can overpower you then you are not a Sahaja Yogi at all. Shri Krishna, who is the Virat, who is the great Primordial Personality, didn’t show any such signs of His greatness. But Americans have a specialty to show that they are something outstandingly great. But Sahaja Yogis, please don’t learn those things. You have to make others unlearn. If that cannot happen, it’s better to leave Sahaja Yoga forever.
+
+Such people will make everyone miserable and destroy Sahaja Yoga in America. Even about protocol, you should become timeless. Absolutely timeless. Now, if you are particular about time, Shri Krishna will play His tricks and your timing will be finished. Happened yesterday. So one has to know that time is your slave and you don’t have to be the slave of time – if you are a Sahaja Yogi. Otherwise, you are not. That means you are guided not by the Divine. The Divine works out everything very well. But for whom? For Sahaja Yogis. But if you are not Sahaja Yogis, you’ll topple down.
+
+In every way we should find out what things we have accumulated among ourselves which is not Shri Krishna’s quality. Now, Shri Krishna used to steal, as a child, the butter from the ladies. Why? Why did He steal the butter? Because they were selling it to the military of Kamsa, His uncle, who was a devil. They used to go all the way to sell him in Mathura. So He used to steal it, because children needed it, and giving it to children. He didn’t like this idea – why should it go to these horrible rakshasas of Mathura.
+
+Just the opposite is in America. All the false gurus, all the rakshasas come here and they get all the butter. As if people have no brains to understand, while Shri Krishna is the brain of the Virata. But here you find the people have no brains. Anybody comes, says something, they, “Ah, ha, ha, great.” Somebody talks big – all right. They’ll give away their money. They’ll give away their houses. Their children, they’ll remove from the school – for something extremely stupid. While He is the brain in the body of Virata. So this kind of brainlessness comes and we really start, even Sahaja Yogis start behaving in a manner that shows they are really brainless.
+
+Apart from that, He is Kubera. He is the God of wealth. That’s why there is wealth in this country. But this wealth is all becoming debts, you see, because of the special brains of Americans. They are so stupid that whatever is selling in the market, whether they need it or not, they’ll buy. Take loan, again take loan, take loan till they are absolutely indebted. Now here in the country of Kubera you should be really rich. Rich doesn’t mean just to have bank balance, but means by temperament.
+
+Now it’s much better. But once upon a time, Americans were the most miserly Sahaja Yogis. They used to send me candles as present and I used to hide that. I said, “Baba why do you send candles, even? Don’t send anything, because everybody is going to see those candles and what are they going to say about it, that candles have been sent.”
+
+Now, this, I am talking for introspection. Are we collective? Are we willing to share everything that we have?
+Do we look down upon people who come from other countries? Do we have racialism in us? Thirty-five Sahaja Yogis came from Australia to America as if this is some Hajj. They went back with very bad vibrations.
+Out of them, half were thrown out of Sahaja Yoga. Imagine! Australia is country where they used to send all the criminals.
+So first and foremost, to judge yourself is to see your vibrations. That you should meditate and judge your vibrations if you are really collective or not. Because you are not like that, Sahaja Yoga does not spread. I have seen people from Hare Rama-Hare Krishna. Poor things have found nothing. They get up at four o’clock, start their Hare Rama Hare Krishna bhajan – four o’clock. All right. Then the whole day they wear a very thin dhoti in which they are shivering. They shave their heads and put a very pig’s tail here which is bought in the market. If you see their dedication you’ll be surprised. How they are so much dedicated, when they haven’t found anything whatsoever?
+
+What about the nuns? You see them, you’ll be amazed. One fellow came from the Catholic Church to us. He was trying to be a priest. He said, “Mother, Sahaja Yog – you don’t do anything, anything.” I said, “What do you want to do?” “You know, there we could not eat any meat on Fridays. On Saturdays, we could not drink anything. Then on Sundays, the whole day we had to fast and pray to God.” “Then – what about the rest of the time?” “The rest of the time, we had to remember Bible by heart and then recite it. And if we made even one mistake, the father would give us a nice beating.”
+
+That’s another problem with Sahaja Yoga because it is Shri Krishna’s play. It’s so simple. You don’t have to do anything of the kind. No disciplining, nothing. Left to you, you are your own master. You are your own guru.
+But these things which are lingering in your mind, which are just the opposite of Shri Krishna’s life, which you have acquired in this country, are still there, here and there, here and there left. Some of the people are really still so much busy with themselves. They look so pale, thin – I’ll tell you, I can’t believe they are Sahaja Yogis.
+
+So when we see Shri Krishna’s life, the way He lived. And then He went to help the Pandavas. He told Arjuna that, “I can be your charioteer. I can drive your chariot. But I will not fight.” Arjuna knew that He was all-powerful, if He is there everything will work out. “And all my army I’ll give to Kauravas, to see the balance.”
+He said, “All right.” He didn’t fight to show off, I am this, I am that.
+
+Like here: “Mother, I am the leader”.– “Eh? “I am the leader.” “Can’t hear, I can’t hear.” “Mother, I am this.”
+You are a Sahaja Yogi. Is a very great name that you have achieved. The highest position you have achieved. There’s nothing more to be achieved. Like somebody asked me, “Mother, the Indians in India never catch.
+Why do we go on catching all the time?” I said, “Because Indians in India know they have achieved it now. Nothing to be achieved. And you want to have God’s Realization – I don’t know what other Realization.” They don’t think like that. They say, “We have achieved now. We are in the sea. It’s for us to swim over.” All these things some of you have crossed over, some of you have absolutely lost them. But some of you are still there.
+
+They are the most dangerous thing as Christ has said, “Be careful of the murmuring souls.” I don’t know how to stop these little rat-like people, who are cutting the nest of Sahaja Yoga. I’ve been reported about many, I’m really shocked. After so many years of my visit, how can people talk ill of each other and can create these problems? Shri Krishna’s friendship is well known, you know with Sudama how He behaved. All His beautiful manifestations must show in your character. Then only this country can be saved.
+
+I must say it’s – now here we have Canada, we have people also, I’m told, from Austria. From all over, from England. But still, we are not so many people as we should have been. If you just take Austrians, they must be double of this. If they could do it, why can’t we do it? Because we do not introspect and we do not grow out of our egos. They will say that, “Why didn’t Krishna meditate?” You have to meditate on Shri Krishna. If He meditates what will happen to you all?
+
+On the whole, I was very happy with the other day’s program, somehow. Despite, as usual, in New York, our inability to really do good advertising, unsystematic everything. Despite that, we had so many people and I put the responsibility on them.
+
+Because that’s the thing – it is Shri Krishna’s responsibility. And that is what is your responsibility now. You are responsible for America and Canada, South America. You all are responsible and you people should be such that people who see you, listen to you, are with you, should know that these are the Gopas and Gopis of Shri Krishna. Unless and until thing that happens, this America is the most difficult place. Sometimes I feel it’s not Gokul but Mathura. So it is for you – and otherwise you cannot enjoy. If you live with your all old clothes, you can’t enjoy. I must say this time there were so many people and I have asked them to promise, and asked to put a bandhan on them, and I’m sure they will try to keep my promise. I’m sure. But it is you people who disappoint them. When they see you, they are disappointed.
+
+Actually, here is the first time, Vishwa Nirmala Dharma has been established as a religion, it is. But the rest of it is zero. So all these differences and divisiveness has to finish and we should be one in the collective nature of Shri Krishna.
+First, meditation is very important. Introspection is very important. And also, meeting each other, talking to each other, knowing each other is very important. It has worked all over. It’s worked out in India tremendously, Russia tremendously, Bulgaria tremendously, so why not here? It’s no fashion for brainless people. It is a living process which has to take place where you must mature. And what I find that Americans are not matured. But you are now mature. You are now mature people. And I hope you will all behave like mature people henceforth.
+
+So may God bless you.
+
+(Aside to somebody) Can we have...?
+There are Shri Krishna’s names they have written down and I would request leaders to come on the stage. Now try to understand every word, every name of Shri Krishna.
+[Hindi]
+(Aside to a yogi) Also, you say the name first, and then they will repeat it. Name and the meaning, and then they will repeat it.
+You just move on.
+Yogi: Can we have the leaders of the centers please come up to the stage?
+Shri Mataji: But are the... we didn’t have the children’s thing. What about the children? Eh? We have here, they can also come.
+Firstly let us do little bit of Ganesh - Ganesha Puja, then you’ll walk in. If there are children. Eh? [Hindi]
+Very few children there are.
+Yogi: Can we please have the children up on the stage to do Ganesha, Shri Ganesha puja.
+
+(Children come on stage)
+Just a minute. Ganesha Mantra...
+What is there? (Unclear) Too vital!
+Yogi: Take the mantra to Shri Ganesha.
+Shri Mataji: Ganesha mantra. Now. (Hindi) Just a minute, just a minute!
+[Shri Ganesha mantra is recited once]
+
+Shri Mataji: Sing song of Ganesha’s. Some Ganesha’s songs could we have.
+Yogi: Ganesh Sthuti. Sanskrit 11.
+[Then leaders come on stage]
+Yogi: We’ll take the 108 Names of Shri Krishna. First we’ll say the name in Sanskrit, then the meaning, and then we’ll take the mantra.
+[Recitation of 108 Names of Shri Krishna begins. Actually this is the complete list – but not all of them are shown on the video as in several parts the video gets interrupted. Ed.]
+1) Shri Krishna: He is Shri Krishna. He sows and cultivates the field of spirituality.
+Yogis: Om Twameva Sakshat Shri Krishna Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+2) Shridhar: He who has Shri Shakti.
+Yogis: Om Twameva Sakshat Shri Shridhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+3) Venudhar: He plays the Divine flute.
+Yogis: Om Twameva Sakshat Shri Venudhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+4) Shriman: He who holds all the wealth.
+Yogis: Om Twameva Sakshat Shri Shriman Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+5) Nirmalagamya: He who is accessibile only through Shri Mataji.
+Yogis: Om Twameva Sakshat Shri Nirmalagamya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+6) Shri Nirmala Pujak: He who worships Shri Mataji.
+Yogis: Om Twameva Sakshat Shri Nirmala Pujak Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+7) Nirmal Bhakta Priya: He who loves the devotees of Shri Mataji.
+Yogis: Om Twameva Sakshat Shri Nirmal Bhakta Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+8) Nirmal Hriday: He who has the Lotus Feet of Shri Mataji in His heart.
+Yogis: Om Twameva Sakshat Shri Nirmal Hriday Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+9) Shri Niradhar: He who needs no support.
+
+Yogis: Om Twameva Sakshat Shri Niradhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+10) Shri Vishwadhar Janak: He is the Father of Christ.
+Yogis: Om Twameva Sakshat Shri Vishwadhar Janak Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+11) Shri Vishnu: He who is Shri Vishnu.
+Yogis: Om Twameva Sakshat Shri Vishnu Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+12) Maha Vishnu Pujita: He who is worshipped by Christ.
+Yogis: Om Twameva Sakshat Shri Maha Vishnu Pujita Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+13) Shri Vishnumaya Sughoshita: He is announced by Shri Vishnumaya.
+Yogis: Om Twameva Sakshat Shri Vishnumaya Sughoshita Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+
+14) Shri Vageshwar: He who is the Master of language.
+Yogis: Om Twameva Sakshat Shri Vageshwar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+15) Shri Vageshwari Bhrata: He is the brother of Maha Saraswati.
+Yogis: Om Twameva Sakshat Shri Vageshwari Bhrata Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+16) Shri Vishnumayanuja: He who is the brother of Shri Vishnumaya.
+Yogis: Om Twameva Sakshat Shri Vishnumayanuja Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+17) Shri Draupadi Bandhu: He is the brother of Draupadi.
+Yogis: Om Twameva Sakshat Shri Draupadi Bandhu Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+18) Shri Partha Sakha: He is the friend to Arjuna.
+Yogis: Om Twameva Sakshat Shri Partha Sakha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+19) Shri Sanmitra: He is the true friend.
+Yogis: Om Twameva Sakshat Shri Sanmitra Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+20) Vishwa Vyapi: He permeates the universe.
+Yogis: Om Twameva Sakshat Shri Vishwa Vyapi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+21) Shri Vishwa Rakshi: He guards the universe.
+Yogis: Om Twameva Sakshat Shri Vishwa Rakshi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+22) Shri Vishwa Sakshi: He witnesses the cosmic play.
+Yogis: Om Twameva Sakshat Shri Vishwa Sakshi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+23) Shri Dwarakadhisha: He rules over Dwaraka.
+Yogis: Om Twameva Sakshat Shri Dwarakadhisha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+24) Vishuddhi Prantadhisha: He rules over the country of Vishuddhi.
+Yogis: Om Twameva Sakshat Shri Vishuddhi Prantadhisha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi Namoh Namaha.
+25) Shri Jana Nayak: He leads the people.
+Yogis: Om Twameva Sakshat Shri Jana Nayak Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+26) Shri Vishuddhi Jana Palaka: He protects the people of the land of Vishuddhi.
+Yogis: Om Twameva Sakshat Shri Vishuddhi Jana Palaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+27) Shri Amerikeshwar: He is the Lord of America.
+Yogis: Om Twameva Sakshat Shri Amerikeshwar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+28) Shri Maha Nila: He who is blue.
+Yogis: Om Twameva Sakshat Shri Maha Nila Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+29) Shri Pitambar Dhari: He who wears the pitambar, the yellow dhoti.
+Yogis: Om Twameva Sakshat Shri Pitambar Dhari Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+30) Shri Sumukha: He who has a perfect face.
+Yogis: Om Twameva Sakshat Shri Sumukha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+31) Shri Suhasya: He whose laughter is beautiful.
+Yogis: Om Twameva Sakshat Shri Suhasya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+32) Shri Subhasha: He who has perfect speech.
+Yogis: Om Twameva Sakshat Shri Subhasha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+33) Shri Sulochan: He who has perfect eyes.
+Yogis: Om Twameva Sakshat Shri Sulochan Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+34) Shri Sunasik: He has a perfect nose.
+Yogis: Om Twameva Sakshat Shri Sunasik Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+35) Shri Sudanta: He has perfect teeth.
+Yogis: Om Twameva Sakshat Shri Sudanta Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+36) Shri Sukesha: He who has perfect hair.
+Yogis: Om Twameva Sakshat Shri Sukesh Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+37) Shri Sikhandi: The One whose head is adorned with a peacock feather.
+Yogis: Om Twameva Sakshat Shri Sikhandi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+38) Shri Sushrut: He who listens to all that is auspicious.
+Yogis: Om Twameva Sakshat Shri Sushrut Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+39) Shri Sudarshan Dhari: He uses the Sudarshan to protect the seekers.
+Yogis: Om Twameva Sakshat Shri Sudarshan Dhari Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+40) Shri Maha Vira: He who is a great warrior.
+Yogis: Om Twameva Sakshat Shri Maha Vira Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+41) Shri Shaurya Dayak: He who gives valour.
+Yogis: Om Twameva Sakshat Shri Shaurya Dayaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+42) Shri Rana Pandit: He is the Master of the art of warfare.
+Yogis: Om Twameva Sakshat Shri Rana Pandit Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+43) Shri Rana Chod: He runs away from the battlefield to win the war.
+Yogis: Om Twameva Sakshat Shri Rana Chod Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+44) Shrinath: He is the Master of Paramchaitanya.
+Yogis: Om Twameva Sakshat Shri Shrinath Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+45) Shri Yuktivan: He who knows all the tricks.
+Yogis: Om Twameva Sakshat Shri Yuktivan Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+46) Shri Akbar: He is the greatest person.
+Yogis: Om Twameva Sakshat Shri Akbar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+47) Shri Akhileshwar: He is the God of the whole universe.
+Yogis: Om Twameva Sakshat Shri Akhileshwar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+48) Shri Maha Virata: He is the Great Being of which everything else is part and parcel.
+Yogis: Om Twameva Sakshat Shri Maha Virata Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+49) Shri Yogeshwara: He is the God of the yogis.
+Yogis: Om Twameva Sakshat Shri Yogeshwara Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+50) Shri Yogi Vatsala: He who has fatherly love for the yogis.
+Yogis: Om Twameva Sakshat Shri Yogi Vatsala Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+51) Shri Yogavarnitha: He describes Yoga as the destination.
+Yogis: Om Twameva Sakshat Shri Yogavarnitha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+52) Shri Sahaja Sandesha Vahaka: He is the One through Him we can communicate the message of Sahaja Yoga.
+Yogis: Om Twameva Sakshat Shri Sahaja Sandesha Vahaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+53) Shri Vishwa Dharma Dhwaja Dharaka: He upholds the flag of Vishwa Dharma.
+Yogis: Om Twameva Sakshat Shri Vishwa Dharma Dhwaja Dharaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+54) Shri Garudarudha: He who rides on Garuda.
+[Shri Mataji to the ladies performing the Devi puja: “Just like the bangles, put it like the bangles”]
+Yogis: Om Twameva Sakshat Shri Garudarudha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+55) Shri Gadadhar: He who holds the mace.
+Yogis: Om Twameva Sakshat Shri Gadadhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+56) Shri Shankhadhar: He who holds the conch.
+Yogis: Om Twameva Sakshat Shri Shankhadhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+57) Shri Padmadhara: He who holds the lotus.
+Yogis: Om Twameva Sakshat Shri Padmadhara Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+58) Shri Liladhar: He who holds the key to the cosmic play.
+Yogis: Om Twameva Sakshat Shri Liladhar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+59) Shri Damodara: He who is very generous.
+Yogis: Om Twameva Sakshat Shri Damodara Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+60) Shri Govardhan Dhari: He lifted Govardhan mountain to protect the Gopas.
+Yogis: Om Twameva Sakshat Shri Govardhan Dhari Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+61) Shri Yogakshema Vahaka: He who looks after the benevolence of the Yogis.
+Yogis: Om Twameva Sakshat Shri Yogakshema Vahaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+62) Shri Satya Bhashi: He who has all the truth within Himself.
+Yogis: Om Twameva Sakshat Shri Satya Bhashi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+63) Shri Hita Pradayaka: He who bestows the benevolence.
+Yogis: Om Twameva Sakshat Shri Hita Pradayaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+64) Shri Priya Bhashi: He whose speech is pleasing to the Spirit.
+Yogis: Om Twameva Sakshat Shri Priya Bhashi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+65) Shri Abhaya Pradayaka: He creates fearlessness.
+Yogis: Om Twameva Sakshat Shri Abhaya Pradayaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+66) Shri Bhav Nashaka: He who destroys all fears.
+Yogis: Om Twameva Sakshat Shri Bhav Nashaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+67) Shri Sadhak Rakshaka: He protects the seekers of truth.
+Yogis: Om Twameva Sakshat Shri Sadhak Rakshaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+68) Shri Bhakta Vatsala: He loves devotees.
+Yogis: Om Twameva Sakshat Shri Bhakta Vatsala Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+69) Shri Shoka Hari: He destroys grief.
+Yogis: Om Twameva Sakshat Shri Shoka Hari Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+70) Shri Dukha Nashak: He destroys sorrow.
+Yogis: Om Twameva Sakshat Shri Dukha Nashak Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+71) Shri Rakshasa Hantri: He is the Killer of rakshasas.
+Yogis: Om Twameva Sakshat Shri Rakshasa Hantri Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+72) Shri Kurukula Virodhaka: He opposed the Kuru family which upheld a-dharma.
+Yogis: Om Twameva Sakshat Shri Kurukula Virodhaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+73) Shri Gokul Vasi: He resides in Gokula.
+Yogis: Om Twameva Sakshat Shri Gokul Vasi Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+74) Shri Gopal: He who looks after the cows.
+Yogis: Om Twameva Sakshat Shri Gopal Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+75) Shri Govind: He who enjoys cows.
+Yogis: Om Twameva Sakshat Shri Govind Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+76) Shri Yadu Kul Shreshtha: He is the highest of the Yadavas.
+Yogis: Om Twameva Sakshat Shri Yadu Kul Shreshtha Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+77) Shri Akul: He who is beyond family attachments.
+Yogis: Om Twameva Sakshat Shri Akul Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+78) Shri Vansha Dwesha Nashaka: He is the destroyer of disparities according to caste, creed and race.
+Yogis: Om Twameva Sakshat Shri Vansha Dwesha Nashaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+79) Shri Atma Gnyana Varnita: He who describes the knowledge of the Spirit.
+Yogis: Om Twameva Sakshat Shri Atma Gnyana Varnita Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+80) Shri Agnyana Pranashaka (in the puja the yogi says erroneously “Shri Ananda Pradayaka” - ed): He who describes how to destroy ignorance and non-knowledge.
+Yogis: Om Twameva Sakshat Shri Agnyana Pranashaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha. (Therefore maybe here the yogis recite the erroneous mantra, but it is not shown on the video - ed)
+81) Shri Nirakar: He who is beyond form. He is formless.
+Yogis: Om Twameva Sakshat Shri Nirakar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+82) Shri Ananda-kar: He who is the joy personified.
+Yogis: Om Twameva Sakshat Shri Ananda-kar Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+83) Shri Ananda Pradayaka: He gives joy to the yogis.
+Yogis: Om Twameva Sakshat Shri Ananda Pradayaka Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+84) Shri Pavitranand: He is the joy of purity.
+
+Yogis: Om Twameva Sakshat Shri Pavitranand Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+85) Shri Pavitra Rakshak: He protects the chastity.
+Yogis: Om Twameva Sakshat Shri Pavitra Rakshak Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+86) Shri Gnyananand: He has all of the pure knowledge of joy.
+Yogis: Om Twameva Sakshat Shri Gnyananand Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+87) Shri Kalananda: He who gives the joy from the arts.
+Yogis: Om Twameva Sakshat Shri Kalananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+88) Shri Gruhananda: He gives the joy of the household.
+Yogis: Om Twameva Sakshat Shri Gruhananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+89) Shri Dhanananda: He who gives the joy from prosperity.
+Yogis: Om Twameva Sakshat Shri Dhanananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+90) Shri Kubera: He is the God of wealth and prosperità.
+Yogis: Om Twameva Sakshat Shri Kubera Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+91) Shri Atmananda: He gives the joy of the Spirit of God Almighty.
+Yogis: Om Twameva Sakshat Shri Atmananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+92) Shri Samukhananda: He gives the joy of the Sahaja collectivity.
+Yogis: Om Twameva Sakshat Shri Samukhananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+93) Shri Sarvananda: He who has the joy of Sahaja collectivity.
+Yogis: Om Twameva Sakshat Shri Sarvananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+94) Shri Vishuddhananda: He who gives pure joy.
+Yogis: Om Twameva Sakshat Shri Vishuddhananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+95) Shri Sangitananda: He gives the joy of music.
+Yogis: Om Twameva Sakshat Shri Sangitananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+96) Shri Nrutyananda: He gives the joy of collective dancing.
+Yogis: Om Twameva Sakshat Shri Nrutyananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+97) Shri Shabdananda: He who gives the joy through words.
+Yogis: Om Twameva Sakshat Shri Shabdananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+98) Shri Maunananda: He who gives the joy from silence.
+Yogis: Om Twameva Sakshat Shri Maunananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+[While this mantra is recited, Shri Mataji puts Her hand on the left Vishuddhi and keeps it there throughout recitation of next mantra “Shri Sahajananda”]
+
+99) Shri Sahajananda: He gives joy through Sahaja culture.
+Yogis: Om Twameva Sakshat Shri Sahajananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+100) Shri Paramananda: He gives absolute joy.
+Yogis: Om Twameva Sakshat Shri Paramananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+101) Shri Nirananda: He is the source of absolute pure joy.
+Yogis: Om Twameva Sakshat Shri Nirananda Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+102) Shri Natya Priya: He enjoys the play.
+Yogis: Om Twameva Sakshat Shri Natya Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+103) Shri Sangita Priya: He who enjoys the music.
+Yogis: Om Twameva Sakshat Shri Sangita Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+104) Shri Kshir Priya: He who enjoys milk.
+Yogis: Om Twameva Sakshat Shri Kshir Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+105) Shri Dadhi Priya: He who enjoys curds.
+Yogis: Om Twameva Sakshat Shri Dadhi Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+106) Shri Madhu Priya: He who enjoys honey.
+Yogis: Om Twameva Sakshat Shri Madhu Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+107) Shri Ghrut Priya: He who enjoys ghee.
+Yogis: Om Twameva Sakshat Shri Ghruta Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+108) Shri Matru Charanamruta Priya: He who adores the amrut from the Holy Lotus Feet of Shri Mataji.
+Yogis: Om Twameva Sakshat Shri Matru Charanamruta Priya Sakshat Shri Adi Shakti Mataji Shri Nirmala Devi namoh namaha.
+
+[Shri Mataji talks to an Indian yogini on stage who then says: “Vishwa vandita”]
+Yogi: Hindi 64. [Bhajan: Vishwa Vandita]
+[Then Aarti and Mahamantras follow]
+
+Yogi: Now we’ll all take a prayer as the expression of our pure desire. We’ll say together: Shri Mataji, we, all the sahaja yogis of the world, desire and pray for You to receive the Nobel Peace Prize.
+Let’s say it three times:
+All yogis: Shri Mataji, we, all the sahaja yogis of the world, desire and pray for You to receive the Nobel Peace Prize.
+Shri Mataji, we, all the sahaja yogis of the world, desire and pray for You to receive the Nobel Peace Prize.
+Shri Mataji, we, all the sahaja yogis of the world, desire and pray for You to receive the Nobel Peace Prize.
+Shri Mataji (laughing): May God bless you. May God bless you.
+Yogi: Bolo Jagan Mata Shri Nirmala Devi Ki!
+Yogis: Jai!
+Shri Mataji: May God bless you all. May God bless you. May God bless you.
+(Indistinct words – maybe Hindi)
+
+(A lady on the stage bows to Shri Mataji, maybe a new leader)
+Shri Mataji: I am sure she’ll establish the collectivity of the East Coast very well, and all of you should help. Anybody who now tries to be mischievous about it (laughter, She laughs) we’ll have to ask you to get out, I’m sorry to say, we cannot disturb our collectivity any more. Alright? Thank you.
+(Applause)
+Lady on stage: Shri Mataji, we in America are so happy that You graced us with Your presence. And part of letting people know who You are and why You are here, is letting our governments know, so that they can have an opportunity to acknowledge Your greatness.
+
+So, Shri Mataji, I have this day two proclamations: one from the city of Yonkers’ Mayor, who wants (applause) – yes – Ok.
+It comes from the office of the Mayor – city of Yonkers – and it’s proclamation which says – loudly – “Whereas the city of Yonkers takes great pride in recognizing those contributions that have helped to uplift and enlighten humanity;
+And whereas foremost among these individuals is Shri Mataji Nirmala Devi, whose unique discovery of Sahaja Yoga has helped to bring understanding and peace to people in over 65 countries, where Her meditation techniques are practiced;
+And whereas, Shri Mataji Nirmala Devi...”
+
+[End of video]
