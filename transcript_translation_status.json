@@ -232,10 +232,6 @@
         "transcript-english-draft"
     ],
     [
-        1432,
-        "transcript-english-draft"
-    ],
-    [
         1462,
         "transcript-english-draft"
     ],
@@ -8648,6 +8644,14 @@
         "transcript-english-reviewed"
     ],
     [
+        1432,
+        "transcript-english-reviewed"
+    ],
+    [
+        1434,
+        "transcript-english-reviewed"
+    ],
+    [
         1574,
         "transcript-english-reviewed"
     ],
@@ -16378,6 +16382,10 @@
     [
         416,
         "translation-english-to-italian-reviewed"
+    ],
+    [
+        1434,
+        "translation-english-to-italian-verified"
     ],
     [
         1576,
