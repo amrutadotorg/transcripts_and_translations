@@ -1,7 +1,6 @@
-1 February 1977
+1 февраля 1977
 Talk to Sahaja Yogis
 Regent Park Street Ashram, London (England)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Набхи чакра расположена в центре гравитации каждого человека.
 

@@ -1,8 +1,6 @@
-14 August 1989
-They Have To Come Back Again And Again
+14 августа 1989
 Krishna Puja
 Saffron Walden (England)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Сегодня мы собрались здесь, чтобы поклониться Инкарнации Шри Кришны.
 

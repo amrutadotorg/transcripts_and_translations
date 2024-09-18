@@ -1,7 +1,6 @@
-8 April 1991
+8 april 1991
 Devi Puja
 Auckland (New Zealand)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Ann Shri Gauri Kundalini Puja, 1991 4 augustus, Auckland, Australië Gauri is de Moeder van Shri Ganesha, en zij heeft Shri Ganesha voortgebracht.
 

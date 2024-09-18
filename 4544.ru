@@ -1,7 +1,6 @@
-22 March 1977
+22 марта 1977
 Talk to Sahaja Yogis
-Mumbai (India)
-Talk Language: English, Marathi | Transcript (English) - VERIFIED
+Бомбей (Индия)
 
 Речь Шри Матаджи Нирмалы Деви 22 марта 1977 в Бхакти Видья Бхаване в форме вопросов и ответов.
 

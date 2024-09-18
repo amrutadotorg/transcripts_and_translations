@@ -1,3 +1,7 @@
+1 octubre 1983
+Interview
+Kennolyn Camps, Santa Cruz (United States) | Translation (English to Spanish) - Reviewed
+
 Santa Cruz, California (EE.UU. ), 1 de octubre de 1983.
 
 Shri Mataji: ¿Quién es el caballero que Me encontró en la casa de Kamini Kadam? SY: Están justo ahí.

@@ -1,7 +1,6 @@
-15 de enero de 1984
-Mantened las Maryadas
+15 enero 1984
 Ganesha Puja
-Mumbai (India)
+Mumbai (India) | Translation (English to Spanish) - Reviewed
 
 Es muy sahaja que hoy, el día de la celebración, haya coincidido con el cumpleaños de Shri Ganesha. Cada mes se celebra en el cuarto día de la luna, el cumpleaños de Shri Ganesha, y hoy es ese día. Afortunadamente, estamos aquí para el puja de Shri Ganesha en su cumpleaños. He hablado mucho sobre Shri Ganesha y su importancia en nuestra vida. Él es el dador de sabiduría, pero esa sabiduría procede de nuestra inocencia. Inocencia que es innata en nuestro interior. En nuestra niñez somos inocentes, pero, a medida que crecemos, empezamos a actuar de una manera en la que comenzamos a perder nuestra inocencia. La perdemos de dos maneras: una es que, una vez que hemos perdido nuestra inocencia, no podemos creer que los demás puedan ser inocentes. La otra es que creemos que la inocencia no es importante. La inocencia es el sustento, es la base de la espiritualidad. Si una persona no tiene inocencia no puede ascender en la espiritualidad.
 

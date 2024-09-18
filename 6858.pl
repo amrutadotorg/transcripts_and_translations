@@ -1,6 +1,6 @@
 4 marca 1983
 Matko Przyjdź Do Mojego Mózgu
-Devi Puja
+Devi Pudźa
 Adelaide (Australia)
 Bardzo miło przybyć tu do was wszystkich i przepraszam za to, co się tutaj wydarzyło przed Moim przyjazdem.
 

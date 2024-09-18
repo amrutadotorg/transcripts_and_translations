@@ -1,6 +1,6 @@
-28 Augustus 1973
+28 augustus 1973
+Krishna Puja
 Bharatiya Vidya Bhavan, Mumbai (India)
-Talk Language: English | Transcript (English) - VERIFIED
 
 28 Augustus 1973, Shri Krishna Puja, De meest dynamische kracht van Liefde, Mumbai (India)
 

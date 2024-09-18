@@ -1,8 +1,6 @@
-27 October 1981
-Lakshmi Principle
+27 octubre 1981
 Diwali Puja
-Bramham Gardens, London (England)
-Talk Language: English | Transcript (English) - Reviewed
+Bramham Gardens, London (England) | Translation (English to Spanish) - NOT VERIFIED
 
 Hoy quiero hablaros a cerca de la celebración de esta noche llamada Lakshmi Puja. Es el día en que se adora a Lakshmi. Tenéis que entender que Lakshmi representa el poder por el cual evolucionamos. Es el poder por el cual somos redimidos, poder de redención; por el cual mejoramos desde un ser primario hacia uno superior. Empezó en la forma de Lakshmi. Lo primero fue Lakshmi.
 

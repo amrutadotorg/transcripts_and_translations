@@ -1,7 +1,7 @@
 19 grudnia 1982
 Desire Within & Havan
-Mahakali Puja
-Lonavala (Indie) | Translation (Marathi to English) – Draft
+Mahakali Pudźa
+Lonavala (Indie)
 (A hill station on the road from Mumbai to Pune)
 
 English

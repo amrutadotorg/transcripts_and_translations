@@ -1,7 +1,6 @@
-1 June 1982
+1 junio 1982
 Talk to Sahaja Yogis
-Madrid (Spain)
-Talk Language: English | Transcript (English) - Reviewed
+Madrid (Spain) | Translation (English to Spanish) - NOT VERIFIED
 
 1982-0601 Evening Meeting, Madrid, Spain Part 2.  27.08
 

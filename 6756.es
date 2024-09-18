@@ -1,3 +1,6 @@
+12 julio 1981
+Krishna Puja
+Gillian's House, Brighton (England) | Translation (English to Spanish) - Reviewed
 Shri Krishna Puja - Aumentando la Colectividad, Gillian's House, Brighton (Inglaterra), 1981-07-12
 
 Para la atención hay dos centros que son muy importantes para los sahaja yoguis. Tal como está la situación, uno es el Vishuddhi izquierdo y, el otro, el corazón mismo. Justamente ahora, cuando llegaba, supe que había muchos Vishuddhis izquierdos por todas partes y en el coche también sentí lo mismo. No supe qué hacer. Porque había gente que estaba pensando: "Ojalá hubiéramos hecho esto y aquello", y estaba esperando una oportunidad para ponerle fin. Y entonces, de repente, tuve una oportunidad e hice una broma de toda la situación. La relación entre el Vishuddhi izquierdo y el gozo es muy grande. El Vishuddhi izquierdo es de dos tipos. Uno es cuando la gente no se siente culpable. Los indios nunca se sienten culpables. Raramente te encontrarás un indio que se sienta culpable.

@@ -1,8 +1,6 @@
-7 August 1984
-Search Something Higher
-Public Program
+7 augustus 1984
+Publieke programma's
 Searcys at The Pump Room, Bath (England)
-Talk Language: English | Transcript (English) - Draft
 
 Ann-corr Trees audio-corr Ann-laatste corr 120511 1984-0807 Public Program, Bath, UK, DP Ik buig voor alle zoekers naar de waarheid.
 
@@ -201,5 +199,3 @@ Hij is zelf een dokter, zie je. Heeft zij het gevoeld, de vrouw die vragen steld
 Hij heeft een Vishuddhiprobleem. Laat hem vragen of hij - "Ik ben een deel van het geheel" zal bij hem werken, want de Vishuddhi is geblokkeerd. Is dat zo? God zij dank! Goed. Ja, wat is er? Zoveel linkerkant, ik zeg het je, echt waar. Hmm. Hoe zit het met u, waarom heeft u niet gewerkt? Wat zegt u?
 
 Caleb? Iedereen die het niet heeft gevoeld, steek alsjeblieft je handen op. Zij zijn helemaal naar hier gekomen om jullie te helpen, sommigen komen uit het Noorden van het land. Ja meneer. Er is daar iemand. Kunt u het daar zien? Kijk nu allemaal naar mij zonder te denken. Kijk gewoon naar mij zonder te denken.
-
-*(about William Blake)

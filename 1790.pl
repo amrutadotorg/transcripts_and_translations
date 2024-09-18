@@ -1,6 +1,6 @@
 1 marca 1983
 On Jest Potężną Oczyszczającą Mocą
-Ganeśa Puja
+Ganeśa Pudźa
 Perth (Australia)
 Myślę, że jest to jakość mądrości, która wciąż przejawia się w wielu Australijczykach, a którą wielu utraciło, ponieważ zwrócili się ku wulgarnej stronie materializmu. Shri Ganesha jest ogromną oczyszczającą mocą, ponieważ nie może być skażony przez nikogo, czegokolwiek byście nie próbowali, On nie może zostać zanieczyszczony. Jedynie może się wycofać, może się nie zamanifestować, w każdym razie, On jest w swojej Absolutnej Formie.
 

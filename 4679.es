@@ -1,4 +1,6 @@
-Comprendiendo el amor de Dios, Programa Público, Caxton Hall, Inglaterra. 11 de Mayo de 1982
+11 mayo 1982
+Public Program
+Caxton Hall, London (England) | Translation (English to Spanish) - Reviewed
 
 Durante tantas conferencias, hemos estado diciendo que no se puede pagar por el amor de Dios. A veces me hace reír. Los seres humanos nunca pueden entender su amor, porque viven en una esfera muy limitada. Su amor es ilimitado. Su perdón es ilimitado. Incluso esta palabra “ilimitado” e “infinito”, no la entendemos porque no hemos conocido nada así. Para decir que algo es genuino, cómo certificar algo que es genuino. No necesitas un certificado. Ni siquiera eso lo entienden los seres humanos. Vivimos con artificialidad, intentamos encontrar la verdad, y de nuevo aceptamos la artificialidad como verdad. De nuevo seguimos luchando.
 

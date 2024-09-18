@@ -1,8 +1,6 @@
-7 April 1981
-Marriage Is Very Important In Sahaja Yoga
+7 april 1981
 Lakshmi Puja
 Sydney (Australia)
-Talk Language: English | Transcript (English) - Draft | Translation (Marathi to English) - Reviewed
 
 Ann Het Sahaja huwelijk en Gruha Lakshmi Puja 7 april 1981, Sydney, Australië Vandaag is het de dag van mijn huwelijksverjaardag, en ik heb ze toegestaan dit te vieren omdat het huwelijk van zeer groot belang is in Sahaja Yoga.
 

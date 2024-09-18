@@ -1,8 +1,6 @@
-1 September 1989
-The International Situation
+1 septiembre 1989
 Public Program
-Mumbai (India)
-Talk Language: English | Transcript (English) - VERIFIED
+Mumbai (India) | Translation (English to Spanish) - Reviewed
 
 El estado de nuestro planeta, o Madre Tierra, es muy precario.
 
