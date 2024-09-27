@@ -5624,6 +5624,10 @@
         "transcript-english-draft"
     ],
     [
+        6901,
+        "transcript-english-in-progress"
+    ],
+    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -11936,6 +11940,10 @@
         "transcript-english-verified"
     ],
     [
+        78220,
+        "transcript-english-verified"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -12492,6 +12500,10 @@
         "transcript-hindi-draft-hi"
     ],
     [
+        19804,
+        "transcript-hindi-draft-hi"
+    ],
+    [
         20005,
         "transcript-hindi-draft-hi"
     ],
@@ -13037,10 +13049,6 @@
     ],
     [
         19767,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        19804,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -13768,6 +13776,10 @@
         "transcript-marathi-draft-mr"
     ],
     [
+        19226,
+        "transcript-marathi-draft-mr"
+    ],
+    [
         19228,
         "transcript-marathi-draft-mr"
     ],
@@ -13820,6 +13832,10 @@
         "transcript-marathi-draft-mr"
     ],
     [
+        19601,
+        "transcript-marathi-draft-mr"
+    ],
+    [
         19602,
         "transcript-marathi-draft-mr"
     ],
@@ -13833,6 +13849,10 @@
     ],
     [
         19643,
+        "transcript-marathi-draft-mr"
+    ],
+    [
+        19647,
         "transcript-marathi-draft-mr"
     ],
     [
@@ -14084,18 +14104,6 @@
         "transcript-marathi-in-progress-mr"
     ],
     [
-        19226,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
-        19601,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
-        19647,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
         37402,
         "transcript-marathi-in-progress-mr"
     ],
@@ -14220,10 +14228,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        19226,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         19229,
         "transcript-marathi-needed-mr"
     ],
@@ -14241,10 +14245,6 @@
     ],
     [
         19514,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        19601,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -14277,10 +14277,6 @@
     ],
     [
         19644,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        19647,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -14749,6 +14745,10 @@
     ],
     [
         77455,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        78220,
         "translation-english-to-chinese-simplified-verified"
     ],
     [
