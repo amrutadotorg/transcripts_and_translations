@@ -1676,14 +1676,6 @@
         "transcript-english-draft"
     ],
     [
-        6903,
-        "transcript-english-draft"
-    ],
-    [
-        6904,
-        "transcript-english-draft"
-    ],
-    [
         6906,
         "transcript-english-draft"
     ],
@@ -5556,6 +5548,10 @@
         "transcript-english-draft"
     ],
     [
+        68093,
+        "transcript-english-draft"
+    ],
+    [
         68148,
         "transcript-english-draft"
     ],
@@ -5624,6 +5620,10 @@
         "transcript-english-draft"
     ],
     [
+        78243,
+        "transcript-english-draft"
+    ],
+    [
         6901,
         "transcript-english-in-progress"
     ],
@@ -5653,6 +5653,10 @@
     ],
     [
         64837,
+        "transcript-english-in-progress"
+    ],
+    [
+        68093,
         "transcript-english-in-progress"
     ],
     [
@@ -6553,6 +6557,10 @@
     ],
     [
         77498,
+        "transcript-english-needed"
+    ],
+    [
+        78242,
         "transcript-english-needed"
     ],
     [
@@ -8556,6 +8564,10 @@
         "transcript-english-not-needed"
     ],
     [
+        78241,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -9541,10 +9553,6 @@
     ],
     [
         66271,
-        "transcript-english-reviewed"
-    ],
-    [
-        68093,
         "transcript-english-reviewed"
     ],
     [
@@ -11180,6 +11188,14 @@
         "transcript-english-verified"
     ],
     [
+        6903,
+        "transcript-english-verified"
+    ],
+    [
+        6904,
+        "transcript-english-verified"
+    ],
+    [
         6923,
         "transcript-english-verified"
     ],
@@ -11937,10 +11953,6 @@
     ],
     [
         76444,
-        "transcript-english-verified"
-    ],
-    [
-        78220,
         "transcript-english-verified"
     ],
     [
@@ -16113,6 +16125,10 @@
     ],
     [
         78173,
+        "translation-english-to-hindi-draft"
+    ],
+    [
+        78243,
         "translation-english-to-hindi-draft"
     ],
     [
