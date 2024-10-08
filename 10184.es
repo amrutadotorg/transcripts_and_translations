@@ -1,6 +1,6 @@
 1 junio 1982
 Talk to Sahaja Yogis
-Madrid (Spain) | Translation (English to Spanish) - NOT VERIFIED
+Madrid Flat's, Madrid (Spain) | Translation (English to Spanish) - NOT VERIFIED
 
 1982-0601 Evening Meeting, Madrid, Spain Part 2.  27.08
 
