@@ -1,7 +1,8 @@
-20 lipca 2008
+20 July 2008
 How To Become A Guru
-Guru Pudźa
-Kampus, Cabella Ligure (Włochy)
+Guru Puja
+Campus, Cabella Ligure (Italy)
+Talk Language: English | Transcript (English) – VERIFIED
 Today is a very great day for all the sahaja yogis. Because Sahasrara opened in you, you could feel the existence of God. By saying there is God that was not sufficient and to say that there is no God also was wrong, very wrong and people have suffered who have said like them. Only after getting realisation you know that there is God and there are vibrations. It’s a very big opening all over the world. Today I say that’s why is one of the greatest days for you.
 
 Many of you have felt the cool breeze on your hands and out of your brain. Some have grown in  Sahaja Yoga, some have not. Some are still carrying on with old catches. But now I have to say that quite a lot of you can become gurus, means teachers, and you should act as teachers.
