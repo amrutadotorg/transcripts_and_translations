@@ -3048,6 +3048,10 @@
         "transcript-english-reviewed"
     ],
     [
+        79029,
+        "transcript-english-reviewed"
+    ],
+    [
         4486,
         "transcript-english-needed"
     ],
@@ -11968,6 +11972,10 @@
         "transcript-english-draft"
     ],
     [
+        79027,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -19849,6 +19857,10 @@
     ],
     [
         77907,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        79027,
         "translation-english-to-spanish-reviewed"
     ]
 ]
