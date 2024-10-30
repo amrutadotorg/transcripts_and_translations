@@ -4124,6 +4124,14 @@
         "transcript-english-verified"
     ],
     [
+        498,
+        "transcript-english-verified"
+    ],
+    [
+        501,
+        "transcript-english-verified"
+    ],
+    [
         537,
         "transcript-english-verified"
     ],
@@ -6344,7 +6352,7 @@
         "transcript-english-verified"
     ],
     [
-        79078,
+        79084,
         "transcript-english-verified"
     ],
     [
@@ -6425,10 +6433,6 @@
     ],
     [
         462,
-        "transcript-english-draft"
-    ],
-    [
-        498,
         "transcript-english-draft"
     ],
     [
@@ -11969,6 +11973,10 @@
     ],
     [
         78500,
+        "transcript-english-draft"
+    ],
+    [
+        79085,
         "transcript-english-draft"
     ],
     [
@@ -19786,6 +19794,10 @@
     [
         416,
         "translation-english-to-italian-reviewed"
+    ],
+    [
+        501,
+        "translation-english-to-italian-verified"
     ],
     [
         1434,
