@@ -2,7 +2,7 @@
 God Of Yoga
 Krishna Puja
 Chelsham Road Ashram, London (England)
-Talk Language: English | Transcript (English) - VERIFIED
+Talk Language: English | Transcript (English) – VERIFIED
 Shri Yogeshwara Puja. Chelsham Road, London (UK), 15 August 1982.
 
 Today is a great day for all of us to be jubilant that the primordial being Himself incarnated on this earth as “Shri Krishna”
