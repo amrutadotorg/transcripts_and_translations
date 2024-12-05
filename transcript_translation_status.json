@@ -2048,6 +2048,30 @@
         "transcript-english-not-needed"
     ],
     [
+        79643,
+        "transcript-english-not-needed"
+    ],
+    [
+        79644,
+        "transcript-english-not-needed"
+    ],
+    [
+        79648,
+        "transcript-english-not-needed"
+    ],
+    [
+        79649,
+        "transcript-english-not-needed"
+    ],
+    [
+        79657,
+        "transcript-english-not-needed"
+    ],
+    [
+        79658,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -3952,6 +3976,14 @@
         "transcript-english-needed"
     ],
     [
+        79646,
+        "transcript-english-needed"
+    ],
+    [
+        79647,
+        "transcript-english-needed"
+    ],
+    [
         29,
         "transcript-english-verified"
     ],
@@ -5588,6 +5620,10 @@
         "transcript-english-verified"
     ],
     [
+        6915,
+        "transcript-english-verified"
+    ],
+    [
         6923,
         "transcript-english-verified"
     ],
@@ -6353,10 +6389,6 @@
     ],
     [
         76444,
-        "transcript-english-verified"
-    ],
-    [
-        79634,
         "transcript-english-verified"
     ],
     [
@@ -8045,10 +8077,6 @@
     ],
     [
         6914,
-        "transcript-english-draft"
-    ],
-    [
-        6915,
         "transcript-english-draft"
     ],
     [
@@ -19850,6 +19878,10 @@
     [
         77469,
         "translation-english-to-spanish-not-verified"
+    ],
+    [
+        34009,
+        "translation-english-to-spanish-reviewed"
     ],
     [
         76515,
