@@ -1,9 +1,5 @@
 [
     [
-        6841,
-        "transcript-english-in-progress"
-    ],
-    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -2497,10 +2493,6 @@
     ],
     [
         6836,
-        "transcript-english-reviewed"
-    ],
-    [
-        6841,
         "transcript-english-reviewed"
     ],
     [
@@ -5557,6 +5549,10 @@
     ],
     [
         6826,
+        "transcript-english-verified"
+    ],
+    [
+        6841,
         "transcript-english-verified"
     ],
     [
