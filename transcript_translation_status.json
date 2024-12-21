@@ -40,6 +40,10 @@
         "transcript-english-in-progress"
     ],
     [
+        79870,
+        "transcript-english-in-progress"
+    ],
+    [
         4514,
         "transcript-english-not-needed"
     ],
@@ -2120,6 +2124,10 @@
         "transcript-english-not-needed"
     ],
     [
+        79865,
+        "transcript-english-not-needed"
+    ],
+    [
         79867,
         "transcript-english-not-needed"
     ],
@@ -4029,6 +4037,10 @@
     ],
     [
         79666,
+        "transcript-english-needed"
+    ],
+    [
+        79870,
         "transcript-english-needed"
     ],
     [
@@ -6445,6 +6457,10 @@
     ],
     [
         76444,
+        "transcript-english-verified"
+    ],
+    [
+        79873,
         "transcript-english-verified"
     ],
     [
@@ -10749,6 +10765,10 @@
     ],
     [
         14520,
+        "transcript-english-draft"
+    ],
+    [
+        14527,
         "transcript-english-draft"
     ],
     [
@@ -19970,5 +19990,9 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        79873,
+        "translation-marathi-to-english-needed-ru"
     ]
 ]
