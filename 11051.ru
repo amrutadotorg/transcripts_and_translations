@@ -1,7 +1,7 @@
 17 ноября 1973
 Kundalini Your Divine Mother In You
 Public Program
-New Delhi (Индия) | Translation (Hindi to English) – Draft
+New Delhi (Индия)
 
 Публичная программа, Нью-Дели, Индия, 17 ноября 1973 года
 

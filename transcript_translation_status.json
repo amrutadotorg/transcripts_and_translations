@@ -6464,10 +6464,6 @@
         "transcript-english-verified"
     ],
     [
-        79900,
-        "transcript-english-verified"
-    ],
-    [
         5,
         "transcript-english-draft"
     ],
@@ -12084,10 +12080,6 @@
         "transcript-english-draft"
     ],
     [
-        79899,
-        "transcript-english-draft"
-    ],
-    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -12717,10 +12709,6 @@
     ],
     [
         20930,
-        "transcript-hindi-draft-hi"
-    ],
-    [
-        21061,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -20082,9 +20070,5 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        79898,
-        "translation-hindi-to-english-draft-ru"
     ]
 ]
