@@ -1,5 +1,3 @@
-Odręczne Notatki Odręczne Notatki Sahaja Yogina - Rady dla Liderów
-
 Aby wyczuć, jak przebiega naturalny proces poprzez zasadę Kundalini, dla tej wiedzy liderzy muszą medytować i podążać za tym, co na ich własny temat dyktują im wibracje.
 
 Po pierwsze, przed medytacją zróbcie siedem razy bandhan.
