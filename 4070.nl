@@ -1,6 +1,6 @@
 21 december 1996
 Kartikeya Puja
-Vashi Health Centre, Mumbai (India) | Translation (Marathi to English) – Draft
+Vashi Health Centre, Mumbai (India)
 Het spijt me, ik moest in het Marathi spreken omdat ik ze iets moest vertellen waarvan ik niet wil dat je het weet.
 
 Vandaag is een geweldige dag, moet ik eigenlijk zeggen, want ik ga je iets groots vertellen. Dat is Shri Gyaneshwara, in het Marathi noemen ze het 'Dnyaneshwara'. Hij was de incarnatie van Kartikeya. En Saraswati, die een maagd was, zorgde voor hem als voor haar eigen zoon. Hij was de broer van Shri Ganapati, maar zij zorgde voor hem. En dan is er ook nog de beschrijving hoe hij geboren werd en al die (dingen), het is heel interessant. Maar hier in deze plaats, in Maharashtra, incarneerde hij. Er zijn ook vele grote, zeer grote heiligen in zo groten getale geboren in dit Maharashtra. Maar verschrikkelijke mensen martelden hun leven. Erger dan de christelijke inquisitie zeg ik je; erger dan welke inquisitie waar dan ook.
