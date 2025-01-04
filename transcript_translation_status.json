@@ -6460,6 +6460,10 @@
         "transcript-english-verified"
     ],
     [
+        69277,
+        "transcript-english-verified"
+    ],
+    [
         73172,
         "transcript-english-verified"
     ],
@@ -6469,6 +6473,10 @@
     ],
     [
         79971,
+        "transcript-english-verified"
+    ],
+    [
+        79989,
         "transcript-english-verified"
     ],
     [
@@ -12081,6 +12089,10 @@
     ],
     [
         78500,
+        "transcript-english-draft"
+    ],
+    [
+        79990,
         "transcript-english-draft"
     ],
     [
@@ -19720,6 +19732,10 @@
         "translation-english-to-hindi-in-progress"
     ],
     [
+        79989,
+        "translation-english-to-hindi-in-progress"
+    ],
+    [
         12358,
         "translation-english-to-hindi-verified"
     ],
@@ -20082,5 +20098,9 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        79990,
+        "translation-hindi-to-english-needed-zh-hans"
     ]
 ]
