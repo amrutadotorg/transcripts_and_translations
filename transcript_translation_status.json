@@ -1280,10 +1280,6 @@
         "transcript-english-not-needed"
     ],
     [
-        49410,
-        "transcript-english-not-needed"
-    ],
-    [
         49900,
         "transcript-english-not-needed"
     ],
@@ -1392,10 +1388,6 @@
         "transcript-english-not-needed"
     ],
     [
-        62080,
-        "transcript-english-not-needed"
-    ],
-    [
         62099,
         "transcript-english-not-needed"
     ],
@@ -1468,15 +1460,7 @@
         "transcript-english-not-needed"
     ],
     [
-        63009,
-        "transcript-english-not-needed"
-    ],
-    [
         63011,
-        "transcript-english-not-needed"
-    ],
-    [
-        63219,
         "transcript-english-not-needed"
     ],
     [
@@ -1573,10 +1557,6 @@
     ],
     [
         64234,
-        "transcript-english-not-needed"
-    ],
-    [
-        64239,
         "transcript-english-not-needed"
     ],
     [
@@ -3640,7 +3620,15 @@
         "transcript-english-needed"
     ],
     [
+        63009,
+        "transcript-english-needed"
+    ],
+    [
         63010,
+        "transcript-english-needed"
+    ],
+    [
+        63219,
         "transcript-english-needed"
     ],
     [
@@ -3689,6 +3677,10 @@
     ],
     [
         64221,
+        "transcript-english-needed"
+    ],
+    [
+        64239,
         "transcript-english-needed"
     ],
     [
@@ -6473,10 +6465,6 @@
     ],
     [
         79971,
-        "transcript-english-verified"
-    ],
-    [
-        79989,
         "transcript-english-verified"
     ],
     [
@@ -12089,10 +12077,6 @@
     ],
     [
         78500,
-        "transcript-english-draft"
-    ],
-    [
-        79990,
         "transcript-english-draft"
     ],
     [
@@ -17812,10 +17796,6 @@
         "translation-marathi-to-english-needed"
     ],
     [
-        64239,
-        "translation-marathi-to-english-needed"
-    ],
-    [
         64660,
         "translation-marathi-to-english-needed"
     ],
@@ -20098,9 +20078,5 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        79990,
-        "translation-hindi-to-english-needed-zh-hans"
     ]
 ]
