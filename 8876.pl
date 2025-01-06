@@ -1,316 +1,53 @@
-20 July 2008
+20 lipca 2008
 How To Become A Guru
-Guru Puja
-Campus, Cabella Ligure (Italy)
-Talk Language: English | Transcript (English) – VERIFIED
-Today is a very great day for all the sahaja yogis. Because Sahasrara opened in you, you could feel the existence of God. By saying there is God that was not sufficient and to say that there is no God also was wrong, very wrong and people have suffered who have said like them. Only after getting realisation you know that there is God and there are vibrations. It’s a very big opening all over the world. Today I say that’s why is one of the greatest days for you.
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
+Dzisiaj jest bardzo wielki dzień dla wszystkich sahaja yoginów.
 
-Many of you have felt the cool breeze on your hands and out of your brain. Some have grown in  Sahaja Yoga, some have not. Some are still carrying on with old catches. But now I have to say that quite a lot of you can become gurus, means teachers, and you should act as teachers.
+Ponieważ Sahasrara otworzyła się w was i mogliście poczuć istnienie Boga. Samo mówienie, że jest Bóg, nie wystarczyło. I mówienie, że nie ma Boga także było złe, bardzo złe, a ludzie, którzy tak mówili, narazili się na cierpienia. Dopiero po otrzymaniu realizacji wiecie, że Bóg istnieje i że istnieją wibracje. To bardzo wielkie otwarcie na całym świecie. Dziś mówię, że dlatego jest to dla was jeden z największych dni. Wielu z was czuło chłodny powiew na dłoniach i z mózgu. Niektórzy rozwinęli się w Sahaja Yodze, niektórzy nie. Niektórzy nadal mają stare "catche". Teraz jednak muszę powiedzieć, że bardzo wielu z was może stać się guru.
 
-To act as teacher you should know Sahaja Yoga, the theory and the practice of it, thoroughly well and then you can become a guru. It’s a very responsibility, lot of understanding for a guru.
+Czyli nauczycielami. I powinniście działać jak nauczyciele. Żeby działać jak nauczyciel, powinniście naprawdę gruntownie znać Sahaja Yogę, jej teorię i praktykę, a wówczas możecie stać się guru. To ogromna odpowiedzialność, jest mnóstwo do zrozumienia dla guru. Przede wszystkim nie możecie mieć ego. Nie powinniście mieć blokad na żadnej czakrze. Powinniście być cały czas absolutnie czyści. I wtedy wibracje powinny płynąć w obu dłoniach. Jeśli płyną w jednej ręce, a w drugiej nie, nie możesz stać się guru. Więc powinniście być doskonałymi sahaja yoginami, dopiero wówczas możecie być guru.
 
-You should not have any ego, first; you should not have any of your chakras catching; you should be absolutely clear all the time and there the vibrations should be flowing in both the hands. If they are moving in one hand and not in another you cannot become guru. So you have to be a perfect sahaja yogi. Then only you can be a guru, and so many of you can be, but you have to ascertain first: are you capable of being a guru or not.
+Tak wielu z was może być guru, ale najpierw powinniście się upewnić: "Czy jesteście zdolni być swoim guru, czy nie?" Mając pokorę zrozumiecie, że ci, którzy sądzą, iż mogą być guru, powinni stać się guru, ponieważ teraz nie mogę podróżować od jednego miejsca do drugiego. I wy musicie wykonywać Moją pracę, czyli dawać ludziom realizację. Musicie jednak umieć dawać masową realizację, tylko wówczas możecie być guru. Jeśli potraficie dawać realizację masowo, wówczas możecie być guru. Możecie używać Mojego zdjęcia, ale realizacja nie powinna być ze zdjęcia, tylko od was. Dopiero wówczas możecie być guru. Zarówno mężczyźni jak i kobiety mogą być guru i rozprzestrzeniać wszędzie Sahaja Yogę. W tym całym podróżowaniu pominęłam Kanadę, więc poprosiłabym niektórych z was, żebyście pojechali do Kanady, ponieważ jest to bardzo piękne miejsce. I mamy tam bardzo pięknych sahaja yoginów.
 
-With humbleness you'll understand. Those who think they can be guru should become gurus because now I can’t travel from places to places and you have to do my job, is to give realisation to people.
+Macie teraz wykonywać Moją pracę. Nie będę w stanie wszędzie jeździć, ale wy macie jeździć do innych krajów i tworzyć nowych sahaja yoginów. Potraficie to. Na początek możecie używać Mojego zdjęcia, ale później możecie je tylko postawić, a korzystać z własnych mocy i dawać realizację. Potraficie to robić i tak właśnie możemy rozprzestrzenić Sahaja Yogę na całym świecie. Zrobiłam wszystko co mogłam, ale nie sądzę, abym nadal mogła podróżować, tak więc mówię wam, że powinniście to przejąć i wypracować. To nie znaczy, że Mnie skreślacie. Nie. Bynajmniej. Jestem z wami i wszędzie, gdzie pracujecie, stawiajcie Moje zdjęcie, ale realizację macie dawać wy i starajcie się dawać masową realizację.
 
-But you have be able to give en-masse realisation, then only you can be a guru. If you can give en-masse realisation then you could be a guru. You can use my photograph but the realisation should not be from the photograph, but from you.
+Jeśli to nie zadziała, powinniście wiedzieć, że nie jesteście guru. Jeśli potraficie dawać masową realizację, wtedy jesteście guru. W przeciwnym razie nie jesteście. Powiedziałam, że możecie używać Mojego zdjęcia, ale to wy macie dawać ludziom realizację. Po tym poznaje się guru. Następnie wiecie już, jakie są czakry i czego brakuje w ludziach. Wyjaśniłam to bardzo jasno. Tak samo zobaczycie, że ci, którzy przyjdą po realizację, będą mieć jakieś defekty i stwierdzicie na jakich czakrach mają blokady. Wiecie, jak te czakry czyścić, więc macie powiedzieć im, jak to się robi. Teraz opanowaliście już Sahaja Yogę, więc powinniście wiedzieć, co trzeba robić.
 
-Then only you can be a guru. There can be ladies or men, both can become gurus and spread Sahaja Yoga all over.
+Jeśli uważacie, że opanowaliście to, jeśli wierzycie, że to opanowaliście, wówczas możecie stać się guru. Ale przede wszystkim powinniście sami ustalić i przekonać się, czy jesteście guru, czy nie. Teraz jest to wasz obowiązek - dawanie realizacji ludziom. Możecie ją dawać, jeśli macie wibracje, jak guru. Także kobiety, one są nazywane "gurui", nie guru, ale "gurui". Ale można również nazywać je guru. One także potrafią doskonale wykonywać tę pracę. Rozwiązanie problemów ludzi nie jest zatem trudne. Gdy dostaną realizację, ich problemy zostaną rozwiązane. Siła, którą dostaliście, jest ogromna, wszyscy powinniśmy jej używać.
 
-In my whole touring business, Canada I have missed and I would request some of you to go to Canada because it’s a very beautiful place and we have very beautiful sahaja yogis there.
+Początkowo możecie działać grupą, jeśli chcecie, a potem powinniście robić to indywidualnie. Czy wyobrażacie sobie, jak wielu sahaja yoginów będziemy mieć na całym świecie, jeśli wszyscy staniecie się guru? Czegokolwiek nauczacie, musicie to praktykować. Osoba pijąca nie może stać się guru. Osoba, która flirtuje albo prowadzi rozwiązłe życie, nie może stać się guru. Najpierw więc sprawdźcie siebie: "Jesteście czyści, czy nie?" Jeśli jest wielu opętanych ludzi, którzy próbują stać się guru, to nie są w stanie. Uczciwie powinniście sprawdzić przed zdjęciem a jeśli jesteście opętani, to nie możecie być guru. Tak więc, żeby stać się guru, najpierw musicie krytycznie spojrzeć na siebie, poznać siebie w pełni i potem możecie stać się guru. Nie chcę mówić nikomu z osobna ale wszyscy możecie sami to stwierdzić.
 
-You have to do now my work. I won’t be able to go all over, but you have to go to other countries and create new sahaja yogis. You can do it. To begin with you can use my photograph but later on you can only put the photograph there but use your own powers and give realisation. You can do it and that is how we can spread Sahaja Yoga all over the world.
+Powiedzmy 4-5 osób może zebrać się razem i mogą sprawdzić jeden drugiego, czy są w porządku, czy nie, czy czegoś brakuje, czy mają blokady. Jeśli jednak stwierdzą, że jesteście w porządku, wówczas możecie stać się guru i głosić Sahaja Yogę. To wasz obowiązek. Tak właśnie Sahaja Yoga będzie rosnąć, w przeciwnym razie, gdy Ja się wycofam lub nigdzie nie będę jeździć, Sahaja Yoga się zmarnuje. Więc waszym zadaniem jest nieść tę pochodnię, światło, teraz wy jesteście za to odpowiedzialni. Dostaliście swoją realizację. Ja urodziłam się z tą odpowiedzialnością. Urodziłam się z całą tą wiedzą. A teraz wy także rozumiecie siebie. Kiedy zaczynacie własną realizację, nie potępiajcie siebie, ale również uważajcie, żebyście nie stali się egoistyczni.
 
-I have done my level best now but I don’t think now I can travel any more, so I’m telling you that you have to take over and work it out. That doesn’t mean you cancel me, no not at all. I am there with you and every place you work you put my photograph, but realisation you have to give and try to give mass realisation. If that doesn’t work out then you should know you are not a guru. If you can give mass realisation, then only you are a guru. Otherwise you are not. I said you can use my photograph but you have to give realisation to people. This is the sign of a guru.
+Musicie być bardzo pokorni, bardzo pokorni wobec wszystkich. Wypracujcie to, bo jeśli oni nie są zrealizowanymi duszami, nie powinniście ich potępiać, ale powiedzcie im, bardzo cierpliwie i ze słodyczą, że nie są w porządku. Powiedzcie im, jak medytować, jak się udoskonalić. Teraz to jest bardzo duża odpowiedzialność. Faktycznie Ja wykonałam tę pracę i wy także możecie ją wykonywać. Tak więc wszyscy powinniście stać się guru. To jest dzień Guru Purnima i błogosławię was, żebyście wszyscy stali się guru. Wszystko, co teraz dostaliście, nie marnujcie tego. Nie pozbywajcie się tego, ale użyjcie tego dla poprawienia ludzi. Jeśli chcecie, początkowo zbierzcie się w 4-5 osób.
 
-Then you already know what are different centres and what are the things missing in people. I’ve explained very clearly. In the same way you’ll find those who come for realisation, they’ll have some defects and you’ll find out what chakras they are catching. You know how to clear those chakras, so you have to tell them how to clear.
+Potem powinniście się rozdzielić. Musicie dać temu czas. Dostaliście realizację, ale musicie realizację dawać, w przeciwnym razie wasz stan nie będzie w porządku, nie będzie normalny. Dlatego dzisiaj chcę wam powiedzieć, jakie cechy powinien posiadać guru. Przede wszystkim powinien on być odwiązaną osobą. To nie znaczy, że macie porzucić rodzinę czy coś w tym rodzaju, ale powinniście mieć postawę odwiązaną, że jeśli ktoś z waszej rodziny postępuje źle, powinniście odejść od niego lub od niej. Po drugie, przez swoją realizację powinniście próbować rozprzestrzeniać szczęście i usuwać ich problemy. Widzieliście, że wszystko, co Ja zrobiłam, wy też możecie robić. Macie moc robienia tego, ale bez hipokryzji. Żadnej hipokryzji, w przeciwnym razie zepsujecie imię Sahaja Yogi.
 
-Now you have mastered Sahaja Yoga so you should know what is to be done. If you think that you have mastered, if you believe that you have mastered, then you can become gurus. But first of all, you should ascertain and find out for yourself if you are a guru or not. It is your responsibility now to give realisation to people and you can give if you have vibrations as like a guru. Or ladies also, they're called as guruvis, not as gurus, but as guruvis, but they can be called as guru also. And they can also do this work very well.
+Tak więc dopiero, kiedy jesteście pewni co do siebie, możecie stać się guru i prowadzić pracę Sahaja Yogi. Sądzę, że dałam wam wszystkie swoje błogosławieństwa, całe swoje wsparcie, żebyście teraz to przejęli i stali się guru. Możecie też mieć wszystkie puje i używać [Moje] zdjęcie. Widzieliście, jak to trzeba wypracować i jeśli ktoś ma gdzieś defekt lub jakieś czakry są zablokowane, wówczas powinniście powiedzieć tej osobie, jak to skorygować. Najlepiej przed zdjęciem. I bardzo pokornie powinniście powiedzieć im, co należy zrobić. Możecie uratować wszystkich ludzi. Ja już nie będę dostępna, w pewnym sensie... Zrobiłam, co mogłam, i nie sądzę, żebym mogła dokonać tego ponownie. Nie z powodu podeszłego wieku, ale dlatego, że chcę wam dać całkowitą wolność rozprzestrzeniania Sahaja Yogi. Dostaliście to za darmo i musicie dawać to ludziom za darmo, nie żądać pieniędzy.
 
-Solving the problems of people is not difficult then. Once they get realisation their problems will be solved. This is a big power you have got, you all should use.
+Tylko w dni, kiedy są puje, uważajcie żebyście nie wstawiali siebie do pujy, dopóki nie jesteście przekonani i pewni, że stworzyliście co najmniej stu sahaja yoginów, dobrych sahaja yoginów, wówczas oni mogą robić również waszą puje, ale najlepiej jest zaczekać. Nie wchodźcie w ten biznes z pują, dopóki każdy z was nie będzie miał tysiąca ludzi. Wówczas będziecie mieć prawo do swojej pujy. Ale możecie mieć puję z Moim zdjęciem, dopóki nie będziecie całkowicie w porządku. Najważniejsze, żeby mieć pewność. Nie potępiajcie siebie. Wszyscy jesteście duszami zrealizowanymi, ale ci, którzy sądzą, że mogą stać się guru, mogą się nimi stać i spróbować. Musicie mieć cierpliwość do poszukiwaczy. Nie możecie się złościć ani wybuchać. Dopóty, dopóki nie robią wam kłopotów, nie powinniście tracić panowania nad sobą.
 
-First of all, you can use a group if you want and afterwards, you should do it individually. Can you imagine all of you, if you become gurus, how many sahaja yogis we’ll have all over the world?
+Powinniście być spokojni. Większość guru jest lub dawniej była bardzo wybuchowa, dlatego byli tak zajęci swoją zapalczywością, że nie potrafili stworzyć niczego sensownego, tak sądzę. Nie potrafili nawet dawać realizacji. Więc muszę was ostrzec - kontrolujcie swój temperament. Obserwujcie siebie - jeśli się złościcie, wówczas nie możecie stać się guru. Guru musi być osobą kochającą, bardzo kochającą i pełną zrozumienia. Powinniście też być pokorni, nie znieważać ludzi, nie krzyczeć na nich. Jeśli źle się zachowują, poproście, żeby wyszli, ale nie krzyczcie. Jeśli uważacie, że ktoś się źle zachowuje, poproście tę osobę, żeby wyszła, ale nie trzeba krzyczeć ani złościć się na tą osobę. Tak więc jest to teraz bardzo duża odpowiedzialność.
 
-Whatever you teach you must practice. When a person who drinks, cannot become a guru. A person who flirts and has a licentious life, cannot become a guru. So first examine yourself: are you clean or not?
+Dostaliście realizację, a więc połączcie się w czworo lub pięcioro w grupę Sahaja Yogi dającą ludziom realizację. Spróbujcie. Oczywiście, będzie tam Moje zdjęcie, ale musicie próbować. Postarajcie się zrozumieć, jaka jest teraz wasza odpowiedzialność. Jeśli dano wam pozycję, zawsze troszczcie się o związany z nią obowiązek. Tak samo, jeśli staniecie się guru, ciąży na was pewna odpowiedzialność, przede wszystkim, żeby wasze własne zachowanie zawsze było bardzo dobre. Na początku nie możecie mówić im "nie chodźcie do kościoła, nie róbcie tego czy tamtego". Dajcie im realizację i wtedy możecie do nich mówić. Na początku nie powinniście im mówić, bo was po prostu odrzucą. Akceptujcie ich takimi, jakimi są.
 
-If there are many possessed people who try to become gurus, they cannot. Honesty, you should see on the photograph if you are possessed, then you cannot be guru. So now to become a guru is first to criticise yourself, to find out yourself fully, and then you can become a guru.
+Na początku, jeśli to możliwe, nie powinniście leczyć ludzi. Możecie zacząć z Moim zdjęciem, ale nie leczcie ich. Później, jeśli będziecie pewni, to niech 4-5 osób razem leczy taką osobę. Leczenie ludzi nie jest łatwe i możecie złapać ich negatywność. Zanim więc zaczniecie nad nimi pracować, musicie założyć bandhan. Bandhan jest bardzo dobry. Powinniście, nawet wychodząc z domu powinniście założyć bandhan. Powinniście też bardzo dobrze przemawiać, jeśli to możliwe. Teraz wiecie już tyle i możecie im to mówić. To jest ogromna odpowiedzialność.
 
-I don’t want to tell anybody individually but you all can find out. Say four-five people can join together and they can find out from each other if they are all right or not, if there is missing, if they are catching. But if they say there you are alright then you can become gurus and you can preach Sahaja Yoga. This is your responsibility. This is how Sahaja Yoga will grow. Otherwise, after I’ll retire or I’ll don’t go anywhere, Sahaja Yoga will go into waste. So it is for you to carry the torch, the light. It's your responsibility now. You have got your realisation.
+Pracuję od 1970 roku i od wielu lat aż do dziś tak ciężko przepracowałam, ale teraz już nie mogę tego robić. Muszę wrócić i trochę odpocząć, każdy to mówi i wy też się z tym zgodzicie. Możecie mówić o Mnie, jeśli jest taka potrzeba, ale używajcie przy tym Moje zdjęcie. Zawsze, gdy macie spotkanie, używajcie Moje zdjęcie. Ci, którzy myślą, że mogą być liderami, jako guru powinni najpierw sprawdzić własne wibracje. Medytujcie przy Moim zdjęciu i sprawdźcie. Musicie z całkowitą uczciwością stwierdzić, że jesteście w stu procentach w porządku i że nie ma żadnej blokady, dopiero wówczas możecie stać się guru. Musicie być tego pewni. Najpierw możecie mieć dwie osoby, potem trzy. Ja zaczynałam od pięciu, tak więc, możecie sobie wyobrazić jak można to robić.
 
-I was born with the responsibility, I was born with all the understanding. And now you are also understanding yourself. Do not condemn yourself, as long as you start your own realisation, but be careful: don’t become egoistical. You have to be very humble, very humble with everyone. And work it out because if they are not realised souls you shouldn’t condemn them but tell them very patiently and sweetly that "you are not alright". Tell them how to meditate, how to improve.
+Spróbujcie najpierw z dwoma, trzema, pięcioma i więcej. A potem możecie także rozreklamować. Jeśli daliście realizację, powiedzmy około... powiedzmy, że daliście realizację dziesięciu osobom, możecie rozpocząć własną organizację, czy jak to tam nazwiecie i wypracować to. Macie teraz moc. Macie prawo. Ale musicie też mieć temperament. Na początku powinniście być bardzo cierpliwi i mili. Bardzo mili. Potem stopniowo przekonacie się, że potraficie leczyć ludzi. Początkowo możecie używać do leczenia Moje zdjęcie, a potem przekonacie się, że sami potraficie leczyć.
 
-It’s now a very big responsibility. Actually, I have done this work and you can do this work also. So you all have to become a guru. This is the day of Guru Purnima and I bless you that you all become gurus.
+Przede wszystkim sprawdzając wibracje powiecie, które czakry są zablokowane, które są dobre, które są złe. Następnie powinniście je skorygować. Jeśli jest coś złego, musicie to skorygować i wtedy stać się guru. To nie tak, że przez samo założenie, że "jestem guru" stajecie się guru, ale musicie być bardzo, BARDZO kompetentni wobec siebie. Musicie siebie osądzić. Przede wszystkim musicie stwierdzić, czy możecie stać się guru i wtedy możecie wysyłać Mi swoje relacje. Z przyjemnością dowiem się, ilu ludzi teraz macie, tak właśnie Sahaja Yoga mogłaby się rozprzestrzenić, bez wątpienia. Nie może pozostać na tym etapie tylko dlatego, że ja się wycofuję, ale - ponieważ teraz jest tak wielu sahaja yoginów - - będzie rosła i wypracowywała. Nie sądzę jednak, żebym mogła podróżować, więc wracam do Indii. Nie będę mogła znowu przyjechać.
 
-Whatever you have got now don’t waste it, don’t throw away but use it for the betterment of people. If you want, in the beginning, have four to five people together. Then you should separate. You have to give time to this. You have got your realisation but you have to give realisation otherwise, your state is not alright, is not normal.
+To niemożliwe. Lepiej więc wypracowujcie to sami. Musicie do Mnie pisać, jeśli będziecie mieli jakiekolwiek trudności, jeśli ktoś jest zablokowany lub macie problemy. Nie sądzę, żeby jakaś gazeta was krytykowała. Postąpili tak wobec Mnie, ale nie wobec was. Obiecajcie Mi wszyscy, że spróbujecie stać się guru. Nie wzięłam od was żadnych pieniędzy. Niczego od was. Po prostu chcę, żebyście rozprzestrzeniali Sahaja Yogę. Na początku, nawet podczas pujy, nie bierzcie żadnych prezentów ani pieniędzy.
 
-So today I want to tell you what are the qualities needed for a guru. First of all, he should be a detached person. That doesn’t mean you give up your family or anything but you should have a detached attitude that anybody from your family does wrong, you should go away from him or her.
+Możecie wziąć od nich tylko trochę pieniędzy, jeśli potrzebujecie salę lub duże miejsce, ale to nastąpi znacznie później. Najpierw spróbujcie z niewielką liczbą ludzi. To się doskonale rozwinie. Następna rzecz to puja. Na początku nie powinniście pozwolić im robić pujy do was. Dopóki nie będziecie mieli 300 sahaja yoginów, nie możecie im mówić, żeby robili do was puję. Na początku możecie do pujy używać Moje zdjęcie. Ale uważajcie, bo teraz posiadacie moce i to może schlebiać waszemu ego. Możecie zacząć myśleć, że jesteście wspaniali. Nie.
 
-Secondly, through your realisation you can see that you can spread happiness and remove their problems. You have seen that whatever I have done you can do it. You have got power to do it but no hypocrisy. No hypocrisy, otherwise you’ll spoil the name of Sahaja Yoga. So if you are sure about yourself then only you should become gurus and carry the work of Sahaja Yoga.
+Wy musicie ocalić świat. Cała Moja praca na tym polega i prosiłabym was, żebyście pisali do mnie, do Indii, jeśli będzie jakakolwiek trudność. Piszcie też, jak rozprzestrzeniacie Sahaja Yogę, bardzo chciałabym wiedzieć, co się dzieje. Myślę, że zrozumiecie, iż teraz muszę się wycofać. Nie mogę podróżować. Jeśli macie jakieś pytania, pytajcie. Ci, którzy są pewni, że mogą stać się guru niech podniosą ręce. O, jak wielu! Tylko jedną rękę, nie dwie. Jeśli ktoś robi pieniądze, powinniście mu powiedzieć, żeby tego nie robił, a także napiszcie do Mnie.
 
-I think, I give you all my blessings and all my support that now you take over and become gurus. You can also have all the pujas and then you can use photograph.
+Nie zaczynajcie od robienia pieniędzy. Ale gdy będziecie mieli jakieś trzy tysiące ludzi, możecie obchodzić wszystkie święte dni i oddawać cześć. Ale każdy musi mieć co najmniej trzy tysiące uczniów, wtedy może poprosić o puję. Są ludzie, którzy nie mogą stać się guru, którzy łapią negatywności i mają problemy. Jeśli macie problemy, nie róbcie z siebie guru, ponieważ to wam zaszkodzi ale jeśli uważacie, że jesteście czyści i otwarci, to możecie stać się guru. Czy są jakieś pytania? Otwieram centrum międzynarodowej Sahaja Yogi i gdy będziecie mieli trzystu sahaja yoginów, możecie prosić, żeby robili waszą puję i brać pieniądze. Zanim to nastąpi, jeśli dostaniecie jakieś pieniądze, możecie je wysłać do tego centrum. W tym centrum będzie około jedenastu członków i Ja to ogłoszę. Jeśli macie jakieś pytania, pytajcie teraz.
 
-You have seen how one has to work it out and if somebody has some defect or some chakras are catching then you should tell that person how to correct it. On the photograph it is the best. And very humbly you should tell them what is to be done and you can save all the people.
+Dopóki nie będziecie mieli trzystu osób, nie bierzcie żadnych pieniędzy z wyjątkiem tych na salę i inne wydatki, ale nie bierzcie żadnych pieniędzy dla siebie. Teraz, czy możecie jeszcze raz podnieść ręce, ilu z was chciałoby być guru? Niech was Bóg błogosławi. Czy macie jakieś pytania? Możecie brać pieniądze na sprawy organizacyjne, bo musicie mieć salę, głośniki, różne takie rzeczy, ale nie powinniście ich brać dla własnego użytku. Powinniście być bardzo ostrożni. Aż będziecie mieć 300 sahaja yoginów. Możecie utworzyć grupę od 5 do 10 osób i zacząć swoją pracę. Spodoba się wam. Jeśli ktokolwiek ma jakiś problem, pytajcie Mnie.
 
-So now I am no more available in the sense I’ve done my best and I think I won’t be able to do this again. It is not my old age but I want to give you a complete freedom to spread Sahaja Yoga. You have got it free and you also have to give it to people free – not to charge them.
-
-On puja days only, be careful that don't put yourself on the puja till you are confirmed and you are sure that you have created at least hundred Sahaja Yogis, good Sahaja Yogis. Then they can do your puja also. But the best thing is to wait and see.
-
-You don't end into puja business till you are – you have done about thousand people each, then you have the right to have a puja. But you could have a puja with My photograph till you are completely all right.
-
-Now how confidence is the main thing. Do not condemn yourself. You are all realized souls, but those who can think they can become gurus, can become and try. You have to have patience with the seekers. You can't be angry and hot-tempered. Unless and until they try to trouble you, you shouldn't lose your temper. You should be quiet.
-
-Most of the gurus are very hot-tempered, or have been before, and that's why they were busy with their temper and they couldn't produce anything sensible, I think. They could never give Realization. So, I have to warn you - control your temper. Watch yourself if you get angry, then you cannot become a guru.
-
-Guru has to be a loving person, very loving and understanding. Then you have to be humble, not to abuse people, not to shout at people. If they misbehave, you can ask them to go out, but don't shout. If you think somebody is misbehaving, you can ask that person to get out, but you need not shout or get angry with that person.
-
-So it's a very big responsibility now. You've got your Realization and so four or five of you should join to form a Sahaja Yoga group, giving Realization to people. Try.
-
-Of course, My photograph will be there, but still you must try. Try to understand that now what is your responsibility. If a position is given, you have to always carry on with the responsibility of that position. In the same way, if you become a guru, you have a certain amount of responsibility, that your own behaviour should be very good to begin with.
-
-In the beginning, you cannot tell them, "Don't go to church," or "Don't do this, don't do that." You give them Realization and then you can talk to them. In the beginning, you shouldn't tell them or they'll just shun you. Accept them as they are.
-
-In the beginning, you should not also cure people if possible. You can use My photograph to begin with, but don't cure them. Later on if you are confident, then four, five together should treat that person. Curing people is not very easy and you may catch, so before acting on them you must take a bandhan. Bandhan is very good. You should, even when you are going out, you should take a bandhan.
-
-You should also make a very good speech, if possible. Now you know so many things and you can talk to them. It's a very big responsibility.
-
-Now I have been working from the year 1970 and today, so many years I have worked so hard, but I can't now do it. I have to go back and take some rest as everybody has said, and you will also agree. But you can tell about Me, if it is necessary, but use My photograph. Every time you have a meeting, use My photograph.
-
-Those who think they can be leaders and, as gurus, they should first see their own vibrations. Meditate on My photograph and find out. You have to be absolutely honest that you are hundred percent all right and there is no catch and then you can become a guru. You have to be.
-
-First you may get two people, then three people. I started with five. So you can imagine how one can go with it. Try first of all with two, three, five and more. You can also advertise afterwards, if you have given Realization to people, say about - you have given Realization to ten people - you can start your own organization, or whatever you may call, and can work it out.
-
-Now you have the power, you have the right, but you must have a temperament also. In the beginning, you have to be very patient and kind – very kind. Then gradually, you'll find that you can cure people. You can use My photograph for curing to begin with and later on you can see you can cure.
-
-First of all, on vibrations you'll see what chakras are catching, which are good, which are bad. And then you should correct them.
-
-If there's something wrong, you must correct it and then become guru.
-
-It's not just accepting that “I am guru” you become guru, but you have to be very, very – authority on yourself. You have to judge yourself. First of all, you should find out: can you become gurus? And then you can send Me your reports. I'd be very happy to know how many you have got now. And that is how Sahaja Yoga would spread, no doubt.
-
-It is - it cannot remain at this stage because I am withdrawing, but because now you are so many Sahaja Yogis, it will grow and work out. But I think now I can't travel, and I am going back. I won't be able to come back again – not possible.
-
-So you better work it out for yourself.
-
-You must write to Me if you have any difficulties, if somebody is catching or something, or you have problem. Now I don't think any newspaper will criticize you. They have done it for Me, but not for you. All of you promise Me that you'll try to become gurus. I didn't take any money from you, nothing from you. I just want that you should spread Sahaja Yoga.
-
-In the beginning, even in the pujas, don't take any presents or money. You can only take  little money from them if you have need to have a hall or a big place, but that would be much later. First of all, try with few people. It will grow very well.
-
-Now, the another thing is, puja you should not allow them to do to you, to begin with. Till you have done three hundred Sahaja Yogis, you can't ask them to do you  puja. You can use My photograph for the puja, to begin with, but be very careful because you have powers now and it might pamper your ego, maybe you start thinking you are great – no.
-
-You have to save the world. All My work is that, and I would ask you to write to Me in India if there is any difficulty. Also write to Me how you are spreading Sahaja Yoga, what is happening, I would like to know. But I think you will understand that I must retire now. I can't travel.
-
-If you have any questions, ask Me.
-
-Those who are confident that they can become gurus, raise your hands. Oh, so many. Only one hand, not two.
-
-If anybody is making money, you should tell him not to do it and also write to Me. You cannot make money, to begin with, but when you have about three thousand people, you can celebrate all the worshipping days and worship. But you must make at least three thousand disciples, each. Then you can ask for a puja.
-
-There are some people who cannot become gurus, who are catching and they have problems. If you have problems, don't become guru, otherwise, it will affect you. But if you think you are clear and opened out, then you can become gurus. Is there any question?
-
-I am opening a centre for international Sahaja Yoga and when you have done with three hundred Sahaja Yogis, you can ask them to do puja and take money. Before that, if you get any money, you can send it to that centre. There would be about eleven members in that centre and I'll declare it. If you have any questions, ask Me now.
-
-First three hundred people you don't take any money, except for the hall or except for other expenses. But you don't take any money for yourself.
-
-Now, can you raise again your hands how many would like to be gurus?
-
-May God bless you.
-
-Do you have any questions?
-
-You can take money on organization basis, that you have to have a hall, loudspeaker, and all those things. But you shouldn't take it for your individual use. You should be very careful till you have three hundred Sahaja Yogis. You can form a group of five to ten people and start your work. You'll enjoy it. Anyone has any problem, ask Me.
-
-I have to go to Canada - I have not been, but I'll try to find some time. First now I have to go to Russia, and then I can go to Canada. You have to work more in your country than outside to begin with, and then you can spread it all over. Again let us see how many want to be gurus?
-
-Oh! What a big number.
-
-Thank you very much, thank you, thank you all.
-
-(Applauses)
-
-(Conversation in Hindi:)
-
-Yogi: Should we do the Aarti?
-
-Shri Mataji: Yes, you may do, it went well.
-
-Yogi: Yes, Mother.
-
-Shri Mataji: From where are they all?
-
-(Conversation in Hindi:)
-
-Yogi: Are we permitted to do Aarti? Aarti?
-
-Shri Mataji: We should go...
-
-Yogi: Jai Shri Mataji!
-
-Shri Mataji: Do Aarti.
-
-Talk after Guru Puja, Cabella, Italy
-
-"I think now you take the responsibility. But you can contact me. You can write to me."
-
-Shri  Mataji :  You must form a central committee.
-
-Sahaji :   Yes , yes.(jee, Jee)
-
-Shri Mataji :   One central committee.
-
-Sahaji :   Yes.
-
-Shri  Mataji – Maybe in London or maybe here.
-
-Sahaji :   Yes, Shri Mataji
-
-Shri Mataji :   Wherever you feel  right. One Central Committee.
-
-Sahaji – Yes.
-
-Shri Mataji :   And then you can inform them what is happening,   anything.
-
-Sahaji :  Yes Shri Mataji. Yes Shri Mataji. Like the world council. We have a council    
-
-Shri Mataji. Like the council. We have the council.
-
-Shri Mataji :  You have to tell what is happening. Some Central  Committee you 
-
-should have ..about say, five people.
-
-Sahaji : Yes , communication, for communication.
-
-Shri Mataji :  No, No. For Commuincation.
-
-Sahaji : Yes Shri Mataji.
-
-Shri Mataji : Or in case any problem or anything. So you can attend. Isn’t it?
-
-Sahaji : Yes Shri Mataji.
-
-( Sahajis discussing softly  among themselves)
-
-Shri Mataji – What?
-
-Sahaji  :  They are saying we will form it here. Here. Here. In Cabela. Will form  in 
-
-Cabella. In Cabella.
-
-Shri Mataji : What? 
-
-Sahaji :  We will form a council. Committee , Committee.
-
-Shri Mataji :  No , form it anywhere.
-
-Sahaji : Yes . Very well.
-
-Shri Mataji :  Wherever you like.
-
-Sahaji :  Yes. 
-
-Shri Mataji : Take from 4-5 countries.
-
-Sahaji :  Yes.
-
-Shri Mataji :  Make one here, make ONE IN India.
-
-Sahaji :  Ok, Shri Mataji.
-
-Shri Mataji :  Isn’t it?
-
-Sahaji :  Yes, yes Shri Mataji.
-
-Shri Mataji :  If there is any problem here, then you inform in India. 
-
-Sahaji :  Yes Shri Mataji. 
-
-Shri Mataji : In every detail.
-
-Sahaji : Yes Shri Mataji.Absolutely right. Absolutely right.
-
-(After some pause)
-
-Shri Mataji : Put some Kajal in your eyes
-
-( Sahajis laughing loudly)
-
-Shri Mataji : Will look well. You need to wear. You eat a lot or what? 
-
-Sahaji : Eat? Not so much. Not so much.
-
-Shri Mataji – What?
-
-Sahaji – Not so much.
-
-Shri Mataji – Your eyes are getting little spoilt.
-
-Sahaji : Yeah? 
-
-( After a little pause)
-
-Shri Mataji – Lets go.
-
-Sahaji : Yes Shri Mataji. Yes Shri Mataji.
-
-Shri Mataji – Get the chair.
-
-Sahaji : Yes Shri Mataji.Bolo Shri Adishakti Mataji Shri Nirmala Devi ki Jai. 
-
-All : Devi ki jai, Devi ki jai .
-
-Some Bhajan from 3.00   to 3.48
-
-Shri Mataji : Anybody has come from Canada?
-
-Sahaji : They have come, they have come.
-
-Shri Mataji: Are they here? Where?
-
-Sahaji : four five people were there Shri Mataji. They had also brought      
-
-presents. They had come.
-
-Shri Mataji : Is that so?
-
-Sahaji : Yes.
-
-Shri Mataji : I did not see.
-
-Sahaji : Yes. There are lot of people, Shri Mataji.  They had come. Five people had     
-
-come. They were five of them.
-
-Shri Mataji : I wanted to speak with  them.
-
-Sahaji :  Yes.
-
-Lady Sahaji :   There are a few things, will hand over these.
-
-Shri Mataji : Go get them.
-
-Sahaji :  Yes. 
-
-Sahaji :  Thank you Shri Mataji
-
-Shri Mataji : You can start a central committee.
-
-Sahaji : Yes.
-
-Shri Mataji : They should approve.
-
-Sahaji : Yes.
-
-Shri Mataji : Of about ten people.
-
-( After some pause)
-
-Shri Mataji : See who all are there from Canada.
-
-Sahaji : Yes Shri Mataji. Will call them.
-
-Shri Mataji : Get them here.
-
-Sahaji : Yes, Yes. 
-
-All Sahajis :  Bolo shri Adi Guru Maata Shri Nirmala Devi Ki Jai.
-
-Sahaji :  Jai Shri Mataji, Jai Shri Mataji.
+Muszę pojechać do Kanady. Nie byłam tam, ale postaram się znaleźć trochę czasu. Najpierw muszę jechać do Rosji, a potem mogę jechać do Kanady. Początkowo powinniście pracować bardziej we własnym kraju niż na zewnątrz, a potem możecie rozprzestrzeniać to wszędzie. Jeszcze raz, zobaczmy, ilu chce być guru? Och! Jak dużo. Dziękuję wam bardzo. Dziękuję wam. Dziękuję wam wszystkim.
