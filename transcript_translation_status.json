@@ -3116,6 +3116,14 @@
         "transcript-english-reviewed"
     ],
     [
+        80019,
+        "transcript-english-reviewed"
+    ],
+    [
+        80021,
+        "transcript-english-reviewed"
+    ],
+    [
         4486,
         "transcript-english-needed"
     ],
@@ -6465,6 +6473,10 @@
     ],
     [
         79971,
+        "transcript-english-verified"
+    ],
+    [
+        80020,
         "transcript-english-verified"
     ],
     [
@@ -12988,6 +13000,10 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
+        80022,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
         12587,
         "transcript-hindi-needed-hi"
     ],
@@ -15876,10 +15892,6 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
-        65065,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
         957,
         "translation-hindi-to-english-needed"
     ],
@@ -16348,10 +16360,6 @@
         "translation-hindi-to-english-needed"
     ],
     [
-        65065,
-        "translation-hindi-to-english-needed"
-    ],
-    [
         72487,
         "translation-hindi-to-english-needed"
     ],
@@ -16573,6 +16581,10 @@
     ],
     [
         38473,
+        "translation-hindi-to-english-reviewed"
+    ],
+    [
+        65065,
         "translation-hindi-to-english-reviewed"
     ],
     [
@@ -19640,6 +19652,10 @@
         "translation-english-to-hindi-draft"
     ],
     [
+        77010,
+        "translation-english-to-hindi-draft"
+    ],
+    [
         77091,
         "translation-english-to-hindi-draft"
     ],
@@ -19721,10 +19737,6 @@
     ],
     [
         76074,
-        "translation-english-to-hindi-in-progress"
-    ],
-    [
-        77010,
         "translation-english-to-hindi-in-progress"
     ],
     [
@@ -20098,5 +20110,21 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80020,
+        "translation-marathi-to-english-needed-pt-pt"
+    ],
+    [
+        80021,
+        "translation-hindi-to-english-reviewed-ru"
+    ],
+    [
+        14213,
+        "translation-hindi-to-english-reviewed-hi"
+    ],
+    [
+        80022,
+        "translation-hindi-to-english-reviewed-hi"
     ]
 ]
