@@ -8,6 +8,10 @@
         "transcript-english-in-progress"
     ],
     [
+        46060,
+        "transcript-english-in-progress"
+    ],
+    [
         49662,
         "transcript-english-in-progress"
     ],
@@ -41,10 +45,6 @@
     ],
     [
         73173,
-        "transcript-english-in-progress"
-    ],
-    [
-        78504,
         "transcript-english-in-progress"
     ],
     [
@@ -3336,10 +3336,6 @@
         "transcript-english-needed"
     ],
     [
-        20310,
-        "transcript-english-needed"
-    ],
-    [
         20326,
         "transcript-english-needed"
     ],
@@ -3421,10 +3417,6 @@
     ],
     [
         37661,
-        "transcript-english-needed"
-    ],
-    [
-        46060,
         "transcript-english-needed"
     ],
     [
@@ -12068,6 +12060,10 @@
         "transcript-english-draft"
     ],
     [
+        78504,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -12569,6 +12565,10 @@
     ],
     [
         19509,
+        "transcript-hindi-draft-hi"
+    ],
+    [
+        19518,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -13108,10 +13108,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19242,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19243,
         "transcript-hindi-needed-hi"
     ],
@@ -13280,10 +13276,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19518,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19520,
         "transcript-hindi-needed-hi"
     ],
@@ -13329,10 +13321,6 @@
     ],
     [
         19639,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        19653,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -14368,6 +14356,10 @@
         "transcript-marathi-needed-mr"
     ],
     [
+        80036,
+        "transcript-marathi-needed-mr"
+    ],
+    [
         12860,
         "transcript-marathi-in-progress-mr"
     ],
@@ -15256,6 +15248,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        8483,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         8484,
         "translation-hindi-to-english-draft"
     ],
@@ -15640,10 +15636,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        12920,
-        "translation-hindi-to-english-draft"
-    ],
-    [
         13085,
         "translation-hindi-to-english-draft"
     ],
@@ -15936,10 +15928,6 @@
         "translation-hindi-to-english-needed"
     ],
     [
-        8483,
-        "translation-hindi-to-english-needed"
-    ],
-    [
         8496,
         "translation-hindi-to-english-needed"
     ],
@@ -15969,10 +15957,6 @@
     ],
     [
         8630,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        8647,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -16949,6 +16933,10 @@
     ],
     [
         12888,
+        "translation-marathi-to-english-draft"
+    ],
+    [
+        12920,
         "translation-marathi-to-english-draft"
     ],
     [
@@ -20058,5 +20046,9 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80036,
+        "translation-marathi-to-english-draft-mr"
     ]
 ]
