@@ -24,10 +24,6 @@
         "transcript-english-in-progress"
     ],
     [
-        63856,
-        "transcript-english-in-progress"
-    ],
-    [
         63935,
         "transcript-english-in-progress"
     ],
@@ -45,6 +41,10 @@
     ],
     [
         73173,
+        "transcript-english-in-progress"
+    ],
+    [
+        77204,
         "transcript-english-in-progress"
     ],
     [
@@ -3657,10 +3657,6 @@
     ],
     [
         63344,
-        "transcript-english-needed"
-    ],
-    [
-        63856,
         "transcript-english-needed"
     ],
     [
@@ -11837,6 +11833,10 @@
     ],
     [
         63678,
+        "transcript-english-draft"
+    ],
+    [
+        63856,
         "transcript-english-draft"
     ],
     [
@@ -20046,9 +20046,5 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        80036,
-        "translation-marathi-to-english-draft-mr"
     ]
 ]
