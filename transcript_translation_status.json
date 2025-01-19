@@ -1296,6 +1296,10 @@
         "transcript-english-not-needed"
     ],
     [
+        56445,
+        "transcript-english-not-needed"
+    ],
+    [
         58197,
         "transcript-english-not-needed"
     ],
@@ -3132,10 +3136,6 @@
         "transcript-english-needed"
     ],
     [
-        5536,
-        "transcript-english-needed"
-    ],
-    [
         5747,
         "transcript-english-needed"
     ],
@@ -3441,10 +3441,6 @@
     ],
     [
         55911,
-        "transcript-english-needed"
-    ],
-    [
-        56445,
         "transcript-english-needed"
     ],
     [
@@ -7149,6 +7145,10 @@
     ],
     [
         5432,
+        "transcript-english-draft"
+    ],
+    [
+        5536,
         "transcript-english-draft"
     ],
     [
@@ -19677,6 +19677,10 @@
     ],
     [
         38932,
+        "translation-english-to-hindi-in-progress"
+    ],
+    [
+        72138,
         "translation-english-to-hindi-in-progress"
     ],
     [
