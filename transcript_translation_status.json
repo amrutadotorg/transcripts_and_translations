@@ -64,6 +64,10 @@
         "transcript-english-not-needed"
     ],
     [
+        7142,
+        "transcript-english-not-needed"
+    ],
+    [
         7241,
         "transcript-english-not-needed"
     ],
@@ -1304,6 +1308,10 @@
         "transcript-english-not-needed"
     ],
     [
+        58199,
+        "transcript-english-not-needed"
+    ],
+    [
         58289,
         "transcript-english-not-needed"
     ],
@@ -1441,6 +1449,14 @@
     ],
     [
         62592,
+        "transcript-english-not-needed"
+    ],
+    [
+        62636,
+        "transcript-english-not-needed"
+    ],
+    [
+        62637,
         "transcript-english-not-needed"
     ],
     [
@@ -3156,10 +3172,6 @@
         "transcript-english-needed"
     ],
     [
-        7142,
-        "transcript-english-needed"
-    ],
-    [
         8508,
         "transcript-english-needed"
     ],
@@ -3344,10 +3356,6 @@
         "transcript-english-needed"
     ],
     [
-        20513,
-        "transcript-english-needed"
-    ],
-    [
         20716,
         "transcript-english-needed"
     ],
@@ -3460,10 +3468,6 @@
         "transcript-english-needed"
     ],
     [
-        58199,
-        "transcript-english-needed"
-    ],
-    [
         58292,
         "transcript-english-needed"
     ],
@@ -3481,10 +3485,6 @@
     ],
     [
         60694,
-        "transcript-english-needed"
-    ],
-    [
-        60850,
         "transcript-english-needed"
     ],
     [
@@ -3593,14 +3593,6 @@
     ],
     [
         62591,
-        "transcript-english-needed"
-    ],
-    [
-        62636,
-        "transcript-english-needed"
-    ],
-    [
-        62637,
         "transcript-english-needed"
     ],
     [
@@ -3989,10 +3981,6 @@
     ],
     [
         78502,
-        "transcript-english-needed"
-    ],
-    [
-        79617,
         "transcript-english-needed"
     ],
     [
@@ -12064,6 +12052,10 @@
         "transcript-english-draft"
     ],
     [
+        79617,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -17609,6 +17601,10 @@
     ],
     [
         60689,
+        "translation-marathi-to-english-needed"
+    ],
+    [
+        60694,
         "translation-marathi-to-english-needed"
     ],
     [
