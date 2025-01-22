@@ -6432,6 +6432,14 @@
         "transcript-english-verified"
     ],
     [
+        80044,
+        "transcript-english-verified"
+    ],
+    [
+        80045,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -12056,6 +12064,10 @@
         "transcript-english-draft"
     ],
     [
+        80043,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13709,6 +13721,10 @@
     ],
     [
         26211,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        33841,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -15840,6 +15856,10 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
+        33840,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
         957,
         "translation-hindi-to-english-needed"
     ],
@@ -15969,10 +15989,6 @@
     ],
     [
         10173,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        10176,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -16445,6 +16461,10 @@
     ],
     [
         10140,
+        "translation-hindi-to-english-reviewed"
+    ],
+    [
+        10176,
         "translation-hindi-to-english-reviewed"
     ],
     [
@@ -19660,6 +19680,10 @@
         "translation-english-to-hindi-draft"
     ],
     [
+        80044,
+        "translation-english-to-hindi-draft"
+    ],
+    [
         15159,
         "translation-english-to-hindi-in-progress"
     ],
@@ -20046,5 +20070,13 @@
     [
         79027,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80045,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80043,
+        "translation-hindi-to-english-needed-zh-hant"
     ]
 ]
