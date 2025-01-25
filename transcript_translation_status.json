@@ -2136,6 +2136,10 @@
         "transcript-english-not-needed"
     ],
     [
+        80055,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -3877,10 +3881,6 @@
     ],
     [
         77167,
-        "transcript-english-needed"
-    ],
-    [
-        77168,
         "transcript-english-needed"
     ],
     [
@@ -6425,14 +6425,6 @@
     ],
     [
         80046,
-        "transcript-english-verified"
-    ],
-    [
-        80050,
-        "transcript-english-verified"
-    ],
-    [
-        80052,
         "transcript-english-verified"
     ],
     [
@@ -12036,6 +12028,10 @@
         "transcript-english-draft"
     ],
     [
+        77168,
+        "transcript-english-draft"
+    ],
+    [
         77318,
         "transcript-english-draft"
     ],
@@ -12065,10 +12061,6 @@
     ],
     [
         79617,
-        "transcript-english-draft"
-    ],
-    [
-        80051,
         "transcript-english-draft"
     ],
     [
@@ -20082,9 +20074,5 @@
     [
         80045,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        80050,
-        "translation-marathi-to-english-draft-it"
     ]
 ]
