@@ -2144,6 +2144,10 @@
         "transcript-english-not-needed"
     ],
     [
+        80062,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -4001,6 +4005,10 @@
     ],
     [
         79891,
+        "transcript-english-needed"
+    ],
+    [
+        80061,
         "transcript-english-needed"
     ],
     [
@@ -13716,6 +13724,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        20156,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         26211,
         "transcript-hindi-in-progress-hi"
     ],
@@ -15852,6 +15864,10 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
+        20155,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
         20662,
         "translation-hindi-to-english-in-progress"
     ],
@@ -16333,6 +16349,10 @@
     ],
     [
         79883,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        80061,
         "translation-hindi-to-english-needed"
     ],
     [
