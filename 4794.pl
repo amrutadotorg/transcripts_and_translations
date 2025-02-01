@@ -1,6 +1,6 @@
 11 grudnia 1988
 Adi Szakti Pudźa
-Residence of Madhukar Dhumal, Rahuri (Indie) | Translation (Marathi to English) – Reviewed
+Residence of Madhukar Dhumal, Rahuri (Indie)
 
 Puja musi rozpocząć się o czasie, w którym ma się rozpocząć, czekałam, i czekałam bez końca potem zdałam sobie sprawę, że dzisiaj jest bardzo dobry czas zgodny z kalendarzem; ale nie jest to poranek, zatem wypada to na trzeci trzeci dzień księżyca ciągu dnia, musieliśmy zaczekać, aż się to zacznie.
 
