@@ -1,123 +1,136 @@
-16 March 1990
-Interview
-Burwood Ashram, Sydney (Australia)
-Talk Language: English | Transcript (English) - Draft
-The Power of kundalini (Interview) Shri Mataji with Stephen Taylor, Friday, March 16, 1990
+16 марта 1990
+Интервью
+Ашрам в Бервуде, Сидней (Австралия)
+Силы Кундалини. Интрвью Шри Матаджи Стефену Тейлору
 
-Stephen Taylor: Shri Mataji, what is Sahaja Yoga?
+Пятница, 16 марта, 1990
 
-Shri Mataji: Sahaja. Saha means 'with'.Ja means 'born'. So it is born with you.' The right' to become 'united,' which is the yoga with the Divine.
+Интервьюер (И.): — Шри Матаджи, что такое Сахаджа Йога?
 
-Stephen Taylor: And this Sahaja yoga is something that everybody can have, is it? Is it something, everybody can practice?
+Шри Матаджи: — «Сахаджа». «саха» означает «с», «джа» означает «рождённый». Так что это рождается вместе с вами — право стать единым с Божественным — что и является йогой.
 
-Shri Mataji: Of course.
+И.: — И эта Сахаджа Йога доступна каждому, не так ли? Это что-то такое, что каждый может практиковать?
 
-Stephen Taylor: And how does this connect with the divine take place?
+Шри Матаджи: — Конечно.
 
-Shri Mataji: We have within ourselves this power in the triangular bone which is called a 'Sacrum' meaning sacred, which when awakened sprouts like a prime in seed and rises through six subtle centres, opens out in the last centre and gets connected with the divine, which is subtle energy, all around us, which organizes us, which nourishes us, does all the living work. Above all it loves us.
+И.: — И как происходит эта связь с Божественным?
 
-Interviewer: Does this mean that people who have not had the ability to practice Sahaj yoga are not connected with the divine?
+Шри Матаджи: — Мы имеем внутри себя эту Силу [Кундалини] в треугольной кости [в крестце], которая называется «сакрум», что означает «священная», которая при пробуждении прорастает, как первичная листовая почка в семени, и поднимается через шесть тонких центров [чакр], открывает последний центр [Сахастрару чакру] и соединяется с Божественным. Это тонкая энергия, которая окружает нас повсюду, которая нас организует, питает нас, делает всю живую работу. Прежде всего, Она любит нас.
 
-Shri Mataji: Most of them are not. And if some of them are, they don't know all about it.
+И.: — Шри Матаджи, означает ли это, что люди, у которых не было возможности практиковать Сахаджа Йогу не связаны с Божественным?
 
-Interviewer: So this is what, an extra force that is available to human beings to develop themselves in this world?
+Шри Матаджи: — Большинство из них не являются [не связаны с Божественностью], а если [такие] и есть, то не все знают об этом.
 
-Shri Mataji: Of course. This is the last breakthrough of our evolution, where you have to get connected with the divine. You have to feel it on your central nervous system and that's how you get Self-realization.
+И.: — Таким образом, это — сверхсила, доступная человеческим существам для саморазвития в этом мире?
 
-Interviewer: Do I perceive here that this is a way of balancing oneself?Of keeping in such a way of living one's life,(in such a way-repetition) that one is not unbalanced in one's view of what is going on around us?
+Шри Матаджи: — Конечно. Это последний прорыв нашей эволюции, где вы должны соединиться с Божественным. Вы должны чувствовать это на своей центральной нервной системе — и именно так вы получаете Самореализацию.
 
-Shri Mataji: Yes. We have two sides in our system of the autonomous nervous system, left and right, which we call as left and right sympathetic nervous system. Left side caters to our emotions, our past, our desires. The right side caters to our action, physical and mental. If you indulge in one too much and go too far with it, you develop an imbalance within yourself. In the centre lies the third power which we call as a parasympathetic nervous system..This is the channel which is the central path of ascent. When the kundalini rises through it, it brings you in the balance because it rises in the centre of the system. So this is the minimum that happens, that you develop your balance.
+И.: — Верно ли я понимаю, что это — способ балансирования себя? Сохранение такого образа жизни, когда человек не теряет равновесия в своём восприятии происходящего вокруг нас?
 
-Interviewer: So how does one actually achieve this balance?
+Шри Матаджи: — Да. У нас есть две стороны в нашей системе автономной нервной системы — левая и правая, которые мы называем левой и правой симпатическими нервными системами. Левая сторона отвечает за наши эмоции, наше прошлое, наши желания. Правая сторона отвечает за наши действия — физические и умственные. Если вы слишком увлекаетесь чем-то одним и заходите с этим слишком далеко, вы развиваете дисбаланс внутри себя. В центре находится третья сила, которую мы называем парасимпатической нервной системой. Это канал, который является центральным путём восхождения. Когда Кундалини поднимается через него, это приводит вас в равновесие, потому что Она поднимается в центре (нашей тонкой) системы. Так что это минимум того, что происходит, когда вы развиваете свой баланс.
 
-Shri Mataji: It just happens spontaneously.
+И.: — Так, как же на самом деле достичь этого баланса?
 
-Interviewer: In other words, there is no physical requirement for an individual?
+Шри Матаджи: — Это просто происходит спонтанно.
 
-Shri Mataji: Not at all.Not at all. It's an evolutionary step. As I told you in our evolution, we have developed a balance, we can stand on our two legs. Animals cannot. In the same way, you develop this special balance between your emotion and your action in a very proper way.
+И.: — Другими словами, нет никаких физических требований к человеку?
 
-Interviewer: You speak as though this is some sort of evolutionary step?
+Шри Матаджи: — Отнюдь. Нисколько. Это — эволюционный шаг, как Я вам говорила. В нашем эволюционном процессе мы выработали баланс, мы можем стоять на двух ногах. Животные не могут [так делать]. Точно так же вы развиваете этот особый баланс между своими эмоциями и своими действиями — очень правильным образом.
 
-Shri Mataji: Yes it is. It is the last breakthrough, that you have to become the spirit now and this has to be achieved, which can be achieved only through a living process because we have become human beings through a living process and that living process has to act within us.
+И.: — Вы так говорите, как будто это какой-то эволюционный шаг.
 
-Interviewer: This sounds as though it is rather a significant time than in the history of humanity?
+Шри Матаджи: — Да, это так. Это последний прорыв, что вы должны сейчас стать Духом. И это должно быть достигнуто. Это может быть достигнуто только через живой процесс, потому что мы стали людьми в результате живого процесса, и этот живой процесс должен действовать внутри нас.
 
-Shri Mataji: Very much. In the history of humanity, in the history of evolution, in the history of spirituality, it is the most important time because here, where you will get whatever has been promised to you so far.
+И.: — Звучит так, как будто сейчас более значимое время, чем в [предыдущей] истории человечества?
 
-Interviewer: So it is no accident Sahaja yoga has appeared in the world at this time?
+Шри Матаджи: — В значительной степени. В истории человечества, в истории эволюции, в истории духовности
 
-Shri Mataji: No, not at all, not at all. It is all predicted thousands of years back in India and later on by many saints. Even William Blake* has predicted it.
+это самое важное время, потому что здесь вы получите всё, что было обещано вам до сих пор.
 
-Interviewer: Shri Mataji you went to Russia last year and I believe the reception you got was most surprising?
+И.: — Значит, не случайно, что Сахаджа Йога появилась в мире именно в это время?
 
-Shri Mataji: I was myself surprised because thousands of people came and very sensible well-educated people came and they all settled down.Thousands. .I did not know how to cope with that number because there were so many, and even the members of the supreme council, the government, came. I could only say that in the so-called free societies we waste too much time experimenting with our freedom and indulge too much into politics which is a waste thing, then the economics, all these things. While the people there did not have any such chances. So they put their energies to something that was higher than that. They diverted and they were very knowledgeable, they knew a lot about seeking. They knew a lot about Kundalini and as if they were just waiting for me. It was very remarkable.
+Шри Матаджи: — Нет, вовсе нет, вовсе нет. Это всё предсказано тысячи лет назад в Индии, а позже и многими святыми,
 
-Interviewer: Mr Gorbachev has said the Russian requires a mental revolution. Do you see the acceptance of Sahaja yoga as part of this revolution?
+даже Уильям Блейк предсказал это.
 
-Shri Mataji: Of course. He himself is a saint and what he is meaning by 'mental', that they should now understand that they have to develop that balance between communism and democracy. Our democracies are imbalanced. They are one-sided. They have no.. not the other side of collectivity but communism has collectivity. It is power-oriented. Our democracies are money-oriented. What he is meaning is the maturity of our wisdom.
+И.: — Шри Матаджи, Вы ездили в Россию в прошлом году, и я считаю, что приём, оказанный Вам, был самым неожиданным.
 
-Interviewer: So referring back to what we were talking about earlier, is it okay about bringing the human body into balance? Could we say then that Mr Gorbachev is bringing the whole eastern Bloc into balance?
+Шри Матаджи: — Да. Я была поражена, потому что пришли тысячи людей, и очень разумные, образованные люди пришли, и все расположились там. Тысячи! Я не знала, как справиться с этим числом, потому что их было так много. И даже пришли члены Верховного Совета [и] правительства. Но Я могла бы только сказать, что в так называемых свободных обществах мы тратим слишком много времени, экспериментируя со своей свободой, и слишком много вовлекаемся в политику, что, Я думаю, пустая трата времени, затем экономика — все эти вещи. В то время люди там не имели подобных возможностей, поэтому они направили свою энергию на то, что было выше этого. Они отвлеклись [от происходящего вокруг]. и они были очень хорошо осведомлены, они многое знали о поиске [истины]. Они многое знали о Кундалини и как будто только и ждали Меня. Это было очень поразительно.
 
-Shri Mataji: Yes. Yes, they had gone too much on one side and he is trying to bring them to the centre.
+И.: — Г-н Горбачёв сказал, что русским нужна ментальная революция (переворот в сознании). Видите ли Вы принятие Сахаджа Йоги частью этой революции?
 
-Interviewer: You mentioned that you went to an eastern bloc conference last year and I believe you gave many influential people, Realization? Is it true that you believe that this was instrumental in helping the overthrow of oppressive communism?
+Шри Матаджи: — Конечно. Он сам святой, и что он имеет в виду под «ментальным» (умственным): что теперь они должны понимать, что необходимо развивать этот баланс между коммунизмом и демократией. Наши демократии несбалансированны. Они односторонние. У них нет... нет другой стороны коллективности, но у коммунизма есть коллективность. Он (коммунизм) ориентирован на силу. Наши демократии ориентированы на деньги. То, что он (Горбачёв) имеет в виду, — это зрелость нашей мудрости.
 
-Shri Mataji: It was a yoga, yoga seminar and I expected all of them to be there and surprisingly I talked to them hardly for 30 to 35 minutes and then I gave them realization and all of them got it. They were representatives from all these Eastern Bloc Countries. When they got it they were so surprised at it, then they walked out with me out of the hall and nobody was left in the hall to listen to other people. They gave me their addresses and they said we want 'this only', in our country and they wanted to start out centres and I am told they have already started centres. ( Mataji clears her throat.) The all-pervading power requires a medium, to trigger something and when these people were created as Realized souls, as they got connected with this ' all-pervading power', I think they had triggered it. They had that confidence within them, that courage in them because once we are realized, you become very courageous and you want to establish truth at any cost.
+И.: — Итак, возвращаясь к тому, о чём мы говорили ранее, это, как мы говорили ранее, о приведении человеческого тела в равновесие? Можем ли мы тогда сказать, что Горбачёв приводит в равновесие весь восточный блок?
 
-Interviewer: Shri Mataji the west, shall we call it the western nations have had Sahaja yoga available to them to investigate to see for themselves how it worked for 20 years and yet it has been very slow to grow. Why does it( pause) happen this way, do you think?
+Шри Матаджи: — Да. Да, они зашли слишком далеко в одну сторону, и он пытается вернуть их в центр.
 
-Shri Mataji: Here people have so many diverse ideas about things. They are very self-opinionated also about things and the so-called man-made religions all over have also conditioned them so much. They have other conditioning of different norms that they have as far as the social life is concerned and the physical appearances rather on a very superficial level. So the people have not grown, I think so, much deeper. Of course, I must say there are so many seekers in the west. So many seekers and they were lost because as soon as people knew that there's a market for them, the false gurus jumped out and they started preaching about false things just to earn money. They were all money-oriented people, Now there's another psychology with the western mind that you must buy everything, If something is not for sale it is useless and this psychology has really deterred them to come to Sahaja yoga very much because this is a living process and you can't pay for it and they could not bear it. I mean, actually, I must say, one of the very important television gentlemen told me that Anglo Saxon brain cannot accept anything which cannot be sold. I did not know what to tell him. I just said,' who has made this brain? His god has made. Then why is it so?'
+И.: — Вы упомянули, что в прошлом году ездили на конференцию восточного блока. И я полагаю, что Вы дали Реализацию многим влиятельным людям? Как Вы считаете, верно ли то, что это способствовало свержению репрессивного коммунизма?
 
-Interviewers, you have an expectation really that the thing we call Sahaja Yoga will change the word?
+Шри Матаджи: — Это была йога, семинар по йоге, и Я ожидала, что все они будут там. И на удивление Я разговаривала с ними почти 30—35 минут, а потом Я дала им Реализацию — и все они получили Её. Это были представители всех этих стран восточного блока. Когда они получили Её, то были так удивлены. Потом они вышли со Мной из зала — и никого не осталось в зале, чтобы слушать других людей. Они дали Мне свои адреса и сказали что нам нужно «только это» в нашей стране. И они хотели основать центры, и Мне сказали, что они уже открыли центры [Сахаджа Йоги]. Всепроникающей силе требуется посредник для «спускового механизма». И когда эти люди были созданы как реализованные души, поскольку они соединились с этой Всепроникающей силой, Я думаю, что они спровоцировали это.
 
-Shri Mataji: Of course. IT changes human beings and they manifest a change outside. And we create a new race. That is what they are talking about. If you want they talk of a new age, of a new race but I don't know what is their imagination about it. They talk about all this thing, 'Aquarius.' And Aquarius is the kundalini. She is placed in the Aquarius, and they talk about the Aquarius age. All kinds of things they are talking, writing, thinking about, but when it comes to actualization I think they think I am very too simple for them. Not complicated. Sahaja yoga is too simple. It should be very complicated. And all their own ideas about seeking, that they must suffer, they-- must go to the Himalayas, they must starve themselves and then only they can get realization.
+В них была такая уверенность, эта храбрость в них, потому что, как только мы [получаем] Реализацию вы становитесь очень смелыми и вы хотите установить истину любой ценой.
 
-Interviewer: Shri Mataji, is the evolution of the planet closely related to the evolution of humanity?
+И.: — Шри Матаджи, Запад (назовём ли мы его западными нациями) имел возможность изучить Сахаджа Йогу, [чтобы] увидеть своими глазами, как она работает в течение 20 лет — и всё же рост был очень медленным. Как Вы думаете, почему так получилось?
 
-Shri Mataji: Of course. IT is very much related, and the planet, our planet is moving in a spiral way. All the planets are moving in a spiral way and they are creating all possible things for the use of human beings so that they can save time. Save time for getting their ascent and for meditative growth, but people don't understand that part.
+Шри Матаджи: — Здесь у людей так много разных представлений о вещах. Они также очень самоуверенны в том, что касается вещей, и так называемый человек создал повсюду религии, [которые] также ограничили их слишком сильно условностями. У них имеется и другая условность: другие установленные нормы, которые у них есть, что касается социальной жизни и внешнего вида, то [всё это] довольно на очень поверхностном уровне. Так что люди, так Я думаю, не стали намного глубже (на Западе). Конечно, Я должна сказать, что на Западе есть много искателей, так много искателей. И они были потеряны, потому что, как только люди узнали, что для них есть рынок [псевдодуховности], [тогда] выскочили ложные гуру, и они начали проповедовать о ложных вещах, лишь бы заработать. Все они были ориентированы на деньги. Теперь есть другая [особенность] психологии, [связанная] с западным умом, что вы можете купить всё. Если что-то не продаётся, то оно бесполезно. И эта психология очень сильно удерживает их от прихода в Сахаджа Йогу, потому что это живой процесс и за него нельзя заплатить — и они не могли этого вынести, Я имею в виду на самом деле, Я должна сказать, один из очень важных людей на телевидении сказал Мне, что англосаксонский мозг не может принять ничего, что нельзя продать. Я не знала, что ему ответить... Я просто сказала: — Кто создал этот мозг?
 
-Interviewer: There are theories around now, the suggestion so we say, that the planet could be a living organism, a complete entity?
+Это Бог сделал. Тогда почему это так?
 
-Shri Mataji: Of course it is. One of the examples of this one, I can give you, is that if you sleep under a coconut tree, a coconut never falls on anything that is living, whether it is a human being or snake. Never falls.
+И.: — У вас действительно есть ожидание, что то, что мы называем Сахаджа Йогой, изменит мир?
 
-Interviewer: That is so? Is it all around the world, coconuts never fall on living creatures?
+Шри Матаджи: — Конечно! Это меняет людей и они проявляют изменение снаружи. И мы создаём новую расу — вот о чём они говорят. Если хотите, они говорят о новом веке, о новой расе, но Я не знаю, что они думают об этом. Они говорят обо всём этом ... Водолее. А Водолей (кумбха) — это Кундалини. Она находится в Водолее, и они говорят об Эпохе Водолея. О чём угодно они говорят, пишут, думают об этом. Но когда дело доходит до осуществления [своих теорий], [тогда] Я полагаю, они думают, что Я слишком проста для них, ничего сложного. А Сахаджа Йога слишком проста. Это должно быть очень сложно, и все их собственные идеи о поиске: о том, что они должны страдать, что они должны отправиться в Гималаи, что они должны голодать — и только тогда они могут получить Реализацию.
 
-Shri Mataji: So they-- understand. We call it as Shri Pala because we think that it is like a brain which understands.
+И.: — Шри Матаджи, тесно ли связана эволюция планеты с эволюцией человечества?
 
-Interviewer: Well, if this world is a living organism, what is the brain? What drives this being, this organism? What has made it evolve the way it has?
+Шри Матаджи: — Конечно. Это очень сильно связано, и планета, наша планета, движется по спирали. Все планеты движутся по спирали, и они создают всевозможные вещи для использования их людьми, чтобы они могли сэкономить время, сохранить время для их восхождения и для медитативного роста. Но люди не понимают этого момента.
 
-Shri Mataji: There is this subtle power which is all-pervading of God's love which manifests all the things like living work, all nourishment all balancing. It's so balanced if the Pacific was slightly deeper than this, there would have been a problem. If Himalaya said one and a half times more than what it is, there would have been problems. So everything is so balanced in nature, and the Almighty has created only one world. Only human beings have divided and moved like criminals with our passports in our hands.
+И.: — Сейчас существуют теории, предположения, скажем так, о том, что планета может быть живым организмом, целостной сущностью?
 
-Interviewer: Shri Mataji, What we have been talking about, many people would regard as a belief or a theory? How does one know the difference between truth and a belief?
+Шри Матаджи: — Конечно, так оно и есть. Один из примеров этого Я могу привести вам: [он] в том, что, если вы спите под кокосовой пальмой, кокос никогда не упадёт на что-либо живое, будь то человек или змея — никогда не падает.
 
-Shri Mataji: First of all anything for which you have to pay money is not the truth. You can't pay for the truth. If you cancel out that, I think 99.9% of all the falsehood will drop out. But truth to be really actualized you have to have Self-realization. Then you feel on your fingertips vibratory awareness. A new awareness.A new dimension awareness by which you can make out what is truth and what is false. That is an absolute truth that you realize at that stage.
+И.: — Это так? Неужели во всём мире кокосы никогда не падают на живые существа? Шри Матаджи: — Они так понимают. Мы называем это «шрипхала», потому что думаем, что этот [кокос] похож на мозг, который понимает (осознаёт).
 
-Interviewer: So one must have one's realization really to be able, to tell the truth?
+И.: — Хорошо, а если этот мир — живой организм, то что такое мозг? Что движет этим существом, этим организмом? Что заставило его развиваться таким образом?
 
-Shri Mataji: Even to follow anyone, one must have a Realization.
+Шри Матаджи: — Существует эта тонкая сила Всепроникающей Любви Бога, которая проявляет все вещи, [такие] как живая работа, всё питание, всю сбалансированность. Это настолько сбалансировано, что, если бы Тихий океан был немного глубже, чем это [установлено Богом], возникли бы проблемы. Если бы Гималаи были в полтора раза больше, чем они есть, были бы проблемы. В природе всё так сбалансировано, и Всевышний создал только один мир. Только мы, люди, разделились и передвигаемся [по миру], как преступники, с нашими паспортами в руках.
 
-Interviewer: Shri Mataji thank you very much.
+И.: — Шри Матаджи, то о чём мы говорили, многие люди могут рассматривать как веру или теорию. Как узнать разницу между истиной и верой?
 
-Shri Mataji: Thank you.
+Шри Матаджи: — Во-первых, всё, за что приходится платить деньги, не является истиной. Вы не можете заплатить за истину. Если вы это исключите, Я думаю, что 99,9% всех наших ложных представлений исчезнут. Но чтобы истина была
 
-Interviewer: I was reading an article just now where you were talking about inner peace and out peace? This seems to be something that attracts the attention of the people in a stressful age.
+действительно реализована, у вас должна быть Самореализация. Тогда вы почувствуете Вибрационное осознание на кончиках пальцев. Новое осознание, осознание нового измерения, благодаря которому можно понять, что истина, а что ложь. Это абсолютная истина, которую вы осознаёте на этом этапе.
 
-Shri Mataji: By realizing what happens, as a result, you become a person endowed with thoughtless awareness. That means you see everything. You witness everything and whenever you want to say or to think you can see about it but you don't react. There is no reaction. So you are empowered to see it in such a manner that there need not be any thought, just the whole creation acts on you. It's a very subtle thing. It is to be experienced and that is the point where we realize that we are the source of peace, and that is how our inner peace is established. Now people have many foundations of peace, I have known all of them. They have no peace within themselves Some people have got peace award. They are horribly hot-tempered people but they have got peace awards, Noble prizes. The peace has to be first of all found inside and then it manifests outside.
+И.: — Значит, человек должен действительно иметь свою Реализацию, чтобы осознать, что есть истина?
 
-Interviewer: Shri Mataji, another question we wanted to ask you is because of this rather useful way, you use your hands to describe the movement of the chakra when they part. I wonder if you could just explain why, when illness occurs it occurs because of the movement away of one centre from another?
+Шри Матаджи: — Даже для того чтобы следовать за кем-либо, нужно иметь Реализацию.
 
-Shri Mataji: All right. What I try to show them is that this is the left side, this is the right side. This is the left sympathetic nervous system and this is the right sympathetic nervous system and really the spinal cord looks like this, and inside here is the spinal cord which has the centres in it. The subtle centres. Now when you start using the energy of these centre, say too much on the right and it starts moving more towards the right and there is a constriction and the power becomes less because you are exhausting, going more towards the right side. Suddenly something happens and from the left, if there is a jerk, the connection is completely broken. This is on its own. It starts working on its own. That is what you say that this has become malignant. It has no relationship with the whole to have proportionate growth so if the nose starts developing it can cover your eyes and cover your mouth. This is how cancer is setting or any other disease. So many psychosomatic diseases are nothing but somatic from the right side and when the psyche gives in, then it becomes a psychosomatic disease. There are so many diseases which are more psychosomatic than physical and these we call them as incurable, can be easily cured by kundalini awakening because when kundalini passes through this, she just integrates them. For example, she's going like this then she goes into this integrates them. Just like she strings them like pearls and so they have brought around and also she nourishes that centre. That is how people get cured, automatically by themselves by their own power.
+И.: — Шри Матаджи, большое спасибо.
 
-Interviewer: Shri Mataji do you want to speak to the ABC in Adelaide this afternoon or would you rather that I rang them and said you are too busy?
+Шри Матаджи: — Спасибо. У русских тоже всё прекрасно. У русских всё прекрасно.
 
-Shri Mataji: Yes, abrupt also a very flippant type of thing that is not going to help.
+И.: — Шри Матаджи, я только что читал статью, где Вы говорили о внутреннем покое и внешнем умиротворении.
 
-Interviewer: They wanted to talk to you about false gurus and more. They have been having little trouble this morning you know. We have banners to put up announcing your program tonight and we had them on various bridges and we kept chasing them away and we finally found a place where they were allowed to stay?
+Кажется, это то, что привлекает внимание людей в нашу эпоху стресса.
 
-Shri Mataji: They must be busy with the election. They want to reserve places for election.
+Шри Матаджи: — Благодаря Реализации, что же происходит в результате: вы становитесь человеком, наделённым безмысленным осознанием. Это означает, что вы видите всё, вы свидетель всего. И всякий раз, когда вы хотите что-то сказать или подумать, вы можете видеть это, но вы не реагируете. Нет никакой реакции. Так вы уполномочены видеть это таким образом, что не нужно думать, — просто всё творение действует на вас. Это очень тонкая вещь. Это нужно испытать. И именно в этот момент мы осознаём, что являемся источником мира, и именно так устанавливается наш внутренний покой. Сейчас у людей много организаций «мира», — Я знаю обо всех них. У них нет мира, внутреннего покоя. Некоторые люди получили награды мира, и они ужасно вспыльчивые люди, но у них есть награды за мир, Нобелевские премии. Мир (покой) должен быть, прежде всего, найден внутри, а затем он проявляется снаружи.
 
-Interviewer: If it was not for the election then they would be able to go anywhere.If it was anything else they are not so happy.
+И.: — Шри Матаджи, мы хотели задать Вам ещё один вопрос, именно из-за этого довольно полезного способа, [в котором] Вы используете Свои руки, чтобы описать движение чакр, когда они расходятся. Интересно, не могли бы Вы объяснить, почему, когда возникает болезнь, она возникает из-за смещения одного центра от другого?
 
-Shri Mataji: That shows their attention.
+Шри Матаджи: — Хорошо. Что Я пытаюсь им показать, так это то, что это — левая сторона, а это — правая сторона. Это — левая симпатическая нервная система, а это — правая симпатическая нервная система. И действительно спинной мозг выглядит вот так, а внутри этого спинного мозга, в котором есть центры, тонкие центры [чакры]. Теперь когда вы начинаете использовать энергию этих центров, скажем, [забираете её] слишком много справа, и он [центр] начинает двигаться больше вправо — и происходит сужение, и силы становится меньше, потому что вы истощаетесь, [так как центр] идёт больше к правой стороне. Вдруг что-то случается, и слева и если будет рывок, то связь полностью обрывается. Это само по себе, оно начинает работать само по себе. Как вы говорите, это то, что стало злокачественным.
 
-*(about William Blake)
+Оно не имеет отношения к целому, чтобы пропорционально расти. Поэтому если нос начинает [чрезмерно] развиваться,
+
+[то] он может закрыть ваши глаза и покрыть ваш рот. Всё! Так зарождается рак или любая другая болезнь. Так много психосоматических заболеваний, не что иное, как соматика с правой стороны, а когда психика поддаётся, тогда это становится психосоматическим заболеванием. Есть так много болезней, которые являются больше психосоматическими, чем физическими, и их мы называем неизлечимыми, [но их] можно легко вылечить пробуждением Кундалини, потому что, когда Кундалини проходит через это, Она просто объединяет их. Например, Она идёт так, тогда Она идёт в это и объединяет их, так же, как Она нанизывает их, как жемчуг [в ожерелье], и поэтому они приносят пользу, а также Она питает этот центр. Так люди излечиваются автоматически, сами по себе, своей силой.
+
+И.: — Шри Матаджи, хотите ли Вы сегодня днём поговорить с Эй-Би-Си (местная радиостанция) в Аделаиде? Или Вы предпочли бы, чтобы я позвонил им и сказал, что Вы слишком заняты?
+
+Шри Матаджи: — Да, резкость — это тоже очень легкомысленный тип поведения, который не поможет.
+
+И.: — Они сказали, что хотят поговорить с Вами о ложных гуру и многом другом. Этим утром у них были небольшие проблемы. Вы знаете, нам нужно развесить баннеры, объявляющие о Вашей сегодняшней программе, и мы разместили их на разных мостах, и мы продолжали перемещать их, мы наконец нашли место, где им разрешили остаться.
+
+Шри Матаджи: — Они, должно быть, заняты выборами. Они хотят зарезервировать места для выборов.
+
+И.: — Если бы не выборы, то они могли бы поехать куда угодно. Если бы это было что-то другое, они не были бы так счастливы.
+
+Шри Матаджи: — Это показывает их внимание.
