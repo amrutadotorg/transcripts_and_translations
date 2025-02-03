@@ -1,9 +1,5 @@
 [
     [
-        6907,
-        "transcript-english-in-progress"
-    ],
-    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -8084,6 +8080,10 @@
         "transcript-english-draft"
     ],
     [
+        6907,
+        "transcript-english-draft"
+    ],
+    [
         6912,
         "transcript-english-draft"
     ],
@@ -13716,6 +13716,10 @@
         "transcript-hindi-needed-hi"
     ],
     [
+        19279,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         19657,
         "transcript-hindi-in-progress-hi"
     ],
@@ -15197,6 +15201,10 @@
     ],
     [
         7338,
+        "translation-hindi-to-english-draft"
+    ],
+    [
+        7343,
         "translation-hindi-to-english-draft"
     ],
     [
