@@ -2700,6 +2700,10 @@
         "transcript-english-reviewed"
     ],
     [
+        7199,
+        "transcript-english-reviewed"
+    ],
+    [
         7213,
         "transcript-english-reviewed"
     ],
@@ -3985,6 +3989,10 @@
     ],
     [
         80061,
+        "transcript-english-needed"
+    ],
+    [
+        80076,
         "transcript-english-needed"
     ],
     [
@@ -8457,10 +8465,6 @@
     ],
     [
         7195,
-        "transcript-english-draft"
-    ],
-    [
-        7199,
         "transcript-english-draft"
     ],
     [
@@ -15204,10 +15208,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        7343,
-        "translation-hindi-to-english-draft"
-    ],
-    [
         7396,
         "translation-hindi-to-english-draft"
     ],
@@ -15857,6 +15857,10 @@
     ],
     [
         7306,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
+        7343,
         "translation-hindi-to-english-in-progress"
     ],
     [
