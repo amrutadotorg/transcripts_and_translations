@@ -6420,6 +6420,10 @@
         "transcript-english-verified"
     ],
     [
+        80085,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -17012,6 +17016,10 @@
         "translation-marathi-to-english-in-progress"
     ],
     [
+        10923,
+        "translation-marathi-to-english-in-progress"
+    ],
+    [
         10997,
         "translation-marathi-to-english-in-progress"
     ],
@@ -20098,5 +20106,9 @@
     [
         80045,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80084,
+        "translation-hindi-to-english-draft-ru"
     ]
 ]
