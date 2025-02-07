@@ -1,6 +1,6 @@
 25 января 1973
 Public Program
-Bordi (Индия) | Translation (Hindi to English) – Draft
+Bordi (Индия)
 
 Самомассаж пальцев рук*
 
