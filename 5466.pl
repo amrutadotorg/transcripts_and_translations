@@ -2,88 +2,41 @@
 Talk to Sahaja Yogis
 New Delhi (India)
 Talk Language: English | Transcript (English) - VERIFIED
-The Spirit 01 Jan 1977.
 
-[The Spirit is] the most precious thing that we have within ourselves. The preciousness of your Spirit is immeasurable and that’s why it is called as a thing of eternal value – because it is infinite. You cannot measure [it].
+Najcenniejsza rzecz jaką mamy wewnątrz siebie ... bezcenność waszego ducha ... jest niemierzalna i dlatego jest określana jako coś o wiecznej wartości.
 
-Now God, The Almighty, we say is Sat-Chit-Anand.
+Ponieważ on jest nieskończony, nie możecie go zmierzyć. O Bogu Wszechmogącym mówimy, że jest Sat-Chit-Anand. ‘Sat’ znaczy ‘prawda’. Prawda, którą rozumiemy wg ludzkiej terminologii, jest względna..., ale ‘sat’, o której wam mówię, jest absolutem, skąd wszystkie relacje się zaczynają.
 
-‘Sat’ means ‘the Truth’. The truth we understand in human terminology is relative.
+Podam przykład, jak to zrozumieć. Można powiedzieć, że Ziemia dostarcza wszystkie rodzaje wód, oceany i rzeki. Ale Ziemia otacza je wszystkie. Gdyby nie było Matki Ziemi, nie istniałby żaden z nich. Więc, możemy powiedzieć, że Matka Ziemia jest wsparciem wszystkiego, co się na Niej znajduje. Ona otacza nas... Ona istnieje w atomach.... Ona istnieje w wielkich górach, ponieważ elementy są częścią tej Ziemi.
 
-But the Sat I am telling you [about] is the Absolute from where all the relations start. Example I will tell you how to understand [it]: This Earth has got oceans and rivers and all kinds of waters, you can say. But Earth is enveloping all of them. If the Mother Earth was not there, there could not have been any of these existing.
+W ten sam sposób, Bóg Wszechmogący, Jego część ‘sat’ – ‘prawda’ jest wsparciem wszystkich rzeczy, które są stworzone, lub nie są stworzone. Postarajcie się zrozumieć inny przykład. Jak ‘sat’, jest purushą, jest Bogiem, który nie bierze rzeczywistego udziału w samym tworzeniu, ale jest katalizatorem. Przykład może być taki, że Ja wykonuję całą tę pracę, Ja tworzę wszystko, ale Ja mam światło w ręku. Bez światła nic nie mogę zrobić. Światło jest wsparciem Mojej pracy. Ale światło, w żaden sposób nie bierze udziału w tym co robię. W ten sam sposób, Bóg Wszechmogący jest tylko świadkiem, jak światło.
 
-So we can say that Mother Earth is the support of all the things that exist on her. She is enveloping us. In the atoms she exists. In the big mountains she exists. Because the elements are part of that Earth.
+Poza tym Jego inną jakością jest Jego ‘chitt’, jest Jego uwaga. Kiedy ona jest wzbudzona, w sanskrycie jest na to bardzo dobre słowo, ‘sphuran’, pulsuje, kiedy ona pulsuje, kiedy pulsuje Jego uwaga, wtedy On zaczyna tworzenie poprzez swoją uwagę.
 
-In the same way God Almighty, the Sat part of Him, the Truth, is the support of all the things that are created or not created.
+I On ma trzecią jakość, którą nazywamy ‘anand’. Anand jest uczuciem radości, którą On otrzymuje dzięki swojemu postrzeganiu, przez swoje stworzenie. Radością, którą On otrzymuje. Wszystkie te trzy rzeczy, kiedy są w punkcie zero, gdzie się spotykają, wtedy stają się zasadą Brahmy. Gdzie te rzeczy są jednością. Gdzie jest całkowita cisza. Nic nie powstaje, nic się nie manifestuje, tylko radość jest jednością z uwagą, ponieważ uwaga osiągnęła radość i wtopiła się w nią, a radość stała się jednością z prawdą. Ta kombinacja trzech jakości rozdziela się i tworzy trzy rodzaje zjawisk. Anand, radość w Bogu, porusza się [wraz] z Jego tworzeniem i z prawdą.
 
-Another example you try to understand: how the Sat is the Purusha, is the God, who does not take actual part in The Creation itself but is a catalyst. The example can be like this: that I am doing all the work, I am creating everything but I have a light in my hand. Without the light I cannot do anything. Light is the support of my work.
+Podczas gdy radość zaczyna poruszać się wraz z tworzeniem, tworzenie najpierw zaczyna opadać od poziomu prawdy, do ‘asat’ nieprawdy. Od ‘sat’ do nieprawdy, do mayi, do iluzji. I w tym czasie zaczyna się Tworzenie po prawej stronie. Zaczynają działać siły twórcze i w tym czasie, kiedy w wyniku tworzenia pojawia się radość, która jest po lewej stronie, jest emocjonalną stroną Boga, ona także zaczyna stawać się mniej subtelna. Tworzenie staje się mniej subtelne i radość z tego również staje się mniej subtelna, i ‘sat’ światło Boga, także staje się mniej subtelne, aż osiągną stan, gdzie jest, możemy powiedzieć, całkowita ciemność tamoguny, pełne stworzenie kreatywności i istnieje uśpienie całkowitej granicy radości. Jaśniej?
 
-But the light does not in any way do anything about what I do. In the same way God Almighty is just a witness like a light.
+Teraz zrozumiecie Mahakali, Mahalakshmi, Mahasaraswati. Dlatego Chrystus powiedział: "Ja jestem światłem". Ponieważ On reprezentuje ‘sat,’ światło Boga, a światło Boga staje się absolutnie przyziemne, uśpione, martwe, kiedy osiąga siódmy stan stworzenia. Wszystkie te rzeczy idą coraz głębiej, stając się coraz mniej subtelne.
 
-But His another quality is His Chitta, is His attention. When it is excited – in Sanskrit there is a very good word sphurana, is ‘pulsates’ – when it pulsates, His attention when it pulsates, then through His attention He starts creating. 
+To jest jedna część paraboli. Teraz inna część paraboli rozpoczyna się, kiedy wstępujecie z powrotem do Boga Wszechmogącego. Ta przyziemność, teraz stopniowo staje się coraz wyższa, coraz subtelniejsza i coraz delikatniejsza. W tym udoskonalaniu odkrywacie ostatecznie, że światło działa na rzecz procesu ewolucyjnego. Stopniowo, mniej subtelne części zostają oświecone. Odkrywacie, że zwierzę niższego rzędu, jest nie tak bardzo oświecone jak zwierzę wyższego rzędu. Stopniowo, nawet radość staje się subtelniejsza i możemy ją nazwać piękną. Ludzkie radości są piękniejsze niż te u zwierząt. Więc radości także zmieniają swój przejaw, w tym sensie, że zaczynacie widzieć coraz więcej, i pojawia się szerszy zakres radości... Na przykład, dla psa, piękno nie ma znaczenia, przyzwoitość nie ma znaczenia. Więc kiedy osiągacie taki etap, kiedy rozwijacie się do poziomu istoty ludzkiej, jesteście ‘sat’, które jest świadomością do tego stopnia, rozwijacie także swoją radość i do tego stopnia, rozwijacie także swoje twórcze działanie.
 
-And He has [a] third quality which we call as Anand. Anand is the feeling of joy that He gets by His perception by His creation. The joy that He gets.
+Teraz widzicie, jak twórczość Boga przechodzi do rąk człowieka... kiedy to się odwraca. Jak radość Boga przechodzi do rąk człowieka i jak Jego światło idzie do serca człowieka jako Duch. To jest piękne. I na tym etapie, kiedy staliście się człowiekiem, ludzie mówią, że istoty ludzkie mają duszę. Nie żeby inni nie mieli, ale światło zaczyna płonąć tylko w człowieku. Z powodu tego światła, mówimy o religii, mówimy o Bogu,
 
-All these three things, when they are at a zero point where they meet, then they become the Principle of Brahma; where these three things are one, where there is complete silence. Nothing is created, nothing is manifested, but the joy is one with the attention. Because attention has reached and merged into joy and joy has become one with the Truth. This combination of three qualities separates and creates three types of phenomena.
+i mówimy o czymś wiecznym. Ale bycie istotami ludzkimi to stan bardzo niestały. Ponieważ na tym etapie musicie skoczyć tylko trochę w tę stronę, kiedy zaczynacie skakać z tej strony na tamtą stronę, to skakanie nie jest możliwe, dopóki świadomość nie osiągnie tego stanu, w którym stajecie się niezależni i w tej niezależności odnajdujecie swoją własną chwałę. To jest ten stan, ponieważ chwała nie może być wasza, dopóki nie jesteście niezależni. Tak długo jak jesteście niewolnikami albo jesteście w więzach czegoś przyziemnego, jak możecie się cieszyć tą wieczną radością, która jest w was.
 
-The Anand, the joy, in God, moves with His creation and with the Truth. When the joy starts moving with the creation, the creation starts moving down, from first the Truth stage to asat [untruth], from Sat to untruth, to maya, to illusion. 
+Więc to wy musicie bardziej się odsłonić na tę radość, przez szersze otwieranie siebie stajecie się subtelniejsi i czystsi, i wtedy czujecie tę radość. Kiedy już znacie tę kwestię, to po otrzymaniu Samorelizacji, do czasu, gdy te trzy rzeczy zaczynają się łączyć, nie możecie czuć, że ustabilizowaliście się.
 
-And [at] that time the creation starts on the right-hand side (7.31). The creative forces start working out, and when it starts working out, the joy in it, which is on the left-hand side – is the emotional side of God – also starts becoming grosser and grosser. The Creation starts becoming grosser and the joy in it also starts becoming grosser, and the Sat, the light of God, also starts becoming grosser and grosser and grosser till they reach a stage where there is, we can say, a complete darkness of Tamo guna, the complete creation [may Shri Mataji mean ‘cessation’] of the creativity. And the complete sleeping of the joy element exists.
+Radość w was musi być odczuwana przez waszą świadomość, w innym przypadku nie możecie tego czuć. Przypuśćmy, że nie macie oczu, jak możecie widzieć. Gdybyście nie byli świadomi tego, że Mnie widzicie, jak byście Mnie czuli. Jeśli nie jesteście świadomi odczuwania Mnie, jak możecie Mnie widzieć. Jeśli nie jesteście świadomi słyszenia Mnie, jak możecie Mnie rozumieć. A kiedy już ta świadomość przychodzi do was, wtedy tylko radość się budzi w was, ponieważ tylko poprzez te subtelne odczucie świadomości, możecie zaabsorbować radość. Tak jak teraz poczułeś to, kiedy powiedziałeś: "Och, cóż to jest za piękna rzecz", czułeś się bardzo szczęśliwy. Czujecie radość z tego tworzenia, która jest obecna.
 
-Clearer? Do you understand now Mahakali, Mahalakshmi, Mahasaraswati?
+A człowiek jest szczytem stworzenia. Ale tylko szczytowa część jest tak mała, naprawdę jest mała, jest bardzo mała odległość, ona przechodzi w mgnieniu oka, a rzecz tylko w tym, że one trzy muszą być połączone. I dlatego odkrywam, że nawet gdy otrzymacie Realizację, nie czujecie ciszy, ponieważ nie staliście się światłem. Nie czujecie radości, ponieważ nie staliście się ‘anand’ [radością], która jest waszą lewą stroną.
 
-That’s why Christ has said, “I am the light.” Because He represents the Sat, the light of God. And light of God becomes absolutely gross, dormant, dead, when it reaches the seventh stage of creation.
+W każdej rzeczy jest radość. Jako ludzie zaczynacie widzieć radości we wzorach. Widzicie korę drzewa, odkrywacie ją, widzicie wzory, nazywacie to [niesłyszalne] nazywacie to szorstkością i gładkością, jej harmonią, zaczynacie dostrzegać w tej materii radość z jej stworzenia. Ale teraz, po Realizacji, zaczynacie czuć radość stworzenia, tym szczytem stworzenia jest istota ludzka. I właśnie dlatego Sahaja yogin musi zdać sobie sprawę, że jeśli próbuje być, powiedzmy, przyjacielski albo zainteresowany czy zaangażowany wobec osoby, która jest na niższym poziomie, nigdy nie będzie czerpać radości z obecności tej osoby. Jedyne, co może zrobić, to wznieść tę osobę wyżej na swój własny poziom i sprawić, by poczuła tę samą radość, którą wy otrzymujecie.
 
-All these things go deeper and deeper becoming grosser and grosser. That’s one part of the parabola.
+Przypuśćmy, że człowiek, który jest artystą, żeni się z niewidomą dziewczyną, jaki jest z tego pożytek?
 
-Now, the another part of the parabola starts when you are ascending back to God Almighty.
+Ona nie może cieszyć się sztuką stworzoną przez tego mężczyznę. W ten sam sposób, jeśli was obchodzi wasza rodzina, wasi krewni, wasi przyjaciele, pierwszą i najważniejszą rzeczą, najwspanialszą rzeczą jaką możecie dać, to dać im Samorealizację, czyli radość swojego Ducha. Otwórzcie ich na radość ich Ducha, który jest najcenniejszy. [niesłyszalne] I to jest powód, dla którego ludzie wahają się i oni... oni kombinują i czują się zaniepokojeni. Oni... oni tracą swoją radość bardzo łatwo, w małej rzeczy, która przeminęła, skończone. To jest jak ocean przed wami i Ja tam jestem, i chcę żebyście wszyscy do niego weszli i cieszyli się. To wszystko jest dla was, całość została stworzona dla waszej radości. Musicie stać się coraz subtelniejsi.
 
-That grossness now gradually starts becoming higher and higher, subtler and subtler and finer and finer. In that refinement you find, ultimately, [that] the light works for the evolutionary process.
+Marnujecie tutaj bardzo dużo czasu na bardzo przyziemne sprawy, zauważyliście to.
 
-Gradually the grosser parts start becoming enlightened. You find the lower animal is not that much enlightened as the higher animal is. Gradually even the joy starts becoming subtler and we can call it ‘beautiful’. Human joys are much more beautiful than that of animals.
-
-So the joys also start changing their manifestation, in the sense [that] you start seeing more and more and wider range of joy comes into your hand.
-
-For example: to a dog, beauty has no meaning, decency has no meaning. So at a stage when you reach, when you are a human being, to that extent you develop your Sat, which is awareness. To that extent you also develop your joy. And to that extent you also develop your creative action.
-
-Now you see how the creativity of God passes into the hand of man when He turns around; how the joy of God passes into the hand of man and how His light comes into the heart of man as Spirit. It’s beautiful!
-
-And at that stage when you have become a human being – people say human beings have a soul. Not that others do not have but the light starts burning in a human being only. Because of that light we talk of religion, we talk of God and we talk of eternal things.
-
-But it’s a very precarious stage that is to be human beings because at this stage you have to jump only a little bit that side while you start jumping this side and that side.
-
-Because this jumping is not possible unless and until the awareness reaches that stage where you become independent and in that independence you find your own glory.
-
-This is the position, because your glory cannot be yours unless and until you are independent.
-
-As long as you are slaves or under bondage of something that is gross, how can you enjoy that eternal joy that is within you?
-
-So it is for you to expose yourself more to that joy by opening out yourself [your Self] more and more, getting subtler and cleaner, so that you feel that joy.
-
-Once you know this point that, after getting Self-realisation, unless and until these three things start merging together, you cannot feel that you have established yourself.
-
-The joy within you must be felt through your awareness, otherwise you cannot feel it.
-
-Supposing you had no eyes, how can you see me? If you were not aware to see me, how will you feel me? If you are not aware to feel me, how can you see me?
-
-If you are not aware to hear me, how can you understand me?
-
-And, once that awareness comes in and comes to you, then only the joy awakens within you because only through these subtle feelings of awareness you are going to absorb the joy.
-
-As just now you felt Him and you said, “Oh, what a beautiful thing it is!” You felt very happy.
-
-You are feeling the joy of this Creation that is there. And man is the summit of Creation. But only the crowning part is such a little thing, very little it is. It’s a very little distance. It crosses in no time. But only thing is that these three things have to be combined. And that’s why I find that, even you get Realisation, you do not feel the silence because you have not become the light. You did not feel the joy because you have not become the Anand. That is the left side of yourself [your Self].
-
-In everything there is joy. As human beings, only, you start seeing joys in the patterns.
-
-You see a tree bark, you open it out, you see the patterns – you call it the veneer, you call it the roughness and the smoothness – and the harmony of it! You start seeing in the matter the joy of its creation.
-
-But now, after realisation, you start feeling the joy of Creation.
-
-The summit of Creation is the human being. And that’s why, for a Sahaja Yogi, he must realise that if he tries to be say friendly or interested or involved in a person who is at a lower level, he can never get joy from that person.
-
-Only thing, what he can do, is to raise that person higher to his own level and make him also feel the same joy as you are getting.
-
-Supposing a man who is an artist marries a blind girl – what’s the use? She cannot enjoy the art created by this man. In the same way, if you are interested say in your family people, in your relations, in your friends, the first thing and the highest and the greatest thing that you can give is to give them Self-realisation – means the joy of your Spirit. Expose them to the joy of their Spirit which is the most precious thing.
-
-And this is the reason why people flicker and they fiddle and they feel uneasy. They lose their joy very easily at a small thing that has passed and finished. It’s like the Ocean before you and I am there and I want you all to come into it and enjoy. It is all for you, the whole thing was created for your enjoyment. You have to become subtler and subtler. We are wasting lot of time here on very gross things. You have noticed it.
+H.H. Shri Mataji Nirmala Devi

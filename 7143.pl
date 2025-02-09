@@ -2,596 +2,119 @@
 We Should Support Each Other
 Mowa do Sahadźa Joginów
 The Peninsula Hong Kong, Hong Kong (China)
-All right. Put your hands towards Me.
 
-First of all, I must say I am very happy to see so many Sahaja Yogis in Hong Kong.
+Skierujcie ręce w Moją stronę. Przede wszystkim muszę powiedzieć, Bardzo się cieszę, widząc tak wielu Sahaja Joginów w Hongkongu. Jak wiecie, Hongkong jest bardzo materialistycznym miejscem, a ludzie są zbyt zajęci, ale problemy wynikają z tej zajętości. Całe to zabiegane życie stwarza wiele problemów. Więc jestem pewna, że po ostatnim programie przybędzie ich więcej, na pewno będzie ich dużo, a wasze ręce będą miały co robić. Więc chciałam tylko powiedzieć, co naprawdę powinniśmy zrobić, aby osiągnąć maksymalne rezultaty. Przede wszystkim, musimy ustabilizować to, że jesteśmy Sahaja Yoginami, jesteśmy bardzo poważnymi ludźmi i mamy między sobą ogromny szacunek oraz miłość. Zatem, nie powinno się nigdy popierać osoby z zewnątrz, która nie jest jeszcze Sahaja Yoginem lub która będzie Sahaja Yoginem, ale przez cały czas należy wspierać się nawzajem. Nie kłóćcie się między sobą. Niewykluczone, że jedna osoba może się mylić. Ale jest ważne, że powinniśmy się wspierać, a przede wszystkim wspierać lidera.
 
-Hong Kong is a very materialistic place, as you know, and people are too busy, but the problems come out of that busyness. All this busy life creates lots of problems.
+Cokolwiek powie lider, musimy go słuchać. To bardzo ważne, w Sahaja Yodze jesteśmy organizacją kolektywną, która też jest organizacją żyjącą. Jeśli ktoś nie jest kolektywny, zostaje wyrzucony z Sahaja Jogi. Nie jesteśmy zbyt zadowoleni z takich ludzi. Musicie więc dołożyć wszelkich starań, aby zobaczyć, że wszyscy jesteście jako kolektyw jednością i mówicie to samo. To jest bardzo ważne, aby to wiedzieć. Poza tym są wśród was osoby, które prawdopodobnie mogą nie być tak dobre, w sprawdzaniu na wibracjach. Jeśli tak, zapytajcie swojego lidera. Ale między sobą nigdy nie powinniście się kłócić, ponieważ wiemy, że Sahaja Yoga daje wam absolutną prawdę. Więc inni nie powinni wątpić w wasze zachowanie, że "ci ludzie nic nie wiedzą".
 
-So I am sure there will be more coming from the last program, definitely, lots of them, and your hands will be full. So I just wanted to tell you what should we really do to achieve the maximum results.
+W porządku? Drugą rzeczą w Sahaja Yodze jest to, że jest to moc miłości współczucia, boskiej miłości. Musicie zrozumieć, czym jest boska miłość. To jest miłość, która jest jak sok, jak zawsze powtarzam, który płynie w drzewie. Daje pożywienie korzeniom, następnie wszystkim częściom drzewa, a następnie odparowuje lub opada. Przypuśćmy, że utknie w jednym kwiatku, co się stanie? Drzewo umrze, a ostatecznie umrze również kwiat. Zatem nasza miłość jest nieograniczoną miłością. Na przykład, kochamy nasze dzieci, w porządku, kochamy także inne dzieci. Między wszystkimi jest czysta miłość.
 
-First of all, we have to establish that we are Sahaja Yogis, we are very sober people and we have among ourselves tremendous respect and love. So one should never support an outsider who is not yet a Sahaja Yogi or who will be a Sahaja Yogi but support each other, all the time.
+Teraz trzeba zrozumieć czystą miłość, że nie jest ona przywiązana do nikogo, ale jednocześnie jest to czysta miłość. Jeśli nie macie czystej miłości w swoim sercu, ponieważ kultura jest inna, ludzie zaczynają przyciągać ich uwagę i psuć ich uwagę. Tak wiele osób pytało Mnie: "Matko, co robić?" Powiedziałam: "Trzymaj oczy tylko do wysokości trzech stóp, więc zobaczysz piękne rzeczy, tak jak patrzysz na kwiaty, zobaczysz dzieci i nic strasznego". Więc cokolwiek zakłóca waszą uwagę, starajcie się tego unikać. Najlepiej jest skoncentrować się na swojej medytacji. Do porannej medytacji możecie po prostu skierować prawą rękę do zdjęcia, a lewą do góry. Następnie skierujcie lewą rękę do zdjęcia... - w ten sposób. Następnie lewa ręka w kierunku fotografii, a prawa ręka na Matkę Ziemię. Rano lepiej jest usiąść na ziemi.
 
-Do not argue among yourselves. Maybe one person may be wrong, I am not saying. But [it] is important that we should support each other, and above all, we must support the leader.
+Wtedy, jeśli stan świadomośc wolny od myśli zostanie ustabilizowany poprzez patrzenie na fotografię wtedy zamknijcie oczy. Niektórzy powiedzą: "Matko, moje serce nie jest otwarte". Więc możecie powiedzieć, patrząc na Matkę: "Matko, proszę, przyjdź do mojego serca". Czyjaś Sahasrara nie jest otwarta. Wtedy musicie powiedzieć: "Matko, proszę przyjdź do mojej głowy". Mając obie ręce [skierowane ku zdjęciu]. Dowolna część waszego ciała jeżeli według was nie jest w porządku to ja jestem zawsze dostępna, więc możecie poprosić. Przede wszystkim, wasza medytacja powinna być dobra. Jeśli jesteście dobrymi Sahaja Yoginami, tylko wtedy inni wam uwierzą. Ale jeśli nie jesteście dobrymi Sahaja Yoginami to nikt wam nie uwierzy.
 
-Whatever the leader says, we must listen to him. It’s very important, in Sahaja Yoga we are a collective organisation, that too a living organisation.
+Dla tak wielu ludzi, których widziałam, jestem kimś poza ich zasięgiem. Ale Sahaja Yogini są tymi, którzy naprawdę sprawiają, że oni czują, że "to są nadzwyczajni ludzie". Potem, tak jak powiedziałam, w zajmowaniu się nimi musi być absolutnie czysta uwaga. Po pierwsze, mężczyźni powinni mieć do czynienia tylko z mężczyznami, a kobiety tylko z kobietami i nie powinno być żadnych komplikacji. Ponieważ to jest największa skaza, jaką może mieć Sahaja Yoga, że "oni jedynie są tacy jak zwykli ludzie". więc musicie uważać na siebie. Przed snem, jeśli macie czas, musicie moczyć stopy. Jeśli któregoś dnia tego nie zrobicie, nie zadręczajcie się za to, ale lepiej, żebyście moczyli stopy. A w moczeniu stóp musicie przede wszystkim wiedzieć, jaką macie osobowość. Przeważnie jesteście prawostronni, przeważnie.
 
-If somebody is not collective, he is thrown out of Sahaja Yoga. We are not very happy with such people. So you must try to put all effort to see that you are all collectively one and say the same thing.
+Więc połóżcie swoją prawą rękę w kierunku fotografii, obie stopy zanurzone w wodzie z odrobiną soli i lewą rękę w ten sposób. Ale niektórzy są lewostronni, inni bardzo. Oni nie powinni dotykać wody. Istnieją dwa rodzaje oczyszczania. Szczególnie osoby lewostronne nie powinny moczyć nóg, nie powinny używać lodu. To wszystko jest dla prawostronnych. Po wykonaniu oczyszczania na prawą lub lewą stronę skierujcie obie ręce do zdjęcia i sami się przekonajcie jak to się wypracowuje, bez wody, bez świecy. Ale chciałabym jeszcze raz powiedzieć, że prawostronni ludzie nie powinni jeżeli to możliwe nie powinni używać świec. Ta elektryczność jest w porządku, możecie jej użyć. Oni nie powinni siedzieć na słońcu, powinni kłaść lód na wątrobę; można tu też położyć lód , gdy jest tu bardzo gorąco, bardzo dobrze jest tu położyć lód.
 
-This is very important to know.
+Również na cukrzycę można tu położyć lód. W Sahaja Yodze leczenie jest bardzo proste: dla prawostronnych bardzo proste, i dla lewostronnych. Osoby prawostronne mają problemy takie jak wątroba, cukrzyca, nowotwory krwi, krzepnięcie naczyń w nerkach, co oznacza, że nie mogą oddawać moczu, zaparcia, a także astma, zawały serca – masywne, również paraliż po prawej stronie; jest tego dużo. A osoby lewostronne odczuwają ból po lewej stronie; mogą również zachorować na wszelkiego rodzaju choroby psychosomatyczne, które nie są uleczalne, takie jak rak, zapalenie rdzenia kręgowego, choroba Parkinsona, wszelkiego rodzaju choroby. Ale jeśli wykonujecie swoją medytację codziennie, raz na jakiś czas możecie ją przegapić, to nie ma znaczenia, od razu poczujecie, że jesteście całkowicie wyleczeni i jesteście zdrowi. To jedyny sposób, w jaki możecie wzrastać. I spróbujcie doprowadzić do punktu, w którym jesteście w świadomości wolnej od myśli. Najlepszym sposobem na świadomość bez myśli jest powiedzenie mantry Nirvichara. To bardzo ważne. A po drugie, wciąż wybaczajcie: "Wybaczam wszystkim, wybaczam wszystkim", więc myśli się zatrzymają.
 
-Also there are people who may not be so good among you who can judge the vibrations, possibly. If so, you should ask your leader.
+To jest czas, kiedy jesteście w teraźniejszości. To jest czas, w którym naprawdę będziecie wzrastać duchowo. Mamy ludzi w Indiach i za granicą, którzy stali się tak potężnymi Sahaja Yoginami, że poprzez samą tylko modlitwę mogą osiągnąć wiele rzeczy. Nie jesteśmy tu po to, by kogokolwiek niszczyć ani torturować: jesteśmy tu po to, aby wszystkim pomagać, aby byli radośni. Więc nie należy mówić głośno, ostro - nigdy. Okazujcie swoje współczucie. A teraz przypuśćmy, że ktoś ma jakiś problem: nie powinniśmy nagle mówić: "Jesteś bucem" - nie. "Jaki masz problem? Och, jesteś lewostronny". "Jaki masz problem?
 
-But among yourselves you should never argue, because we know that Sahaja Yoga gives you absolute truth. So others should not doubt by your behaviour that these people don’t know anything. All right?
+Jesteś prawostronny". "W porządku, można to wyleczyć. Też taki byłem". Jeśli tak powiecie, to nie poczują się zranieni. "Byłem taki jak ty. Będziesz wyleczony. Nie martw się". Musimy więc zrozumieć, że należy bardzo uważać na to, jakich słów używamy i jakie rzeczy robimy w ich obecności. Niektórzy ludzie są niezwykle szybcy, będą chodzić szybko i będą wykonywać takie zabawne gesty, że ludzie będą przerażeni. Nie powinniście tacy być.
 
-Then second thing of Sahaja Yoga is that it is the power of love, it’s of compassion, of divine love. Must understand what is divine love is. That is the love that is the, like the sap, as I always say, that runs in the tree. It gives nourishment to the roots, then to all parts of the tree, and then it evaporates or it goes down.
+To, co musicie zrobić, to zobaczyć, że cokolwiek robicie, rozmawiacie z nimi to róbcie to w delikatny sposób; to bardzo ważne, abyście byli dla nich delikatni i mili. Dostaniecie też ludzi, którzy będą mieli buce, którzy będą mieli guru w swoich głowach, tak jak poprzedniego dnia ta pani kłóciła się ze Mną. Spróbujcie ich przekonać i powiedzcie, czy - wiesz teraz, kto jest prawdziwy, a kto nierzeczywisty. Jeśli nie wiesz, zapytaj swojego lidera. Lepiej powiedzcie im, że: "To ci nie pomoże, to ci nie pomogło, więc musisz się poddać". I jestem pewna, że się zgodzą. Jestem pewna, że się zgodzą. Ponieważ tak jak niedawno ta pani Sindhi kłóciła się ze Mną. Powiedziała: "Dostajemy wibhuti [święty popiół] we wszystkich ośrodkach". Powiedziałem: "To wszystko jest bhuta vidya, preta vidya i smashana vidya [negatywna wiedza].
 
-Supposing it gets stuck into one flower, what will happen that the tree will die, and ultimately the flower will also die.
+Co otrzymujesz z wibhuti, co jest w niej takiego wspaniałego?" Wszystkie te rzeczy mają wyłącznie was wprowadzić w błąd. Więc powiedzcie im stanowczo, ale z pełną uwagą, że staracie się im pomóc. Jeśli chcecie im pomóc to w żaden sposób nie możecie sobie pozwolić na bycie nieuprzejmymi. Czasami trudno jest poradzić sobie z niektórymi ludźmi, którzy zaczynają się kłócić, więc najlepiej się nie kłócić. Powiedzcie im: "Nie możemy was przekonać poprzez kłótnię. To nie jest w umyśle, to jest poza umysłem". Do pewnego momentu wszystko jest w porządku, potem powinniście się poddać: "W porządku, przepraszam". Po drugie, wasze relacje w rodzinie powinny być dobre. Nie możecie mieć Sahaja Yogi, jeśli nie ma porozumienia między tobą, twoją żoną, twoimi dziećmi.
 
-So our love is not limited love. Like, we love our children, all right, [we] love other children also. Everybody is absolutely in full pure love with each other.
+Musimy pokazać, że rodzina jest bardzo ważna w Sahaja Yodze, niezwykle ważna, a dzieci są jeszcze ważniejsze. Zobaczcie, jak wiele teraz zrobiliśmy dla dzieci, mamy szkoły, to, tamto, to bardzo duża odpowiedzialność. Zatem musimy zrozumieć, na czym polega odpowiedzialność. Nie powinniśmy rozpieszczać dzieci. Powinniśmy doceniać każde dobro, które robią, wszelkie miłe rzeczy, które robią. Ale jeśli zrobią coś złego, musicie im powiedzieć: "Jesteście Sahaja Yoginami i nie możecie się tak zachowywać". Musicie im powiedzieć, cokolwiek by to nie było, musicie im powiedzieć. Jeśli dzieci są bardzo chude, to zrozumcie, że mają problem z wątrobą. Więc wątroba powinna być leczona. A następnym razem, kiedy przyjedziecie do Indii kupimy wam wszystkie leki na wątrobę.
 
-Now, one must understand the pure love, that it is not attached to anyone, but at the same time, it is pure love. If you don’t have pure love in your heart because the culture is different, people start moving their attention and spoiling their attention.
+Jeśli dzieci są bardzo grube, to są lewostronne. Spróbujcie sprowadzić je do centrum za pomocą oczyszczania trzema świecami. Ale przede wszystkim sprawdźcie, jaka gdzie jest problem. Czasami rozwijają puszyste tłuszcze, to jest w porządku, z dziećmi będzie wszystko w porządku. Zatem należy dbać o ich zdrowie. Następnie dbajcie o ich zachowanie. Powiedzcie im, jak mają się zachowywać. Zobaczyłam, że na Zachodzie dzieci nie są właściwie wychowane, ponieważ rodzice je zaniedbują, nie będę winić dzieci. Rodzice je zaniedbują. Powinniście być kochający, życzliwi - jednocześnie musicie im powiedzieć, czym jest dyscyplina.
 
-So, so many people asked Me: “Mother, what to do?” I said: “Keep your eyes only up to three feet, so you will see beautiful things, like you will see flowers, you will see children, and nothing horrible”. So, whatever makes your attention disturbed, try to avoid. Best is to concentrate on your meditation.
+To jest bardzo ważne. Następnie obserwujcie ich: jacy są, co robią. Oczywiście mamy szkołę, ale tam jest ograniczona liczba miejsc. Cokolwiek to jest, dostosują się w możliwie największym stopniu. Nawet wtedy, zakładając, że macie jakiś problem, bezwzględnie w to nie wchodźcie. Możesz zapytać swojego lidera lub napisać do Mnie i poinformować Mnie. Wśród was ktoś może stać się bardzo egoistyczny, może założyć własną organizację: "Ja to zrobię". Powiedzcie mu: "Wynoś się", a będzie cierpieć. Nie musicie się martwić. – dobrze, wynoś się.
 
-For meditation in the morning you can just put your right hand towards the photograph and the left hand up there.
+Każdy, kto jest samowolny, nie wypracuje tego. Przypuśćmy, że jeden palec zaczyna działać bardziej niż reszta – oznacza to, że jest rak, to jest nowotwór złośliwy. Więc nie możemy mieć nowotworu złośliwego. Wszyscy powinniście współpracować ze zrozumieniem, zarówno wobec innych, jak i między sobą. Bardzo ważne jest, aby to zrozumieć. Sahaja Yoga sprawdziła się w tak wielu krajach. W tak wielki sposób w niektórych, w tak mały sposób w niektórych. Gdziekolwiek by to nie było, Sahaja yogini muszą być wyjątkowi. Nawet dzieci muszą być wyjątkowe. Jeżeli macie inny problem, o którym nie chcecie rozmawiać powiedzmy ze swoim liderem, wtedy możecie bezpośrednio do Mnie napisać, to nie zaszkodzi.
 
-Then put your left hand towards the photograph... - like this.
+Jeśli odpiszę to dobrze,a jeśli nie, to też dobrze, to się wypracuje. Ale uwaga nie powinna być cały czas skupiona na sobie: ja, moja rodzina, moje dzieci, mój dom, moja praca - nie. Gdy tylko wasza uwaga jest skierowana na innych ludzi, działa to szybciej, to bardzo wam pomoże. Ale gdy uwaga jest na sobie: "Jestem chory. Mam ten problem, tamten problem", nic z tego nie będzie. Jesteście teraz na etapie, w którym całkowicie możecie rozwiązać wszystkie problemy, ale przede wszystkim: jeśli wasza uwaga jest skupiona na sobie, to się nie uda. Uwaga powinna być skierowana na innych. A jeśli uwaga ma być na wnętrzu, to po prostu dowiedzcie się: "Co jest ze mną nie tak?" Ale niektórzy w tym również posuwają się za daleko. "Matko, moja Agnya jest zablokowana.
 
-Then left hand towards the photograph and right hand on the Mother Earth.
+Matko, moje Vishuddhi, to ma blokade", to nic, to nonsens. Może łapiecie od innych ludzi, możliwe. Jest już kilka dobrych książek w Sahaja Yodze przetłumaczonych na chiński, na szczęście, a także Moje taśmy mogą być przetłumaczone. Ale musicie zachować Mój głos, jak wam powiedziałam , ponieważ to jest mantra, nieprawdaż? I możecie mieć napisy, tak byłoby lepiej, gdyby ktoś mógł je zrobić. To bardzo dobry pomysł, abyście mieli napisy, naprawdę. Specjalnie dla Rosjan, gdyby mogli to zrobić w Rosji. Jeśli macie jakieś pytania, to teraz możecie Mi je zadać. Zatem powinno być zawsze tak, że jeśli jesteście Chińczykami nie powinniście zajmować się tylko Chińczykami. Wszyscy powinni przyjść do kolektywu.
 
-[It] is better to sit on the ground, in the morning.
+Przypuśćmy, że jesteście Hindusami, powinniście nie tylko zajmować się Hindusami, ale oni powinni przychodzić do kolektywu. Bo dopóki nie przyjdą do kolektywu to nie będą wiedzieć, w czym jest problem. Nie chodzi o to, że możecie zorganizować osobno grupę, osobno inną grupę. To musi być jedna grupa. Oczywiście możecie mieć dwa aśramy lub trzy aśramy, bez różnicy. Macie inne pytania? Jogin: Czy leczenie kamforą jest dobre na lewą stronę? Jogin: Kamfora... Jogin 2: Leczenie kamforą. Jogin 2: Leczenie kamforą. Pyta, czy leczenie kamforą jest dobre na lewą stronę.
 
-Then, if thoughtless awareness is established by looking at the photograph, close your eyes.
+Jogin 2: Kamfora. Shri Matadźi: Nie, nie, nie, nie. Nie ma potrzeby. Kamfora, tylko raz na jakiś czas. Nie używaj kamfory. Ale zrobiłeś wszystkie pomieszane rzeczy, widzisz, po prostu zastosuj leczenie lewostronne, wtedy wszystko będzie dobrze. Po prostu pomieszałeś. I nie możesz zarabiać pieniędzy w imię Boga lub Boskiej pracy, to jedno. Nie da się tak zorganizować. Nie, nigdy.
 
-Now, some people say: “Mother, my heart is not open”. All right. So you can say, looking at the Mother: “Mother, please, come in my heart.” Somebody’s Sahasrara is not open. Then you have to say: “Mother, please come in my head”. With both the hands.
+Ponieważ kiedy zaczniesz to dostawać, wejdą w ciebie lewostronne buce. Jogin: Nigdy tego nie robiłem. Shri Matadźi: To jest część Sahaja Yogi. Nie możemy. Również jeśli macie zdjęcia jakiegoś guru i tak dalej, lepiej umieścić je w morzu. Ponieważ to trzymanie jakiejkolwiek fotografii, każda książka o nich stwarza problemy. Więc skrupulatnie odszukajcie je i wrzućcie do morza. [Wideo przerywa się na chwilę] Nie, nie, nie, nie, nie. Nie nie nie nie. Nie rób tego wszystkiego.
 
-Whatever portion you think in the body is not doing well, I am always available, so you can ask.
+Będą pracować z fotografią. Jeśli chcesz komuś pomóc, widzisz, kilku innych ludzi, którzy przyszli, których chcesz wznieść, nie dotykaj ich. Sam zrób bandan i daj im bandhan. Umieść ich przed zdjęciem i po prostu podnieś Kundalini. Ale bądź ostrożny. Ponieważ jesteś wciąż, widzisz, nie jest to coś czego nie możesz złapać, możesz złapać blokady. Więc między sobą również nie powinniście tego robić. Nie dotykajcie. Jeśli ktoś powie: "Mam ten problem", w porządku, posadź go przed zdjęciem, zrób sobie bandan, poproś go, żeby zrobił bandan, ty też zrób bandan i wtedy podnieś Kundalini. Bądź ostrożny.
 
-Your meditation should be good, first and foremost. If you are good Sahaja Yogis, then only others will believe you. But if you are not good Sahaja Yogis, nobody will believe you.
+Nawet jeśli jest teraz ktoś, kto przyszedł i jest chorym człowiekiem. Więc możecie dać mu zdjęcie, to jest w porządku, jeśli chce to zrobić. Ale ktoś z jego rodziny jest chętny by przyjść do Sahaja Yogi, kto jest zdrową osobą, powinien ją przyprowadzić. Inaczej zachorujecie. [a] Na początku będziecie mieli wielu chorych, w tysiącach. Nie martwcie się o chorobę. Lub jeśli są chorzy, powiedzcie im, aby wzięli zdjęcie i to wypracowali, czy są lewostronni czy prawostronni. Wtedy wiara rośnie, poprawiają się. Ale nie dotykajcie chorych. Nie, nie, wcale.
 
-For so many people I have seen I am something beyond them. But Sahaja Yogis are the ones which really make them feel that “these are extraordinary people”.
+Nie jesteśmy tu po to, by leczyć chorych, ale jesteśmy tu po to, by dawać realizację. Niech Bóg was błogosławi. Jogin: Shri Matadźi, jeśli chodzi o technikę, jeśli jest problem z jednej strony, jest nierównowaga i jeśli lewa strona jest słaba lub blokuje się, czy podnosi się Kundalini z tej strony i daje się bandan z drugiej? Prawidłowo? Shri Matadźi: Tak. Przypuśćmy, że jesteś prawostronny, to musisz obniżyć prawą stronę, pamiętaj, że tak jest znacznie lepiej. Więc wtedy podnosisz lewą stronę i kładziesz prawą stronę w dół, jeśli masz problem z prawą stroną. Teraz, jeśli masz problem z lewą stroną, musisz obniżyć lewą stronę. W ten sposób łatwiej jest zapamiętać. Więc nie ma zamieszania.
 
-Then, after that, dealing with them as I said, has to be absolutely with pure attention.
+Ale wiązanie Kundalini powinno nastąpić po przejściu od lewej do prawej lub od prawej do lewej, w którąkolwiek stronę. Następnie podnieś Kundalini, zwiąż i weź bandhan, to najlepszy sposób. Proszę was wszystkich o zrobienie sobie zdjęcia i wykonanie albumu, zapisanie poniżej: jak się nazywacie, data urodzenia i Samorealizacji. Prześlijcie to do Mnie. Ponieważ widuję ich czasami, rozumiecie. Abym was lepiej poznała i skupiła na was Moją uwagę. Zarówno dzieci, jak i starsze osoby. Więc porozmawiam z tobą i porozmawiam z nim, ponieważ macie małe personalne problemy, obydwoje. A co z wami? Jesteście pogodzeni?
 
-To begin with, the men should deal only with men and the women should deal only with women and no complications should come out.
+Zamierzam go skarcić, wiecie, dać mu po nosie, temu Wernerowi Jest tutaj by praktykować Sahaja Yogę, a nie skłucać rodzinę. Postąpił bardzo niewłaściwie. Dam mu odczuć swój gniew. Jest starym Sahaja Yoginem, powinien był się zachowywać. Tak nie jest – nigdy nie przeszkadzać rodzinie. Masz takie słodkie, piękne dzieci. Muszę ci powiedzieć, nigdy nie będę cię wspierać w bzdurach. A twój mąż jest bardzo dobrym człowiekiem. Jeśli będziesz się dobrze zachowywać, on wróci do Sahaja Yogi, jestem pewna. Nie możesz być Sahaja Yoginem, jeśli nie masz dharmy, "tarczy", jak nazwał ją Budda.
 
-Because that is the biggest blemish Sahaja Yoga can have, that they are just like ordinary people. So, you have to be careful about yourself.
+To nazywamy twoim charakterem. Wasza moralność jest najważniejsza w Sahaja Yodze. Jeśli nie jesteście moralni, to Sahaja Yoga nie ma żadnego znaczenia. To, czego potrzebujemy, to dzisiaj moralność. To się dzieje wszędzie, nonsens. Musimy ją wchłonąć do siebie i wytworzyć także dla innych. Cały świat jest pełen niemoralnych ludzi. Jest bardzo, bardzo niewielu, którzy reprezentują moralność. To największa ozdoba, jaką mamy. W porządku?
 
-Before sleeping, if you have time, you must do footsoaking. If one day you do not do it, don’t torture yourself for that, but it’s better that you do footsoaking. And in footsoaking first of all you must know what sort of a personality you have. Mostly you are right-sided, mostly.
+Nie zabłądź. To ci nigdy nie pomoże. To było bardzo złe z twojej strony, a także dla twoich dzieci. Teraz wróć i zachowuj się właściwie, w przeciwnym razie nie możesz być w Sahaja Yodze. Jeśli coś byłoby nie tak, to wtedy to zrozumiałe. W Sahaja Yodze mamy rozwód. Pozwalamy ludziom na rozwód. Ale powinien być ku temu istotny powód. "Albo sub thik hai" [Czy wszystko w porządku?] Co mamy zrobić?
 
-So put [your] right hand towards the photograph, both the feet in the water with little salt and left hand like that.
+To wystarczy? W porządku. Jogin: Dziękuję, Matko. Shri Mataji: Niech Bóg wam wszystkim błogosławi. Przepraszam, że musieliście przyjść tak późno w nocy. Jogin: Matko, mamy dla Ciebie mały prezent. Shri Mataji: Ależ tak wiele zrobiliście! Oh. Gdzie jest ta rzecz dla dzieci, prezenty? Mój Boże, mały prezent, prawda?
 
-But some are left-sided, some are definitely very much. They should not touch water. Two types of treatments are there.
+Jogin: Jest bardzo mały. Shri Mataji: W porządku, co to jest? To ma być małe, prawda? Z jakiej strony? Jogin: To tylko duże pudełko! Shri Mataji: Och, rozumiem. Ach. Więc teraz. Co to jest? Zobaczmy.
 
-Especially left-sided people should not soak, should not use ice.
+Mój Boże. To jest ten do czego? Jogini: Konfucjusz. Jogini: Konfucjusz. Guru. Shri Matadźi: Konfucjusz! On też ma... widzisz? Jogin: kij. Shri Matadźi: Świetnie, taki drogi. Świetny.
 
-This is all right-sided treatment.
+To jest zostało bardzo dobrze wykonane. Czy jest napisane tutaj Konfucjusz? Jogin: Tak. Shri Mataji: W porządku. Dziękuję wam bardzo. Ale kiedy przyjedziesz, będziesz musiał go przywieźć do Indii. Jogin: "Tak, Shri Matadźi". Ale tak droga rzecz, nie powinniście byli jej kupować. Jogin: Bardzo dobra cena, Matko. Shri Mataji: Naprawdę?
 
-After doing your right-sided or left-sided treatment, I would say you put both your hands towards the photograph and see for yourself how it is working out, without water, without candle.
+Co to jest? Jogin: To jest Lao-Zi. Jogin: Lao-Tse. Jogin: Lao-Tse. Shri Mataji: To jest Lao-Tse? Ładny! W porządku. Muszę powiedzieć, że jest wspaniały, Lao-Tse. Piękny. Siedzi w chmurach.
 
-But I would again say that right-sided people should not use candle as far as possible. This electricity is all right, you can use it.
+Piękny. Jogini: "Wow". Dobrze. To jest Jego wahana. To jest ten, to... Jogin: Pojazd. Shri Mataji: Vahana, wiesz, ta vahana to... Yogin: Pojazd, prawda? Pojazd? Shri Mataji: Środek transportu. Jogin: Przekaz, tak. Jogin: Przekaz, tak.
 
-They should not sit in the sun, they should put ice on their liver; also they can put ice here [left temple] when it is very hot, it’s very good to put ice here. Also for diabetes you can put the ice here [Shri Mataji puts her hand on Nabhi].
+Shri Mataji: Pięknie zrobione. Dziękuję bardzo, dziękuję. Czy jest tutaj napisane? Jogin: To jest Lao-Tse. Shri Mataji: Bardzo dziękuję. To pokazuje, że mały chłopiec kontroluje. [Niejasne] To co? [Niesłyszalne komentarze – Yogini: "To jest płótno i tak,...". Jogin: "Bogini". Yogini: "Bogini...".
 
-In Sahaja Yoga the treatment is very simple: for right-sided people very simple, and for left-sided.
+Shri Mataji: Kto to jest? Jogin: Jest boginią. Jogin: Bogini. Bogini. Ona jest z Chin. Shri Mataji: Bogini. Jogini i jogiki: z Chin. Tak. Bogini. Shri Matadźi: Saraswati.
 
-Right-sided people get problems like liver, diabetes, blood cancer, kidney coagulation, that means they can’t pass urine, constipation, also asthma, heart attack – massive, and also paralysis, on the right side; so many.
+[Niewyraźne komentarze] Shri Mataji: Ach, wygląda jak Saraswati. Bardzo indyjski jedwab. Jogin: Tak, mieliśmy to zdjęcie, kiedy buddyzm pojawił się po raz pierwszy... Jogin: Mieliśmy taki obraz, kiedy buddyzm po raz pierwszy pojawił się w Chinach. Shri Mataji: Och, rozumiem. Buddyzm nie mówił o kobietach. Piękne, bardzo piękne. Dziękuję bardzo, dziękuję. Piękne. Bardzo dobrze zrobione. Te dwie księgi, które Mi dał, gdzie one są?
 
-Now, the left-sided people get pain all over left side; also can get all kinds of psychosomatic diseases which are not curable, like cancer, myelitis, Parkinson’s, all kinds.
+W porządku. Możesz je zatrzymać – proszę, trzymaj je gdzieś. Co to jest? Joginka: Z Wietnamu. Yogini: Tak, to z Wietnamu. Jogin: Z Wietnamu. Shri Mataji: Z Wietnamu? Jogin: Wietnam. Yogini: Tak, z kolektywu Malaysia. Shri Mataji: Jesteś z Wietnamu?
 
-But if you do your meditation every day, once in a while you may miss it, it doesn’t matter, you will immediately feel that you are completely cured and you keep good health.
+Jogin: Tak. Shri Mataji: Naprawdę? Jogin: Tak. Shri Matadźi: Jednym z miejsc, w których nie byłam, jest Wietnam. Ale w Korei byłam – w Korei Południowej byłam. [Jogini (niewyraźnie słyszalne): "Lakier i szycie"] Och, robią to w Wietnamie? Jogin: Tak. Jogin: To piękna rzecz dzięki szyciu. Shri Mataji: Jest piękna. Czy obraz?
 
-That’s the only way you can grow. And try to bring the point where you are thoughtlessly aware.
+Jogini: To lakier. Prace lakiernicze. Shri Mataji: Prace lakiernicze. Dziękuję wam bardzo. Tak piękna. Tak duża praca z lakieru, jakiej nigdy nie widziałam. Musi być bardzo droga. Yogini: Mamy to całkiem w dobrej cenie. Shri Matadźi: Bardzo piękna. Dziękuję wam bardzo.
 
-The best way to be thoughtless is to say the mantra of Nirvichara. That’s very important. And secondly, to go on for forgiving: “I forgive everyone, I forgive everyone” so the thoughts will stop. That is the time when you are in the present. That is the time really you will grow in spirituality.
+Chcesz wziąć? Zbyt blisko. [Jogin: "To możemy wziąć później."] Potrzymam to. Bardzo ładny. Och dziękuje. Wszystko to musi być zabrane, kiedy przyjedziecie do Ganapatipule. Jogin: Właściwie to chciałbym, żeby tym razem przyjechał jeden Chińczyk. Będę musiał dostać dużo więcej, żeby unieść te wszystkie rzeczy. Shri Mataji: Widzisz, co mówiłam, dla wszystkich ludzi ze Wschodu jest koncesja, którą oferują i jest znacznie tańsza.
 
-We have people in India and abroad who have become such powerful Sahaja Yogis that just by prayer they can achieve lot of things.
+Myślę, że tego, co można unieść, jest całkiem sporo, ale nie wiem, powiedzieli Mi... nie wiem ile – całkiem sporo [niewyraźnie słyszalne]. Więc myślę, że mogą przyjechać, Chińczycy. Przynajmniej do Ganapatipule. Nie mam pojęcia, zapytam ich. Kto ostatnio wyruszył w tour stąd? Cały tour - była kompletny. Jogin: Cóż, byłem 11 grudnia. [Następuje niewyraźna rozmowa] Shri Mataji: To jest dla dzieci. Ale już. Więc najpierw będziemy mieli chłopców, chodźcie.
 
-We are not here to destroy anyone or to torture anyone: we are here to help everyone, to make them joyous.
+Niech Bóg cię błogosławi. Teraz musisz w tym pisać wiersze, dobrze? Idź dalej. Czy jest jeszcze jakiś chłopiec? Podejdź. Musisz pisać wiersze. Dziękuję ci. Podejdź. Ty też jesteś chłopcem! Kuber, chodź.
 
-So one should not talk loudly, sharply, never. And show your compassion.
+Zrobił dla Mnie rysunek. Teraz dla dziewczyn. Zrobił dzisiaj piękny obraz, widzicie? Czy to ty zrobiłeś? Dziecko: Tak. Shri Mataji: Dziękuję. Dobrze. Dziękuję ci. [Rozmowa na boku z joginem] Gdzie jest ten zestaw do herbaty, który kupiliśmy? Masz to?
 
-Now supposing somebody has some problem: we should not suddenly say: “You are a bhut”, no.
+[Jogin: "Tak. Komplety do herbaty były z tyłu, tak, dwa. Były dwa zestawy do herbaty, Matko. Wziąłem mały. Ten mały".] Niech będzie teraz, wziąłeś tylko jeden, więc będzie problem. W porządku. Kto dostanie? Myślałem o lalkach. W porządku, dla dziewczyn.
 
-“What’s your problem? Oh, you are left-sided”. “What’s your problem? You are right-sided”. “All right, it can be cured. I was like this”.
+Piszesz wiersze. W porządku. Zbliż się. Chcesz - którego chcesz? W porządku? Kto jeszcze? Wszystkie dziewczyny. Ach. Tak dobrze. Bardzo mądrze.
 
-If you say, they won’t feel hurt. “I was like you. You will be cured. Don’t worry”.
+Dziękuję ci. . Tylko... [Do innej dziewczyny] Która? W porządku. [na bok do dziewczyny] Masz jedną? Dziewczyna: Nie, w porządku. Shri Matadźi: Czy wszystko w porządku? Dziewczyna: W porządku. Shri Matadźi: Bardzo słodka. Dziewczyna: Potrzebują tego... Chłopiec: Potrzebują tego bardziej niż ty.
 
-So we have to understand that we have to be extremely careful as to what kind of words we are using, and what kind of things we are doing in their presence.
+Shri Mataji: Ach? Moglibyśmy jej dać ten zestaw do herbaty i wszystko to, który mamy. Czy możesz to znaleźć? Dziewczyna: Dziękuję, Mataji. Shri Mataji: Niech Bóg cię błogosławi. W porządku, chodź, masz szczęście. Całkiem ciężki. Niech Bóg cię błogosławi. Dziewczyna: Bardzo dziękuję. Shri Mataji: Dziękuję, dziękuję.
 
-Some people are extremely fast, they will walk fast and they will be handling things with such a funny gestures that people will be frightened. You should not be such. What you have to do is to see that whatever actions you take, you talk to them or do, do it in a gentle way; that’s very important to be gentle and kind to them.
+Dziewczyna: Dziękuję. Shri Mataji: Rozumiesz, Rishi? Sahaja Yogin: Takie chłodne wibracje. [Niejasne] [Niewyraźna rozmowa] Shri Mataji: W porządku, Soma jest teraz lepsza? Jogin: Tak, poprawiło się... Shri Mataji: Lepiej, tak. Jogin: ...odkąd przybyła do Sahaja Yogi. Dziewczyna: Dziękuję bardzo, Shri Matadźi. Shri Mataji: Następnym razem chciałbym zobaczyć twoje wiersze. W porządku? Kuber, ty też.
 
-Also you’ll get people who will have bhuts, who will have gurus on their heads, like the other day that lady was arguing with Me.
+A także ładne rysunki. Gdzie zniknął rysunek Kubera? To chcę zabrać ze sobą. To orzeźwiające. W porządku. Niech Bóg cię błogosławi. Niech Bóg cię błogosławi. Dbajcie o siebie. I wiedzcie, że jesteście Sahaja Yoginami, to bardzo duża pozycja, jesteście świętymi. Specjalnymi ludźmi.
 
-Try to convince [them] and tell if the - you know now who are real and who are unreal. If you don’t know, ask your leader. You better tell them that, “This is not going to help you, it has not helped you, so you have to give up.” And I’m sure they’ll agree.
+Jesteście fundamentem. W każdym razie mogę pojechać do Chin kontynentalnych i porozmawiać z... Zobaczymy, czy premier mnie posłucha. Być może. Niech Bóg was błogosławi. Jogini: Dziękuję, Matko. Shri Mataji: W porządku. Jogin: Dziękuję Matko, za przybycie do Hongkongu... Shri Matadźi: Wah-wah. Jogin: ...i błogosławi nas wszystkich. Shri Mataji: Po prostu czekaj - po prostu czekaj. [Jogin: "OK".]
 
-I’m very sure they’ll agree. Because the way other day that Sindhi lady, she was arguing with me. And she said that, “We get Vibhutis [ndt. Sacred ash] in all centers.” I said: “This is all bhuta vidya, preta vidya and smashana vidya. What do you get out of the vibhuti that comes in, what is so great?” All these things are just to mislead you.
+Potem pójdę i porozmawiam z nim. Niech Bóg cię błogosławi. Myślę, że ludzie w Korei Północnej są bardzo prości, bardzo prości. Jesteś z Korei Południowej? Jogin: Tak. Shri Mataji: Ach, pojechałam do Korei Południowej, przepraszam, nie do Korei Północnej, Południowej. Ale widzisz, nadal nie mają pojęcia o życiu duchowym. Zupełnie. Więc często tam jesteś? Jogin: Tak, jutro tam pojadę.
 
-So tell them firmly, but with full attention, that you are trying to help them. If you want to help them then you cannot afford to be rude to them, in no way.
+Shri Mataji: Ona idzie do... Ona idzie... Yogini 2: To moja siostra, która tu dzisiaj przyjechała. Shri Matadźi: Więc zacznij mówić o Sahaja Yodze. W porządku? Jogin: Tak. To pierwszy raz... Shri Mataji: Nie, nie, możesz to zrobić. Więc zrób program, czy coś podobnego i przyciągnij tu więcej ludzi z Korei Południowej. I wyślij ich. Możesz zrobić to bardzo dobrze. Za dużo amerykańskich wpływów. [Jogini: "Dobrze".]
 
-It is sometimes difficult to handle some people who start arguing, so best is not to argue.
+To jest problem. A potem zobaczyłam jeden program na który nas zaprosili, miał być bardzo wyjątkowy. A my siedzieliśmy na górze z galerii, widzicie, dla VIP-ów i na dole, a takiego pokazu nigdy nie widziałam. Pokazali bardzo brudny program. Bardzo brudny. Nigdy nie widziałam. A CP nosił okulary i po prostu zamknął oczy, a ja musiałam to powiedzieć: "Zamknij oczy, nie można tego znieść". I obydwoje zwymiotowaliśmy. Opóściliśmy pokaz. Nigdy nigdzie nie widziałam takiego brudu.
 
-Tell them: “By argument we cannot convince you. It is not in the mind, it is beyond the mind.”
+To znaczy, nie wyobrażam sobie, jak zabrali te rzeczy tym głupim Amerykanom. Możesz to wypracować, dobrze? Niech Bóg cię błogosławi. Joginki: Dziękuję, Matko. Shri Mataji: Musimy myśleć o naszych krajach, musimy je ratować. Nie sądzisz? To bardzo ważne, aby ocalić swój kraj. Po prostu daję wam wszystkie moce. Niech Bóg was błogosławi. Najpierw wzrastajcie w Sahaja Yodze, najpierw wzrastajcie w Sahaja Yodze, ci ludzie też mogą czasem przyjść.
 
-Up to a point it’s all right, after that you should give up: “All right, I’m sorry.”
+Możemy wysłać kilka innych osób. Moglibyśmy mieć programy. W porządku? Niech Bóg was błogosławi. Yogini: Czy znowu przyjedziesz do Korei? Yogini: Czy innym razem przyjedziesz do Korei? Jogin: Pyta, czy zamierzasz przyjechać do Korei. Shri Mataji: Jestem teraz tak zajęta, nie wiem. Utrzymujecie mnie w takim zapracowaniu. W porządku, myślę, że się uda.
 
-Then your relationships in your family should be good. You can’t have Sahaja Yoga if there is no understanding between you, your wife, your children.
+Ci ludzie mogą iść i to wypracować. W porządku? Jogin: Dziękuję. Shri Mataji: Niech Bóg was błogosławi. Yogini: Dziękuję. Shri Mataji: Więc czujesz się teraz lepiej jeżeli chodzi o niego? Masz Ekadashę, wiesz? Jogin: Tak, wiem. Shri Mataji: Ekadasha oznacza początek raka, wiesz? Nie walcz już.
 
-We have to show that family is very important in Sahaja Yoga, extremely important, and children are even more important. You see how much we have done for the children now, we have got schools, this, that, is a very big responsibility.
-
-So we must understand what is the responsibility. We should not spoil the children. We should appreciate whatever good they are doing, whatever nice things they are doing.
-
-But if they do anything wrong, you must tell them, “You are Sahaja Yogis and you can’t do like this.” That you have to tell them, whatever it is, you have to tell them.
-
-If the children are very thin, then understand they have got liver. So liver should be treated.
-
-And next time when you come to India we are going to get you all the medicines of liver.
-
-If they are very fat, then they are left-sided.
-
-Try to bring them to the centre with the three candle treatment.
-
-But first of all, test it what is the situation. Sometimes they develop a puffy fat, [that] is all right, but they become all right. So that is how you should look after their health.
-
-Then also look after their behaviour.
-
-Tell them how to behave. As I have seen in the West the children are not properly brought up because the parents neglect them, I won’t blame the children.
-
-Parents neglect them. You should be loving, kind - at the same time you must tell them what is discipline is. It is very important.
-
-Then keep a-watch on them: How they are, what they are doing. Of course, we have a school, but it has limited seats there. Whatever it is, they are going to adjust as many as possible.
-
-Even then supposing you have any problem, don’t go arbitrarily into it. You may ask your leader or you may write to Me and inform Me.
-
-Among you somebody might become very ego-oriented, may start his own organisation, “I will do this.”
-
-Let him say: “You get out” and he will suffer.
-
-You do not have to worry. “All right, you get out.” Anybody who is arbitrary will not work out. Supposing one finger starts acting more than the rest – that means there is cancer, this is malignancy. So we can’t have malignancy.
-
-All of you should work together with understanding, before others as well as among yourselves. It is very important to understand.
-
-Now, Sahaja Yoga has worked out in so many countries. In such a big way in some, in such a small way in some.
-
-But wherever it is, Sahaja Yogis have to be something special. Even the children have to be something special. You have any other problem which you do not want to discuss, with, say, with your leader, then you can write to Me directly, no harm.
-
-Either, if I answer well and good, if I do not answer also well and good, it will work out. But attention should not be all the time about yourself: me, my family, my children, my house, my job, no.
-
-As soon as your attention is on other people, it works out faster, it helps you very much.
-
-But on yourself: “I am sick. I have this problem, that problem”, nothing.
-
-You are now at a stage when you can absolutely solve all the problems, but first and foremost thing: if your attention is on yourself, it won’t work out.
-
-Attention should be on others. And if it has to be on yourself, attention, then just find out: “What’s wrong with me?”
-
-But some people in that also go too far. “Mother, my Agnya is catching. Mother, my this is catching...” [it] is nothing, [it] is nonsense. Maybe you are catching from other people, possible.
-
-There are some nice books, now already in Sahaja Yoga translated in Chinese, luckily, and also My tapes could be translated also.
-
-But you have to keep My voice, as I told you, because that is mantra, isn’t it?
-
-And you can have subtitles, would be better if you could do it. But it’s a very good idea that you can have subtitles, really. Specially for Russians if they could do in Russia.
-
-Now, [if] you have any questions, now you can ask Me.
-
-So it should be always like, if you are Chinese, then you should not only deal with Chinese. They should all come to the collective.
-
-Supposing you are Indians, you should not only deal with the Indians, but they should come to the collective.
-
-Because unless and until they come to the collective [they] will not know what the problem is. It’s not that you can organise separately a group, another group separately. It has to be one group. Of course, you could have two ashrams or three ashrams, makes no difference.
-
-Any other question?
-
-Sahaja Yogi: Is the camphor treatment good for left side?
-
-Shri Mataji: What?
-
-Sahaja Yogi: Camphor ...
-
-Sahaja Yogi 2: Camphor treatment.
-
-Sahaja Yogi 2: The camphor treatment. He is asking if the camphor treatment is good for left side.
-
-Shri Mataji: What?
-
-Sahaja Yogi 2: The camphor.
-
-Shri Mataji: No no no no. No need. Camphor, only once in a while. Don’t do camphor. But you have done all mixed up things, you see, just do left-sided treatment, then you will be all right. Just mixed up.
-
-And you cannot earn money in the name of God or Divine work, that’s one thing. You cannot organise like that. No, never. Because once you start getting it, left-sided bhuts will come into you.
-
-Sahaja Yogi: I’ve never done that.
-
-Shri Mataji: That is the part of Sahaja Yoga. We cannot.
-
-Also if you have any guru’s photographs and all that, it’s better to put them in the sea.
-
-Because this keeping any photograph, any book about them creates problems. So religiously search it out and put them in the sea.
-
-[Video interrupts brieftly]
-
-No no no no no no. No no no no. Don’t do all that. They will work on the photograph. If you want to help somebody, you see, some other people who have come, whom you want to raise, don’t touch them. Take a bandhan yourself and give them a bandhan. Put them before the photograph and you just raise the Kundalini. But be careful. Because you are still, you see, not that sort of thing that you cannot catch, you might catch.
-
-So among yourselves also you should not do that. Don’t touch. If somebody says, “I have this problem”, all right, put him on the photograph, take a bandhan yourself, ask him to take a bandhan, you also give a bandhan and then raise the Kundalini. Be careful.
-
-Even if there is somebody who has come now who is a sick man. So you can give them a photograph, [it] is all right, if they are willing to do it. But somebody in his family is willing to take Sahaja Yoga, who is a healthy person, he should bring. Otherwise don’t get after sick. You will have many sick, in thousands, to begin with. Don’t worry about sick.
-
-Or if they are sick tell them to take the photograph and work it out, if they are left-sided or right-sided. Then the faith grows, they improve. But you don’t touch the sick. No, no, not at all. We are not here to cure the sick, but we are here to give realisation.
-
-May God bless you.
-
-Sahaja Yogi: Shri Mataji, for technique, if you have a problem on one side, you have imbalance and if the left side is weak or caught up, do you raise the Kundalini on this side and give a bandhan to the other side? Correct?
-
-Shri Mataji: Yes. Supposing you are right-sided, then you have to put down the right side, remember that way, it’s much better. So then you raise your left side and put the right side down, if you have right-side problem.
-
-Now, if you have a left-side problem, so you have to put down the left side. It’s easier to remember this way. So there is no confusion.
-
-But tying up of Kundalini should be done after you have moved out left to right or right to left, whichever way. Then raise your Kundalini and tie up and take a bandhan, it’s the best way.
-
-I would request you, all of you, to take a photograph of yours and make an album, write it down below that: what is your name, date of birth and of Self-realisation. Send it over to Me. Because I go on seeing them sometimes, you see. So I’ll know you better and also I’ll have My attention on you. Of the children as well as of bigger people.
-
-So I’ll talk to you and talk to him because you have little individual problems, both of you.
-
-What about you? Are you reconciled? I’m going to get, you see, this one, Werner, to task. He came here to do Sahaja Yoga and not to disturb a family. He’s been very wrong. I’m going to be very angry with him. He is an old Sahaja Yogi, he should have behaved himself.
-
-It’s not - never to disturb a family. You have such sweet beautiful children. I will never support you in nonsense, I must tell you. And your husband is a very good man. If you behave all right he’ll come round to Sahaja Yoga, I’m sure.
-
-You cannot be a Sahaja Yogi if you have no dharma, “shield” as Buddha has called it. It’s what we call as your character.
-
-Your morality is the most important in Sahaja Yoga. If you are not moral, it has no meaning at all. What we need is morality today.
-
-This is happening everywhere, nonsense.
-
-We have to imbibe it in ourselves and we have to generate it for others also.
-
-Whole world is full of immoral people. A very, very few who are standing for morality.
-
-That is the greatest ornament we have.
-
-All right? Don’t go astray. This will never help you.
-
-It was very wrong of you and also for your children. Now go back and behave yourself properly, otherwise you cannot be in Sahaja Yoga.
-
-Ha, if there was something wrong, then it’s all right. We have divorce in Sahaja Yoga. We allow people to divorce. But there should be substantial reason for that.
-
-“Or to sub thik hai” [Is everything all right?] What are we to do? That will do? All right.
-
-Sahaja Yogi: Thank You, Mother.
-
-Shri Mataji: May God Bless you all.
-
-I am sorry you had to come so late in the night [Shri Mataji laughs].
-
-Sahaja Yogi: Mother, we have a small gift for You.
-
-Shri Mataji: Why, you’ve done so much!
-
-Oh. Where is the children’s this thing, presents? My God, a small present, is it?
-
-Sahaja Yogi: It’s very small.
-
-[Shri Mataji laughs, yogis laugh]
-
-Shri Mataji: All right, what is this? This is supposed to be small, is it? From what angle?
-
-Sahaja Yogi: It’s just a big box!
-
-Shri Mataji: Oh, I see. [Laughing] Ah. So now. What is that? Let’s see. My goodness.
-
-[A small red statue] This is the one for what?
-
-Sahaja Yogis: Confucius.
-
-Sahaja Yogis: Confucius. Guru.
-
-Shri Mataji: Confucius! He too has... you see?
-
-[Sahaja Yogis laugh]
-
-Sahaja Yogi: A stick.
-
-Shri Mataji: Fine, such an expensive one.
-
-Great. It’s very well done. Is it written here Confucius?
-
-Sahaja Yogi: Yes.
-
-Shri Mataji: All right. Thank you very much. But you’ll have to bring it to India when you come. [Sahaja Yogi: “Yes, Shri Mataji”.]
-
-But such an expensive thing, you should not have bought it.
-
-Sahaja Yogi: Very good price, Mother.
-
-Shri Mataji: Really? [Laughter] What is this?
-
-Sahaja Yogi: [Offering a statue] This is Lao-Zi.
-
-Sahaja Yogi: Lao-Zi.
-
-Sahaja Yogini: Lao-Tse.
-
-Sahaja Yogi: Lao-Tse.
-
-Shri Mataji: This is Lao-Tse? Nice! [She watches the statue attentively] All right. He’s great I must say, Lao-Tse. Beautiful. He’s sitting on the clouds. Beautiful. [Sahaja Yogini: “Wow”.] Good.
-
-This is His vahana. This is the one, is...
-
-Sahaja Yogi: Vehicle.
-
-Shri Mataji: Vahana, you know, this vahana is ...
-
-Sahaja Yogi: Vehicle, isn’t it? Vehicle?
-
-Shri Mataji: Conveyance.
-
-Sahaja Yogi: Conveyance, yes.
-
-Sahaja Yogini: Conveyance, yes.
-
-Shri Mataji: Beautifully done. Thank you very much, thank you. Is written here?
-
-Sahaja Yogi: This is Lao-Tse.
-
-Shri Mataji: Thank you very much.
-
-This shows the little boy is controlling. (Unclear)
-
-This is what?
-
-[Inaudible comments – Sahaja Yogis and Yoginis show an embroidered cloth. Sahaja Yogini: “This is a cloth, and yes, a...”. Sahaja Yogi: “A Goddess”. Sahaja Yogini: “A Goddess...”.]
-
-Shri Mataji: Who is that?
-
-Sahaja Yogi: Is a Goddess.
-
-Sahaja Yogi: Goddess. Goddess. She is from China.
-
-Shri Mataji: Goddess.
-
-Sahaja Yogis and Yoginis: From China. Yes. A Goddess.
-
-Shri Mataji: Saraswati.
-
-[Indistinct comments]
-
-Shri Mataji: Ah, it looks like Saraswati. Very Indian silk. [Laughter]
-
-Sahaja Yogi: Yes, we had this picture when Buddhism first came...
-
-Sahaja Yogi: We had this kind of picture when Buddhism first came to China.
-
-Shri Mataji: Oh, I see. Buddhism didn’t talk of women. Beautiful, very beautiful. Thank you very much, thank you. Beautiful. Very well done.
-
-These two books he gave Me, where are they? All right. You can keep them – please keep it somewhere.
-
-Now what is that?
-
-Sahaja Yogini: From Vietnam.
-
-Sahaja Yogini: Yes, it’s from Vietnam.
-
-Sahaja Yogi: From Vietnam.
-
-Shri Mataji: From Vietnam?
-
-Sahaja Yogi: Vietnam.
-
-Sahaja Yogini: Yes, from Malaysia collective.
-
-Shri Mataji: You are from Vietnam?
-
-Sahaja Yogini: Yes.
-
-Shri Mataji: Really?
-
-Sahaja Yogini: Yes.
-
-Shri Mataji: One place I’ve not been to is Vietnam. But [to] Korea I’ve been - South Korea I’ve been. [Sahaja Yogini (not clearly audible): “Lacquer and sewing”] Oh, they make these in Vietnam?
-
-Sahaja Yogini: Yes.
-
-Sahaja Yogi: It’s a beautiful thing through sewing. (Unclear)
-
-Shri Mataji: It’s beautiful. Is a painting?
-
-Sahaja Yogis: It’s a lacquer. Lacquer work.
-
-Shri Mataji: Lacquer work. Thank you very much. So beautiful. Such a big lacquer work I’ve never seen. Must be very expensive.
-
-Sahaja Yogini: We got it quite at a good price.
-
-Shri Mataji: Very beautiful. Thank you very much. You want to take? Too close. [Sahaja Yogini wants to take a picture of the work. Sahaja Yogi: “That’s we can take later.”] I’ll hold it. [Shri Mataji takes the frame and holds it for the Yogis to take the picture]. Very beautiful. Oh, thank you. All this has to come when you come to Ganapatipule.
-
-Sahaja Yogi: Actually, I would have loved one Chinese to come this time. I’ll have to get lot more to carry all these things [laughing].
-
-Shri Mataji: See, what I was saying, for all the people from the East, there’s a concession they offer and it’s much cheaper.
-
-I think what you can carry is quite a lot but I don't know, they told Me... I don't know how much – quite a bit [not clearly audible].
-
-So I think they can come, Chinese.
-
-At least Ganapatipule.
-
-I've no idea, I'll ask them. Last time who went on the tour from here? Complete tour - was a complete.
-
-Sahaja Yogi: Well, I was on the 11th of December.
-
-[Indistinct conversation follows]
-
-Shri Mataji: This is for children. [Shri Mataji takes a bag and starts taking out books Herself and hands them to children] Now. So we’ll have boys first, come along.
-
-May God bless you.
-
-Now you have to write poems in this, all right? You move forward. Is there any other boy?
-
-Come along. You must write poems.
-
-Thank you. Come along. You are a boy also! [Laughter] Kuber, come along. [Shri Mataji points at a small boy. The small boy goes to Shri Mataji and takes the book and hands an envelope to Her. Laughter] He has done a painting for Me. [Laughter]
-
-Now for the girls.
-
-[Shri Mataji opens the envelope given by the small boy] He’s done a beautiful painting today, you see? Did you do this one?
-
-Child: Yes.
-
-Shri Mataji: Thank you. Good. Thank you.
-
-[Conversation aside with a yogi] Where is that tea set we had bought? Did you get it? [Sahaja Yogi: “Yes. Tea seats were at the back, yes, two. There were two tea sets, Mother. I took the small one. The small one”.] Let it be now, you took only one so will be a problem. All right.
-
-Who will get? I was thinking of dolls.
-
-All right, for the girls. [Shri Mataji gives a small to book to a girl] Now. You write poems. [Laughter] All right. Come along.
-
-You want - which one you want? All right? Who else? All the girls.
-
-[A girl hands an envelope to Shri Mataji]
-
-Ah. Yes, good. Very wise. Thank you.
-
-Just... [To another girl] Which one? All right.
-
-[Aside to a girl] Did you get one?
-
-Girl: No, it’s ok.
-
-Shri Mataji: Is it all right?
-
-Girl: It’s all right.
-
-Shri Mataji: Very sweet.
-
-Girl: They need it...
-
-Boy: They need it more than you.
-
-Shri Mataji: Ah? [Aside to the Sahaja Yogi] We could give her that tea set, and all that, so we have. Can you find that?
-
-Girl: Thank you, Mataji.
-
-Shri Mataji: May God bless you.
-
-[Somebody takes a box to Shri Mataji and She hands it to the girl]
-
-All right, come along, you are lucky. Quite heavy. May God bless you.
-
-Girl: Thank you very much.
-
-Shri Mataji: Thank you, thank you.
-
-Girl: Thank you.
-
-Shri Mataji: You got it, Rishi?
-
-Sahaja Yogi: Such cool vibrations. [Unclear]
-
-[Indistinct conversation]
-
-Shri Mataji: All right, Soma is better now?
-
-Sahaja Yogi: Yes, it has improved...
-
-Shri Mataji: Better, yes.
-
-Sahaja Yogi: ... since she came to Sahaja Yoga.
-
-Girl: Thank you very much, Shri Mataji.
-
-Shri Mataji: Next time I would like to see your poems. All right? Kuber, you too. [Laughter]
-
-And also nice drawings. Where is the drawing gone of Kuber? This I want to take with Me. It’s refreshing.
-
-All right. May God bless you. May God bless you.
-
-Look after yourself. And know that you are Sahaja Yogis, is a very big position, you are saints. Special people. You are the foundation.
-
-Anyway I may go to mainland China and talk to the... Let’s see if Prime Minister listens to Me. May be.
-
-May God bless you.
-
-Sahaja Yogis: Thank you, Mother.
-
-Shri Mataji: It’s all right.
-
-Sahaja Yogi: Thank You Mother, for coming to Hong Kong...
-
-Shri Mataji: Wah-wah.
-
-Sahaja Yogi: ...and blessing us all.
-
-Shri Mataji: You just wait and - you just wait. [Sahaja Yogi: “OK”.] Then I will go and talk to him. May God bless you.
-
-And I think people are very simple, very simple people in North Korea. You are South-Korean?
-
-Sahaja Yogini: Yes.
-
-Shri Mataji: Ah, I went to South Korea, I’m sorry, not North, South Korea.
-
-But you see, still they have no idea of a spiritual life. No idea. So, you go there quite often?
-
-Sahaja Yogini: Yes, tomorrow I’ll go there.
-
-Shri Mataji: She goes to... She goes...
-
-Sahaja Yogini 2: She is my sister who came here today.
-
-Shri Mataji: So start talking about Sahaja Yoga. All right?
-
-Sahaja Yogini: Yes. It’s the first time...
-
-Shri Mataji: No, no, you can do it. So have programme, or something. And get more people here from South Korea. And send them over. You can do very well. Too much American influence.
-
-[Sahaja Yogini: “Right”.] That’s the problem. And also then I saw one programme they had invited us to, supposed to be a very special one.
-
-And we were sitting on the top from the galleries, you see, for VIPs and downstairs, and I’ve never seen such a show.
-
-Very dirty show they showed. Very dirty.
-
-I’ve never seen. And CP was wearing his glasses and he just closed his eyes, and I had to, said it, “Close your eyes, you can’t bear it”. And both of us vomited.
-
-Leave show. I’ve never seen such a dirt anywhere.
-
-You know, I mean, can’t imagine how they have taken these things from these stupid Americans.
-
-You can work it out, all right?
-
-May God bless you.
-
-Sahaja Yoginis: Thank You, Mother.
-
-Shri Mataji: We have to think of our countries, we have to save them. Don’t you think so? It’s very important, to save your own country. Just I give you all the powers.
-
-May God bless you.
-
-First grow in Sahaja Yoga, first grow in Sahaja Yoga, these people can also come sometimes. We can send some other people.
-
-We could have programmes. All right?
-
-May God bless you.
-
-Sahaja Yogini: Are You going to come to Korea again?
-
-Sahaja Yogini: Are You going to come to Korea again, another time?
-
-Sahaja Yogi: She is asking if You are you going to come to Korea.
-
-Shri Mataji: [Laughing] Anyone at this time - I’m so busy now, I don’t know. Keeping Me too busy. That’s all right, I think it will work out.
-
-These people can go and work it out. All right?
-
-Sahaja Yogini: Thank you.
-
-Shri Mataji: May God bless you.
-
-Sahaja Yogini: Thank you.
-
-Shri Mataji: So, are you feeling better now, with him? You have Ekadasha, you know?
-
-Sahaja Yogini: Yes, I know.
-
-Shri Mataji: Ekadasha means beginning of cancer, do you know? Don’t struggle anymore. You know, no mother can live without children.
-
-See, all this is a temporary sort of infatuation, finished, is this. Mother is a mother.
-
-How she stands, you know, for her children. All right? That’s more important. [End of tape]
+Wiesz, żadna matka nie może żyć bez dzieci. Widzisz, wszystko to jest tymczasowym rodzajem zauroczenia, skończone, to jest to. Matka jest matką. Jak ona za nimi się wstawia, wiesz, dla swoich dzieci. W porządku? To ważniejsze.

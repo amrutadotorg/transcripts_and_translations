@@ -3,60 +3,17 @@ He Will Be Incarnated Again As Eleven Rudras
 Ganesha Puja
 Vancouver, West Vancouver ashram (Canada)
 Talk Language: English | Transcript (English) - Reviewed
-Shri Ganesha Puja, Vancouver (Canada), 6 October 1983.
 
-In the West, you have grown very big outside like a tree has grown very big. But it must find its roots.Otherwise the whole tree can fall off without nutrition. Soyou must know the knowledge of the roots. Without the knowledge of the roots the tree has no meaning. So this may be a little new thing for you to understand but you must know, to know the knowledge of the roots you have to become subtle. If you are not a subtle personality you cannot enter into your roots and you cannot understand what lies in there.
+На Западе вы стали очень большими снаружи, подобно большому дереву.
 
-So first of all, I said yesterday, you all should get your Realization, and after your Realization, you can understand this better than anything else.
+Но оно должно найти свои корни, иначе всё дерево может упасть без питания. Итак, вы должны понимать знание корней. Без знания корней дерево не имеет смысла. Так что это может быть немного новым для вас, чтобы понять, но вы должны знать... чтобы понимать знание корней, вы должны стать тонкими. Если вы не тонкая личность, вы не можете войти в свои корни и не можете понять, что там лежит. Итак, прежде всего, как Я сказала вчера, вы все должны получить Самореализацию, и после вашей Реализации вы сможете понять это лучше, чем что-либо ещё. Христос пришёл на эту Землю, но Ему было позволено проповедовать и говорить только 3,5 года Cвоей жизни. А через 3,5 года ничего. В том, что было возможно, Он говорил положительно, говорил о будущем, обо всём, что должно было произойти. Он мало говорил о Святом Духе.
 
-Christ came on this earth, but he was only allowed to preach and talk about three and a half years of his lifetime. And in three and a half year is nothing. In that, whatever was possible he said positively, he told about the future, all that was to happen. He didn’t talk much about the Holy Ghost. The reason was His Mother was the Holy Ghost at that time and He didn’t want to talk about Her because the attention of the people would be on Her and they would have killed Her. And then He has got eleven destroying powers. And He would have used those eleven-destroying power and everything would have been finished, the whole drama would have been finished. So He did not mention much about the Holy Ghost and did not explain.
+Причина была в том, что Его Мать в то время была Святым Духом, и Он не хотел говорить о Ней, потому что внимание людей было бы приковано к Ней, и они убили бы Её. И затем у Него есть 11 разрушительных сил. И Он употребил бы эти 11 разрушительных сил, и всё было бы кончено, и вся драма была бы кончена. Поэтому Он мало упоминал о Святом Духе и не объяснял. Но логически мы должны понять, что мы говорим об Отце и Сыне, но не о Матери. Как можно иметь отца и сына и не иметь матери? Это невозможно. Итак, Святой Дух – это Изначальная Мать. Если следовать санскриту, потому что в Библии всего о Христе не найдёшь, очень мало. Но вы должны вернуться примерно на 1400 лет назад, когда в Индии люди пророчествовали о Нём, о том, как Он придёт.
 
-But logically we must understand that we talk of the Father and of the Son but not of the Mother!. How can you have a Father and a Son and no Mother? That’s an impossibility. So Holy Ghost is the Primordial Mother.
+И об Изначальной Матери, которую называли Ади Шакти, которая была Святым Духом. Было дано всё описание и когда придёт Её пришествие, что произойдёт и как Её узнать. Всё это очень хорошо было описано много лет назад, даже о Христе, довольно много описывается и также мы вам это прочитаем, перевод того, что написано о Христе. И далее идёт полное описание о Его происхождении, как Он пришёл на эту Землю и какова была цель Его жизни. Попросите этих джентльменов войти внутрь. Не могли бы вы? Господа, заходите внутрь. Устраивайтесь поудобнее. И какова была цель Его жизни и как Он должен установиться в этом центре, здесь и что, установившись там, Он может вытянуть из вас эго и суперэго, и как Он уводит вас, или Он смывает ваши кармы и ваши условности. Всё это было очень хорошо описано в книге «Деви Махатмья», из которой мы собираемся прочитать вам немного о поклонении.
 
-In the Sanskrit language if you go – because in the Bible you cannot find everything about Christ, it’s very little written. But you have to go back about 14000 years back, that in India, people had prophesied about Him, how He will be coming. And about the Primordial Mother who was called as Adi Shakti who is the Holy Ghost.
+Итак, Библия не может содержать Христа, потому что Христос – это Чайтанья, Он – Омкара, Он – Логос, как мы Его называем. Он есть Сила, и Его не опишешь в одной книжечке, когда Он был здесь всего 3,5 года и люди, видевшие Его, тоже были Его учениками, они мало знали о Нём. Пока Он не воскрес, они не верили Ему, и даже после Его смерти, Я имею в виду Его воскресение, Матфей и все эти люди были весьма обеспокоены и расстроены, потому что вы знаете, что их всех преследовали, и они, так или иначе, хотели продолжить проповедь Христа очень скрытным образом. Итак, сегодня пришло время вам узнать о Нём, о том, каким Он был – на Небесах и как Он пришёл на эту Землю. На всё это у нас сегодня нет времени, но мы просто расскажем вам о небольшом отрывке, который написан о Нём. Итак, во-первых, Он тот, кто невинен, кто есть вечный ребёнок, и Он появляется сначала в первой чакре – Муладхаре, и там Его называют Шри Ганешей. Где был создан атом углерода. Углерод. И очень важно понимать, что Ганеша – это символ невинности, а Мать-Земля – это сила этого божества, Ганеши. Таким образом, это был Ганеша, позже воплотившийся на этой Земле как Христос, и Он снова воплотится в виде 11 Рудр, что означает Экадаши, или мы можем назвать Его божеством Нишкаланка, когда Он просто расставит вещи в том смысле, что Он просто отсекает людей нереализованных, нехороших, а остальные вознесутся в Царство Небесное, вот что есть последнее Восхождение.
 
-All description was given and when Her advent will come, what will happen and how to recognize Her. All this is described very well so many years back, even about Christ, quite a lot is described. And also, We are going to read it out to you, the translation of what is written about Christ. And then there is a complete description about His origin, how He came on this earth and what was the purpose of His life.
+А теперь об этом... Садитесь, пожалуйста. Пожалуйста, садитесь, дайте ему стул... Вы должны сесть поудобнее. Видите ли, это то, что заставляет... что-то происходит внутри вас, так что вы должны быть очень спокойными, это очень важно. Дайте ему стул, если он не может сидеть на земле. Дайте ему стул, но устройтесь поудобнее, иначе ничего не получится, понимаете, это не то, что войдёт в ваш ум, это то, что войдёт в ваше существо, поэтому вы должны быть очень восприимчивы. Еще Я вам скажу, вчера Я также видела, и сегодня тоже, вы не должны шевелить шеей, когда что-то едите или что-то жуёте, потому что эта чакра Вишуддхи в это время расстраивается. Так что не двигайтесь. До тех пор пока вы не успокоитесь, это не сработает. Так что, пожалуйста, оставайтесь на месте. Итак, это питание корней, над которым мы будем работать, которое вы очень хорошо почувствуете внутри себя.
 
-(Aside: Ask that gentlemen to come inside. Can you? This gentleman come inside. You sit comfortably)
-
-And what was the purpose of His life and how He has to establish in this centre here and that by establishing there, He can suck the ego and superego in you and how He takes you away or He washes off your karmas and your conditionings All that has been described very well in the Devi Mahatmayam book out of which We are just going to read a little bit to you about the adoration.
-
-So Bible cannot contain Christ. Because Christ is Chaitanya. He is the Omkara.  He is the Logos as we call Him. He is the Power and you cannot describe Him in one little book.  when He was here only for three and a half years and the people who saw Him also were his disciples, they did not know much about Him. Till  he was resurrected, they did not believe Him. And even after His death, I mean his resurrection, Matthews and all these people were quite disturbed and upset because you know they were all persecuted and they somehow or the other, wanted to continue - the message of Christ in a very secretive manner.
-
-So today the time has come for you to know about Him, about what He was  in the Heaven and how He came on this Earth. All that We don’t have time today but we’ll be just telling you about a little passage that is written about Him.
-
-So first, He is the one who is innocence, who is an eternal child, and He appears first on the first chakra of Mooladhara, and there He’s called as Shri Ganesha. Where the carbon atom was made – carbon. And that is very important to understand that Ganesha is the symbol of innocence and Mother Earth is the power of that deity, Ganesha.
-
-So  it was Ganesha, later on incarnated on this Earth as Christ, and He will be incarnated again as Eleven Rudras, means Ekadashas, or We can call Him as Nishkalanka His name will be. When He will just sort out things in a sense that He will just cut the people out who are not Realized, who are no good, and the rest of them will ascend in the Kingdom of Heaven, this is what is the last ascent!
-
-Now, for this –
-Please sit down, please. Please be seated, give him a chair or something. You have to sit down comfortably. You see, it is a thing that makes... happen something within you, so you have to be very much restful, that’s very important. Give him a chair if he cannot sit on the ground. Give him a chair, but be comfortable otherwise it won’t work out, you see! It is not something that will go into your mind.  It’s something that will go into your being, so you have to be very receptive.
-
-Another thing I’ll tell you, yesterday also I saw, and today also, you should not move your neck by eating something or chewing something because this Vishuddhi Chakra gets upset at that time. So keep still. Unless and until you are still it cannot work out. So please keep still.
-So this is the nourishment of the roots of which We are going to work out  which you will feel it very nicely within yourself.
-
-So  first is that We wo;;  read the Ganesha’s translations about Ganesha. But just before starting, let us say Lord’s Prayer. Once we say.
-Sahaja Yogi: We say the Lord’s prayer together.
-Shri Mataji: Put your hands like this. And now, say the Lord’s Prayer.
-
-Sahaja Yogis: Our Father, who art in heaven, hallowed be thy Name.
-Thy Kingdom come. Thy will be done on Earth, as it is in Heaven.
-Give us this day our daily bread.
-And forgive us our trespasses. As we forgive those  who  trespass against us.
-And lead us not into temptation, but deliver us from evil.
-For thine is the kingdom, the power, and the glory, for ever and ever.
-Amen.
-
-Shri Mataji: May God bless you.
-
-So now, with all solemnity and serenity, you must sit comfortably. And we’ll read about this and we will translate to you in English language. so that you can understand what it means. Now sit very comfortable like this.
-
-[8:35; 20 min Prayer written by Shri Markandeya 14000 years back explaining, worshipping and adoring the qualities of Shri Ganesha. (AUM Divine Prayer-given in Mantra Book)
-In between, Shri Mataji speaks about the importance of particular prayers and Puja.
-28 min: 108 names of Shri Ganesha.
-51 min: Devi Mahatmya (some part)
-1:05 min: Devi Suktam
-1:23 min: 108 names of Mahadevi (Shri Mataji) given in the Lalita Sahastranama.
-2:02 min Distributing the photos to Yogis; importance of that picture.
-2:15: Arti
-2:25 to 2:27 How to clear Back Agnya by Shri Mataji]
+Итак, во-первых, мы прочитаем перевод Шри Ганеши, о Ганеше. Но до того как начать, произнесём один раз молитву «Отче Наш». Откройте ваши руки вот так и теперь прочитайте «Отче Наш». Молитва «Отче Наш»...

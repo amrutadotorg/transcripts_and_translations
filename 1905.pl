@@ -3,250 +3,99 @@ Detachment & Enlightenment Of Brain
 Mahashivaratri Puja
 Pandharpur (India)
 Talk Language: English | Transcript (English) - Reviewed | Translation (Marathi to English) - NEEDED
-“Detachment & Enlightenment of Brain,” Mahashivaratri Puja, Pandharpur (India), February 29th, 1984
 
-So now, we all have arrived, it’s all right.
+Mahashivaratri Puja, Odwiązanie i Oświecenie Mózgu, 29.02.1984 Pandharpur, Indie
 
-Now, this place has been chosen because they said that there are lot of horrible people the other way round. Still, we are having their problems. [Laughter]
+Zatem teraz przybyliśmy wszyscy, to miejsce zostało wybrane, ponieważ oni powiedzieli, że wokół jest mnóstwo strasznych ludzi. Nadal mamy ich problemy. W porządku. Widzicie, trzeba wiedzieć, że są to nowoczesne czasy, a współczesne czasy mają wiele komplikacji. Czy wszyscy przyjechali? Najpierw będę mówiła po angielsku, a potem w marathi. W przeciwnym razie, ci ludzie niczego nie zrozumieją i nie będzie to właściwe.
 
-All right. You see, you must know these are modern times, and modern times have lots of complications.
+W tych współczesnych czasach, to miejsce, które ma być świętym miejscem, staje się miejscem najbardziej bezbożnym. Te jest taki wywrócony do góry nogami stan dzisiejszych dni. A kiedy próbujemy ustabilizować coś bardzo podstawowego, to jest to jak mała sadzonka, która ma wyrosnąć spod kamieni. Musi walczyć z wieloma sprawami, więc musimy utrzymywać nasze mózgi w stanie nienaruszonym i być rozsądnym we wszystkim, i starać się dostrzec, co możemy osiągnąć dzięki naszej cierpliwości i zrozumieniu - to bardzo ważne.
 
-(Translation from Marathi: “Has everyone arrived? I will first speak in English, then in Marathi. As these people can’t understand anything otherwise, and that won’t be proper”.)
+Myślę, że dzisiaj jest bardzo wspaniały dzień dla nas wszystkich, ponieważ to miejsce jest miejscem Viraty, Shri Vitthali. Jest miejscem, w którym objawił się Shri Vitthala oddanemu synowi, a kiedy on Go poprosił: "Lepiej byś stanął na cegle" - On tam stanął. I mówią, że On stał tam czekając. Niektórzy mówią, że posąg, który widzimy wyłonił się z Matki Ziemi na tym piasku i to jest to, co Pundarikaksh utrzymują mówiąc: "To są ci, którzy przyszli zobaczyć mnie i moich rodziców; i byłem nimi zajęty, więc nadal stoją na tej samej cegle, którą rzuciłem". Teraz całą historię należy potraktować w bardzo sensowny sposób, a przy tym ze zdrowym rozsądkiem. Że Sam Bóg jest zdolny do wszelkiego rodzaju cudów. My, którzy jesteśmy stworzeni przez Boga, czynimy niektóre rzeczy, które wyglądają jak cuda.
 
-In these modern times, a place which is supposed to be a holy place becomes the most unholy place. It’s such a topsy-turvy condition these days. And when we are trying to establish something very fundamental, it’s like a little seedling that has to come out of the stones, you see. It has to fight lots of things, so we have to keep our brains intact and be sensible about everything, and try to see what we can achieve through our patience and understanding - is very important.
+Jeśli przyjrzymy się około 100-letniej sytuacji tego świata, możemy powiedzieć, że widzimy dzisiaj wiele rzeczy, które mogą być cudami. Sto lat temu, nikt nie pomyślałby, że możemy mieć, wszystkie te rozwiązania zastosowane tutaj, w tak odległych miejscach. Ale wszystkie te cuda pojawiły się z mocy Boga. Więc jesteśmy twórcą tej odrobinki, odrobinki tego cudu. Tak więc, nie wszystkie cuda Boga mogą być wyjaśnione i powinny być wyjaśnione. Są poza naszym umysłem i sprawiają, że ludzie czują obecność Boga.
 
-Today, I think is a very great day for all of us because this place is the place of Viraat, of Shri Vitthala. Is the place where Shri Vitthala appeared to a devoted son and when he asked Him that, “You better stand on a brick”, He stood there. And they say that He stood there waiting. Some people say that the statue that we see came out of the Mother Earth on this sand and that’s what Pundarikaksh carried saying that, “These are the ones who came to see me and my parents; and I was busy with them, so they are standing on the same brick which I threw.”
+Bóg może wszystko. On może się poruszać we wszystkich trzech wymiarach a także w czwartym wymiarze. On może robić, co tylko zechce. Właśnie to widzicie w swoim codziennym życiu, ile cudów przydarza się wam wszystkim, i nie możecie zrozumieć, jak to działa. Działa to nawet na rzeczy, które nie są żywe, i ludzie są bardzo zaskoczeni, jak to się dzieje. Musimy więc teraz uwierzyć, kiedy sami tego wszystkiego doświadczamy, że On jest Bogiem i może robić wszystko, co chce.
 
-Now the whole story has to be taken in a very sensible way, with the common-sense in it. That God Himself is capable of all kinds of miracles. We, who are created by God, are doing some things which look miraculous. Say, if you take about hundred-year-old situation of this world, we can say that today we are seeing many things which could be miraculous. Hundred years back, nobody could have thought that they could have all these arrangements done here, in such a far-fetched places. But all these miracles come from the power of God. So we are the creator of that wee bit, very wee bit of that miracle. So all the miracles of God cannot be explained and should not be explained. They are beyond our minds, and, to make people feel the presence of God, God can do anything.
+A my jesteśmy niczym. Jesteśmy niczym. Nie powinno być żadnej racjonalności w zrozumieniu cudów Boskich. "Jak to jest możliwe? Jak to jest możliwe?" Nie możecie tego wyjaśnić, dopóki nie osiągniecie takiego stanu umysłu, w którym wierzycie, poprzez swoje doświadczenia, że Bóg jest wszechmocny. To jest bardzo trudne. Ta koncepcja jest bardzo trudna, ponieważ jesteśmy ograniczonymi ludźmi, mamy ograniczone moce, nie możemy zrozumieć, jak Bóg mógłby być wszechmocny, ponieważ my nie mamy takich zdolności. Więc ten Bóg, który jest naszym Stwórcą, który nas chroni, ten, który pragnął, byśmy istnieli, który sam w sobie jest naszym istnieniem, jest Bogiem wszechmocnym, wszechmocnym.
 
-He can move into all the three dimensions and also in the fourth dimension. He can do whatever He feels like. That’s what you have seen now in your every day-to-day life, how many miracles take place to all of you, and you can’t understand how it works out.
+On może zrobić z wami co chce. On może stworzyć inny świat, On może zniszczyć ten świat. Jeśli tylko tego zechce.
 
-Even it works out on things which are not living, and people are quite amazed how these things happen. So we have to believe, now, after seeing all this ourselves, that He is God, and He can do anything that He feels like. And we are nothing. We are nothing. There should be no rationality about it - of understanding God’s miracles. “How can it be? How could it be?” You can’t explain. Only when you achieve that state of mind where you believe, through your experiences, that God is all-powerful. It’s very difficult. This concept is very difficult because we are limited people, we have limited powers, and we cannot understand how God could be all-powerful because we, we haven’t got the capacity. So, this God who is our Creator, who is our Preserver, the One who desired that we should exist, who is our existence itself, is an all-powerful God, all-powerful. He can do whatever He likes with you. He can create another world, He can destroy this world. It’s only if He has to desire.
+Mój pomysł przyjazdu do Pandharpur na puję do Shivy, był taki, że Shiva reprezentuje Ducha, a Duch przebywa w was wszystkich, w waszych sercach. Siedziba Sadashivy jest na szczycie waszej głowy, ale On jest odzwierciedlony w waszym sercu. Wasz mózg jest Vitthalą. Tak więc przeniesienie Ducha do waszego mózgu oznacza oświecenie waszego mózgu. Oświecenie waszego mózgu oznacza, że ograniczona zdolność waszego mózgu musi stać się nieograniczona w swojej zdolności do uświadomienia sobie [istnienia] Boga. Nie użyję słowa "rozumienia" - ale "uświadomienia sobie Boga", jaki On jest potężny, jaki jest cudowny, jaki wielki. Inną [rzeczą] jest to, że mózg człowieka może tworzyć - oczywiście z czegoś martwego, ale kiedy Duch wejdzie do mózgu, wtedy tworzycie coś żywego, żywą pracą Kundalini. Nawet to, co jest martwe, zaczyna zachowywać się jak żywe, ponieważ dotykacie Ducha w czymś martwym.
 
-My idea of coming to Pandharpur for Shiva Puja was this: that Shiva represents the Spirit, and the Spirit is residing in all of you in your hearts. The seat of Sadashiva is on top of your head, but is reflected in your heart.
+Jak jądro wewnątrz każdego atomu lub cząsteczki, zawiera Ducha tej cząsteczki. A jeśli staniecie się Duchem... Możemy powiedzieć, że mózg cząsteczki lub atomu, jest jak jądro, ciało jądra. Ale tym, który kontroluje jądro jest Duch, który znajduje się w jądrze. Więc teraz uzyskaliście uwagę, czy też całą jednostkę atomu, a następnie jądro, wewnątrz którego znajduje się Duch. W ten sam sposób, mamy to ciało, uwagę ciała. A potem mamy... mamy jądro - jest to mózg. A Duch jest w sercu. Mózg jest więc kontrolowany przez Ducha. W jaki sposób? Wokół serca znajduje się siedem aur, które można pomnożyć do jakiejkolwiek liczby, siedem podniesione do potęgi 16000, które są tymi, które obserwują siedem czakr, podniesione do potęgi tysiąc sześćset - szesnaście tysięcy, przepraszam.
 
-Now, your brain is the Vitthala. So to bring Spirit to your brain means enlightenment of your brain. Enlightenment of your brain means the limited capacity of your brain has to become unlimited, in its capacity to realise God. I will not use the word ‘understand’ – but ‘to realise God’ - how powerful He is, how miraculous He is, how great He is. The another is that the brain of man can create - of course, out of the dead; but when the Spirit comes into brain, then you create living things, living work of Kundalini. Even the dead start behaving like living because you touch the Spirit in the dead.
+Teraz ten Duch obserwuje przez tę aurę; obserwuje - znowu mówię "obserwuje" - przez tę aurę. (Możesz usiąść? Możesz usiąść? Myślę, że tak będzie lepiej. Nie ma potrzeby przeszkadzać, kiedy to postawiłeś). Ta aura obserwuje zachowanie waszych siedmiu ośrodków w waszym mózgu. Obserwuje też wszystkie nerwy, które działają w mózgu - znowu "obserwuje". Ale kiedy sprowadzicie Ducha do waszego mózgu, wtedy idziecie dwa kroki do przodu, ponieważ kiedy wasze Kundalini się podnosi, Ona dotyka Sadashivy a Sadashiva informuje Ducha. Informuje w takim sensie, że odbija się w Duchu. To jest pierwszy stan, w którym obserwujące aury zaczynają się komunikować poprzez wasze różne czakry w mózgu integrując je.
 
-Like the nucleus inside every atom or a molecule has the Spirit of that molecule. And if you become your Spirit. We can say the brain of a molecule or an atom is like the nucleus, body of the nucleus. But the one that controls the nucleus is the Spirit that resides within the nucleus. So now you have got the attention, or the body - the whole body of the atom - then the nucleus, and inside the nucleus is the Spirit. In the same way - we have this body, the attention of the body. And then we have the... we have the nucleus - is the brain. And the Spirit is in the heart. So the brain is controlled through the Spirit. How?
+Ale kiedy wprowadzicie swojego Ducha do waszego mózgu - to jest drugi stan - wtedy naprawdę stajecie się w pełni Samo-Zrealizowani, w pełni, ponieważ wtedy wasze "Ja", to jest Duch, staje się waszym mózgiem. Akcja jest bardzo dynamiczna, otwiera się wtedy piąty wymiar w człowieku. Po pierwsze, kiedy staniecie się zrealizowani, kolektywnie świadomi, i zacznie podnosić się Kundalini, jesteście [wewnątrz], przekraczacie czwarty wymiar. Ale kiedy wasz Duch wejdzie do waszego mózgu, wtedy stajecie się piątym wymiarem - oznacza to, że ​​stajecie się tym, który czyni.
 
-That around the heart there are seven auras which can be multiplied into any number, seven raised to power sixteen hundred, which are the ones which watch the seven chakras, raised to power sixteen hundred - sixteen thousand (716000), sorry. Now this Spirit is watching through this aura;  watching – I am again saying “watching”-through this aura.
+Na przykład nasz mózg teraz mówi: "W porządku, podnieś to". Więc dotykasz tego dłonią, podnosisz to. Jesteś wykonawcą. Ale kiedy mózg staje się Duchem, to Duch jest tym, który czyni, a kiedy Duch czyni, wtedy stajecie się w pełni Shivą, Samo-Zrealizowanym. W tym stanie, jeśli się rozgniewacie, nie jesteście przywiązani. Nie jesteście do niczego przywiązani, w ogóle. Jeśli coś posiadacie, nie jesteście przywiązani. Nie możecie przywiązać się, ponieważ Duch jest odwiązaniem, całkowitym odwiązaniem. Nie przejmujecie się w ogóle żadnymi przywiązaniami. Nawet przez sekundę nie jesteście przywiązani.
 
-(To the cameraman: Can you sit down? Can you sit down? I think, would be better. There’s no need to bother, once you have put it up.)
+Teraz, aby zrozumieć odwiązanie Ducha, powinniśmy studiować samych siebie bardzo dobrze, wyraźnie: "Jak jesteśmy przywiązani?" Po pierwsze, jesteśmy przywiązani przez nasz mózg, głównie przez nasz mózg, ponieważ wszystkie uwarunkowania są w naszym mózgu, i całe nasze ego również jest w naszym mózgu. Więc wszystkie przywiązania emocjonalne są przez nasz mózg i wszystkie nasze egoistyczne przywiązania, są przez nasz mózg. Dlatego mówi się, że po Realizacji, należy starać się praktykować Shiva Tattwę [zasadę Shivy] poprzez praktykowanie odwiązania. (Proszę, podaj Mi szal. Jest tak zimno z powodu Shri Shivy.)
 
-This aura is watching the behaviour of your seven centres in your brain. Is also watching all the nerves that are working in the brain - “watching”, again. But when you bring the Spirit into your brain, then you go two steps ahead, because when your Kundalini rises, She touches the Sadashiva and Sadashiva informs the Spirit. Informs in the sense - reflects in the Spirit. So that’s the first state where the watching auras start communicating through your different chakras in the brain and integrating it.
+Teraz, jak ćwiczyć to odwiązanie? Wszyscy trochę rozumieją angielski, prawda? Dlatego jesteśmy przywiązani do czegoś, oczywiście za sprawą naszego mózgu, ale [też] z powodu naszej uwagi. Staramy się więc robić to, co nazywamy Chitta Nirodh, czyli kontrolować swoją uwagę: dokąd ona podąża?
 
-But when you bring your Spirit to your brain - this is the second state - then you really become self-realised, in the full way, in the full way because then your Self, that is the Spirit, becomes your brain. Action is very dynamic, it opens then the fifth dimension in the human being. First, when you become Realised, collectively conscious, and start raising the Kundalini, you are in, you cross the fourth dimension. But when your Spirit comes into your brain, then you become the fifth dimension - means, you become the doer. Our brain, now, for example, says, “All right, lift this thing up”. So you touch it with your hand, you lift it up. You are the doer. But when the brain becomes the Spirit, the Spirit is the doer, and when Spirit is the doer, then you become a complete Shiva - self-realised.
+W praktyce Sahaja Yogi, jeśli macie wzrastać, musicie poprawić swój własny instrument, a nie instrument innych. To jedna rzecz, którą powinniście wiedzieć na pewno. Teraz po prostu obserwujcie swoją uwagę, dokąd ona podąża. Obserwujcie siebie. Jak tylko zaczniecie obserwować siebie, waszą uwagę, staniecie się bardziej utożsamieni ze swoim Duchem. Ponieważ, jeśli musicie obserwować swoją uwagę, musicie być swoim Duchem, w przeciwnym razie, jak będziecie ją obserwować.
 
-In that state, if you get angry, you are not attached. You are not an attached person to anything whatsoever. If you possess anything, you are not attached. You cannot attach because Spirit is detachment, is complete detachment. You don’t bother about any attachments whatsoever. Even for a second, you are not attached.
+Teraz zobaczcie, dokąd zmierza wasza uwaga? Z przyziemnego punktu widzenia, pierwszym przywiązaniem jest przywiązanie do swojego ciała. Widzimy więc Shivę - On nie jest przywiązany do swojego ciała. On śpi gdziekolwiek. Chodzi na cmentarze i tam śpi, ponieważ nie jest przywiązany. Nigdy nie mogą go pochwycić żadne buce, ani nic w tym rodzaju. Widzicie, On jest odwiązany. Odwiązanie należy obserwować i widzieć poprzez własne przywiązania. Ponieważ jesteście Zrealizowanymi Duszami, a Duch oczywiście jeszcze nie wszedł do waszego mózgu, ale jednak jesteście Zrealizowanymi Duszami. Więc to, co możecie zrobić, to jest przynajmniej obserwowanie swojej uwagi, możecie to robić.
 
-Now, I would say, to understand the detachment of Spirit, we should study ourselves very well, clearly: “How are we attached?”.
+Możecie bardzo wyraźnie obserwować swoją uwagę, widząc dokąd zmierza wasza uwaga. A potem również możecie kontrolować swoją uwagę. To bardzo proste, aby kontrolować swoją uwagę, musicie tylko przenieść swoją uwagę z tego na tamto. Spróbujcie zmienić swoje priorytety. Wszystko to należy zrobić teraz, po Realizacji - całkowite odwiązanie. Zatem kiedy ciało domaga się komfortu, postarajcie się, aby ciału było troszkę niekomfortowo. Próbujcie. To, co uważacie za komfortowe, postarajcie się zmienić w trochę mniej komfortowe.
 
-We are attached, firstly, by our brain, mostly by our brain because all our conditionings are in our brain, and all our ego is also in our brain. So all emotional attachments are through our brain, and all our egoistical attachments, also, are through our brain. That’s why it is said that after Realisation one must try to practice the Shiva Tattwa by practicing detachment.
+Dlatego ludzie udawali się w Himalaje. Widzicie, samo przybycie tutaj sprawiło nam wiele problemów. Tylko wyobraźcie sobie wyprawę w Himalaje. Więc po Realizacji, zabierali swoje ciało w Himalaje: "W porządku, przejdź przez to wszystko. Zobaczmy, jak się zachowujesz".
 
-(Translation from Marathi: “Please, give me the shawl. It’s so cold because of Shri Shiva”)
+Więc to, co nazywacie aspektem pokuty, w pewien sposób teraz się zaczyna, jest to pokuta, którą możecie bardzo łatwo odbyć, bo teraz jesteście Zrealizowanymi Duszami. Z przyjemnością, odrobinę, próbujcie sprawić temu ciału... Dla Shivy nie ma znaczenia, czy On jest na cmentarzu czy na swoim własnym Kailashu lub gdziekolwiek. Widzicie dokąd zmierza wasza uwaga. Wasza ludzka uwaga jest beznadziejnie zła. Jest bardzo uwikłanym nonsensem. "Zrobiliśmy to z tego powodu". Jest wyjaśnienie. Lub inni muszą wyjaśnić. Nie trzeba udzielać wyjaśnień ani przyjmować ich, ani prosić o nie. Żadnych wyjaśnień. Życie bez wyjaśnień jest najlepszym sposobem. W prostym języku hindi "Jaise rakhahu taise hi rahu". "Niezależnie od tego, w jakim stanie mnie utrzymujesz, pozostanę w nim i będę się nim cieszyć". W dalszej części tego wiersza Kabira mówi: "Jeśli każesz mi jechać na słoniu" - to królewski środek transportu - "Pojadę. Jeśli zmusisz mnie do chodzenia, będę szedł". Więc żadnej reakcji w tej kwestii, żadnej reakcji.
 
-Now, how do you practice this detachment?
+Po pierwsze, żadnych wyjaśnień, żadnej reakcji.
 
-(Translation from Marathi: “All of you can understand English a little bit, isn’t it?”)
+Po drugie, kwestia jedzenia. Ale to jest pierwsze poszukiwanie, które istoty ludzkie miały jako zwierzęta. Nie trzymajcie uwagi na jedzeniu. Czy macie sól, czy nie, czy macie to czy tamto - żadnej uwagi na jedzeniu. Właściwie nie powinniście pamiętać, co jedliście dziś rano. A jednak myślimy o tym, co będziemy jedli jutro. Spożywamy jedzenie nie po to, by ciało dobrze funkcjonowało, ale dla pewnego rodzaju większej satysfakcji wynikającej z rozkoszowania się smakiem. Kiedy zaczniecie rozumieć, że to rozkoszowanie się jest oznaką przyziemnej uwagi - każda tego rodzaju przyjemność jest bardzo przyziemnym doznaniem - uczuciem. To jest bardzo przyziemne. Ale kiedy mówię: "Żadnych przyjemności" to nie znaczy, że powinniście stać się poważnymi ludźmi, ludźmi wyglądającymi jakby wam umarł ktoś z rodziny! Ale powinniście być jak Shiva. Tak odwiązani.
 
-Because we get attached to something, of course, through our brain, but through our attention. So we try to do what we call Chitta Nirodh, is to control your attention: where is it going? In the practice of Sahaja Yoga, if you have to rise higher, you have to improve your own instrument, and not the instrument of others. This is one thing one should know, for definite.
+Na swój ślub On przyjechał na byku, który biegł bardzo szybko. Siedział na byku ze stopami w ten sposób, byk biegł szybko a On trzymał się byka. Ze stopami w ten sposób! I przyjeżdża na swój ślub. A wraz z Nim przybywają ludzie z jednym okiem, bez nosów, przybywają z Nim wszelkiego rodzaju dziwaczni ludzie. A jego żona czuje się dość zakłopotana tymi nonsensownymi rzeczami, które ludzie mówią o Shivie. On nie przejmuje się swoją reputacją. Ale to nie znaczy, że macie stać się hipisami.
 
-Now you just watch your attention, where is it going. Watch yourself. As soon as you’ll start watching yourself, your attention, you’ll become more identified with your Spirit. Because if you have to watch your attention, you have to be your Spirit, otherwise how will you watch it? So, now, see where is your attention going. First, the attachment is, in all gross ways, to your body.
+Problem polega na tym, że kiedy zaczniecie tak myśleć, stajecie się hipisami. Wiele osób uważa, że ​​jeśli zaczniecie zachowywać się jak Shiva, staniecie się Shivą. Wielu wierzy w to, że jeśli będziecie używać ganjy [marihuany] staniecie się Shivą, ponieważ Shiva zwykł używać ganjy. On dlatego używał, konsumował to wszystko, żeby usunąć to z tego świata. Jakie to ma dla Niego znaczenie, czy to jest ganja czy cokolwiek innego? Dajcie mu cokolwiek, nigdy się nie upije, bez wątpienia. On to wszystko wchłania. Albo oni myślą, że jeśli żyją jak Shiva, w sposób, w jaki On był odwiązany od rzeczy, najmniej przejmował się swoim wyglądem. Wygląd, jakiego potrzebuje Shiva polega na tym, że jakkolwiek wygląda, to jest Jego pięknem. On nie potrzebuje niczego robić.
 
-So we see Shiva – He has no attachment to His body. He sleeps anywhere. He goes to the cemeteries and He sleeps there because He’s not attached. He can never be caught up by any bhoots or anything, nothing of the kind. You see, He is detached.
+Więc przywiązanie do czegokolwiek jest brzydotą. Jest brzydotą, jest nonsensem. Ale wy możecie ubierać się, jak tylko chcecie, lub nawet jeśli jesteście w najzwyklejszej sukience, będziecie wyglądać jak najwspanialsza osoba. Ale to nie polega na tym, że powiecie: "W porządku, więc w tych okolicznościach chodźmy owinięci jednym prześcieradłem". Piękno, które rozwinęło się w was poprzez Ducha, daje wam taką moc, że możecie nosić cokolwiek chcecie - nie ma to wpływu na wasze piękno, wasze piękno jest w was przez cały czas. Ale czy osiągnęliście ten stan? Tylko wtedy osiągniecie ten stan, gdy wasz Duch wejdzie do waszego mózgu. Z ludźmi zdominowanymi przez ego jest trudniej, i dlatego oni nie potrafią się cieszyć. Pod najmniejszym pretekstem oni się załamują. I Duch, który jest źródłem radości, po prostu nie wchodzi, nie ujawnia się.
 
-The detachment is to be watched and seen through your own attachments. Now, because you are Realised souls, not yet the Spirit, has not come into your brain, of course, but still you are Realised souls. So, what you can do is at least to watch your attention, you can do that. You can watch your attention very clearly, by seeing where your attention is going. And then, controlling your attention also you can do. Very simple: to control your attention you have to just remove your attention from this to that. Try to change your priorities. All this has to be done now, after Realisation - a complete detachment.
+Radość jest pięknem. Radość sama w sobie jest pięknem. Ale to jest stan, który trzeba osiągnąć. Przywiązania przychodzą na różne sposoby. Jeśli posuniecie się nieco za daleko, wtedy macie przywiązania do swojej rodziny, "Co stanie się z moim dzieckiem? Co się przydarzy mojemu mężowi? Co stanie się z moją matką, z moją żoną?" taki czy inny nonsens. Kim jest twój ojciec, a kto jest twoją matką? Kto jest twoim mężem i kim jest twoja żona?
 
-So the body demands comfort, try to make body uncomfortable a little bit. Try. What you think it to be comfortable, try to make it little uncomfortable. That’s why people went to Himalayas. You see, coming to this place itself has caused us lot of problems (Shri Mataji laughs). But going to Himalayas - you can imagine.
+Dla Shivy...On nie zna tych wszystkich rzeczy. Dla Niego On i Jego Moc są czymś nierozłącznym. Więc On jest osobliwą osobowością. Nie ma dwoistości... dwoistości. Kiedy występuje dwoistość, tylko wtedy mówicie: "Moja żona". Mówicie dalej: "Mój nos, moje uszy, moje ręce, moje, moje, moje, moje". Zajrzyjcie w głąb serca. Dopóki nie powiecie "moje", istnieje jakaś dwoistość. Ale kiedy mówię: "Ja, nos", to wtedy nie ma dwoistości. Shiva to Shakti, Shakti to Shiva. Nie ma dwoistości.
 
-So after Realisation, they used to take their body to Himalayas, “All right, go through all this. Let’s see how you act”. So what you call the penance side starts now in a way. It’s a penance which you can do very easily because now you are Realised souls. With enjoyment, little try to make this body. For Shiva, it doesn’t matter whether He is in a cemetery or in His own Kailasha or anywhere.
+Ale my żyjemy z naszą dwoistością przez cały czas jest przywiązanie. Jeżeli nie ma dwoistości, czym jest przywiązanie, rozumiecie? Jeśli jesteście światłem i jesteście lampą, gdzie jest wtedy dwoistość? Jeśli jesteście księżycem i jesteście światłem księżyca, gdzie jest wtedy dwoistość? Jeśli jesteście słońcem i jesteście światłem słonecznym, jesteście słowem i jego znaczeniem, to gdzie jest dwoistość? Ale kiedy następuje separacja, wtedy jest dwoistość, i z powodu tej separacji czujecie się przywiązani. Ponieważ jeśli tym jesteście, to jak będziecie przywiązanymi? Czy widzicie w tym sens? Ponieważ istnieje różnica i rozdzielenie między tobą a "twoim", dlatego przywiązujecie się do tego.
 
-Where is your attention is, you see. That your human attention is hopelessly bad. Very entangled nonsense it is. “We did this because of this”. There’s an explanation. Or others have to give an explanation. No explanation is needed to be given, or to be accepted, or to be asked for. No explanation. To exist without explanation is the best way.
+Ale to ja, kim jest ten inny? Cały ten wszechświat to ja, kto jest tym innym? Wszystko jest mną, kim jest ten inny? Ale to nie tak, to fala mózgowa lub fala mózgowa ego. (Usiądź, poproszę, jeśli będę czegoś potrzebowała. To przeszkadza innym. Usiądź. Omawiamy bardzo ważny temat. W tej chwili nie będę niczego potrzebowała. Nawet jeśli będę siedziała przez 9 godzin, nie będę niczego potrzebowała. Proszę usiąść bez obaw. Nie powinniście przeszkadzać. Usiądź, proszę.)
 
-In a simple Hindi language, “Jaise rakhahu taise hi rahu”: “Whichever way you keep me, I’ll remain in that state, and I’ll enjoy”. Further, in this poem, Kabira says, “If you make me go on an elephant” - means the royal conveyance - “I’ll go. If you make me walk, I’ll walk”. “Jaise rakhahu taise hi rahu”. So no reaction on that point, no reaction. First no explanation, no reaction.
+Więc kto jest tym innym? Nikt! Jest to możliwe tylko wtedy, kiedy wasz Duch wchodzi do waszego mózgu i stajecie się nieodłączną częścią samej Viraty. Virat jest mózgiem, jak wam mówiłam. Wtedy, wszystko co robicie - kiedy pokazujecie swój temperament, kiedy okazujecie swoje uczucia, okazujecie swoje współczucie, wszystko jest wyrazem Ducha, ponieważ mózg tracił swoją tożsamość. Tak zwany ograniczony mózg staje się nieograniczonym Duchem. Nie wiem, naprawdę nie wiem, do czego to porównać.
 
-Now, second is about food. But that’s the first seeking human beings had as animals. No attention on food! Whether you have salt or not, whether you have this or that - no attention on food. Actually, you should not remember what you ate this morning. But we think as to what we are going to eat tomorrow. We consume food not for running this body, but for sort of a more satisfaction of tongue pleasures. Once you start understanding that pleasure is a sign of gross attention - any kind of pleasure is a very gross sensationalisation - sensations. Very gross it is.
+Ale jesteśmy w stanie zrozumieć, że jeśli farba zostanie wrzucona do oceanu, zabarwienie oceanu nie jest możliwe. Ale - spróbujcie zrozumieć, że jeśli trochę koloru, ograniczoną ilość koloru, wrzucimy do oceanu, kolor całkowicie straci swoją tożsamość. Pomyślcie na odwrót. Jeśli ocean jest kolorowy i przelewa się do atmosfery, lub na jakąś jej część, jakąkolwiek odrobinę, lub jakikolwiek punkt, na jakiś atom lub cokolwiek, wszystko to staje się kolorowe.
 
-But when I say, “No pleasures”, means, doesn’t mean that you should become serious people and people of, sort of, as if somebody is dead in your family! (Laughter, Shri Mataji laughs) But you should be like Shiva. So detached. He came on a bull, which was running very fast, to get married. He was sitting on a bull with His two feet like this, you see, and the bull is running fast and He is holding the bull. The feet like this! (Shri Mataji laughs) And He’s coming for His wedding. And with Him are coming people with one eye, without noses, all kinds of funny people coming with Him. And His wife feeling quite embarrassed at the nonsensical (Shri Mataji laughs) things people are talking about Shiva. He is not bothered what’s His reputation would be, this thing. But that doesn’t mean that you become hippies. You see, this is the problem is: that once you start thinking like that, you become hippies.
+Więc Duch jest jak ocean, który ma w sobie światło. A kiedy ten ocean się wleje do małego naczynka naszego mózgu, naczynko traci swoją tożsamość i wszystko staje się duchowe. Wszystko. Możecie uczynić wszystko duchowym, wszystko. Czegokolwiek dotkniecie, jest duchowe: ten piasek staje się duchowy, ta ziemia staje się duchowa, atmosfera staje się duchowa, ciała niebieskie stają się duchowe. Wszystko staje się duchowe.
 
-Many people believe that if you try to behave like Shiva, you become Shiva. Many believe that way: that if you take ganja, you become Shiva because Shiva used to take ganja. Because He used, He was consuming all that to finish off from this world. For Him what does it matter whether it’s a ganja or anything? Give Him anything, He’ll never get drunk, no question. He is consuming all that. Or they think if they live like Shiva, the way He was detached about things, least bothered about His appearances. What appearance Shiva needs is that, whatever He appears as His beauty. He doesn’t need anything to be done.
+Duch jest oceanem, podczas gdy wasz mózg jest ograniczony. Trzeba więc wprowadzić dystans do ograniczonego mózgu. Wszystkie ograniczenia mózgu powinny zostać przełamane tak, że gdy ten ocean wypełni mózg, powinien on rozbić to małe naczynko, i każda cząstka tego naczynka powinna się zabarwić. Cała atmosfera, wszystko cokolwiek zlokalizujecie, powinno być kolorowe. Kolor Ducha to światło Ducha; i to światło Ducha działa, pracuje, myśli, koordynuje, robi wszystko. To jest powód, dla którego dziś zdecydowałam się wprowadzić Zasadę Shivy do mózgu.
 
-So, attachment to anything is ugliness. Is ugliness, is nonsense. But you can dress up whatever way you like, or even if you are in the most ordinary dress, you will look the most magnificent person. But it’s not that if you, if you say that, “All right, so under these circumstances, let us go about on a one sheet wrapped around”. The beauty that has evolved within you through Spirit, gives you that power that you can wear whatever you feel like - makes no difference to your beauty, your beauty is there all the time.
+Pierwszą procedurą jest skierowanie mózgu ku Zasadzie Shivy mówiąc: "Spójrz, dokąd zmierzasz, panie Mózgu? Kierujesz uwagę na to, kierujesz uwagę na tamto, angażujesz się - teraz uwolnij się, stań się mózgiem samym w sobie. Tylko mózgiem. Uwolnij się, uwolnij.
 
-But have you achieved that state? And that state only you achieve when your Spirit enters into your brain. With ego-oriented people is more difficult, and that’s why they cannot enjoy things. At the slightest pretext, they topple down. And Spirit, which is the source of joy, just doesn’t come in, doesn’t show. The joy is beauty. The joy itself is beauty. But that is a state one has to achieve.
+A wtedy zyskacie ten wolny mózg, całkowicie wypełniony kolorem Ducha. To stanie się automatycznie. Tak długo, jak wasza uwaga będzie ograniczona, to się nie stanie. Więc musicie naprawdę, celowo robić tapasyę. Każdy indywidualnie. Jestem z wami; więc nie potrzebujecie w ten sposób żadnej pujy. Ale ten stan musi zostać osiągnięty, aby osiągnąć ten stan, potrzebujecie pujy. Mam nadzieję, że tak wielu z was stanie się Zasadami Shivy za mojego życia. Ale nie myślcie, że proszę was, abyście cierpieli. Na tej drodze wzrostu nie ma cierpienia.
 
-Attachments come by various methods. If you go little ahead with it, then you have attachments of your family, “What will happen to my child? What will happen to my husband? What will happen to my mother, to my wife?”, this, that nonsense. Who is your father and who is your mother? Who is your husband and who is your wife?
+Jeśli rozumiecie, że to jest całkowicie radosny stan, to jest czas, kiedy stajecie się Niranandą. Tak nazywa się radość w Sahastrarze, imię radości to Nirananda i wiecie, że wasza Matka ma na imię Nira. Więc stajecie się Niranandą. Zatem dzisiejsze czczenie Shivy ma szczególne znaczenie. Mam nadzieję, że cokolwiek robimy na zewnątrz w przyziemny sposób, dzieje się również w subtelniejszy sposób.
 
-For Shiva, He doesn’t know all these things. To Him, He and His Power are inseparable things. So He stands as singular personality. There is no dual... duality. When there is duality, then only you say, “my wife.” You go on saying, “my nose, my ears, my hands, my, my, my, my.” Go, go, go deep down. Till you say “my”, there is some duality. But when I say, “I, the nose”, then there is no duality. Shiva the Shakti, Shakti the Shiva. There’s no duality. But we live throughout on our duality, and because of that, there is an attachment.
+Staram się wcisnąć wasze Duchy w wasze mózgi, ale czasem wydaje Mi się to trudne, ponieważ wasza uwaga jest nadal uwikłana. Spróbujcie się uwolnić. Gniew, pożądanie, chciwość - wszystko to. Spróbujcie je zmniejszyć.
 
-If there’s no duality, what is the attachment, you see? If you are the light and you are the lamp, then where is the duality? If you are the moon and you are the moonlight, then where is the duality? If you are the sun and you are the sunlight, you are the word and you are the meaning, then where is the duality?
+Tak jak z jedzeniem, powiedziałam dzisiaj Warrenowi: "Poproś ich, aby jedli mniej, a nie jak żarłoczni ludzie". Od czasu do czasu, w dniu wielkiego bankietu lub czegokolwiek, jecie więcej, ale nie możecie cały czas tyle jeść. To nie jest oznaka Sahaja yogina. Spróbujcie to kontrolować.
 
-But when there is this separation, there is duality, and because of this separation, you feel attached. Because if you are that, how will you be attached? Do you see that point? Because there is a difference and a distance between you and yours, that’s why you get attached to it. But it’s me, who is the other? This whole universe is me, who is the other? Everything is me, who is the other? But it’s not that, it’s a brainwave or a ego brain wave.
+Spróbujcie kontrolować mowę. Czy wyrażacie w swojej mowie gniew, czy wyrażacie współczucie, lub jesteście sztucznie współczujący - spróbujcie to kontrolować. Wiem, że niektórzy z was niewiele mogą zrobić. To jest w porządku. Będę starała się powiedzieć wam to wiele razy. Będę starała się wam pomóc. Ale większość z was może to zrobić i powinniście spróbować.
 
-(Translation from Marathi: “Sit down, sit down. I will ask if I need something. It’s disturbing others. Sit down. We are talking about a very important topic. I won’t need anything at this moment. Even if I sit for nine hours I won’t need anything. Please sit without worrying. You should not disturb. Sit, please”)
+Tak więc od dzisiaj rozpoczynamy naszą Sahaja Yogę na głębszym poziomie, gdzie niektórzy z was mogą nie dotrzeć. Ale większość z was powinna spróbować wejść głębiej. Wszyscy. Do tego nie potrzebujecie osób, które są bardzo dobrze wykształcone, lub którym dobrze się powodzi w życiu. Nie, wcale nie. Ale ludzi, którzy medytują, są oddani, wchodzą głębiej, ponieważ oni są jak pierwsze korzenie, które muszą sięgać dużo głębiej dla innych, aby inni mogli za nimi podążać.
 
-So who is the other? Nobody!
+Teraz na dzisiejszej Pujy będziemy mieli bardzo krótką 'Ganesh Atharva Sheersh'. Nie myjemy Moich stóp ani nie robimy niczego z tym związanego, ale mówi się Atharvie Sheersha, i możecie umieścić... Jest tak, że podczas Shiva pujy nie ma potrzeby mycia Moich stóp, gdyż On jest już czystością. Shiva jest cały czas czystością, czysty, nieskazitelny. Więc co będziecie myć w Nieskazitelnym?
 
-That’s only possible when your Spirit comes into your brain, and you become part and parcel of Viraat Itself. Viraat is the brain, as I told you. Then everything that you do - when you show your temper, when you show your affection, when you show your compassion, anything - is the Spirit that is expressing, because brain has lost its identity. The so-called limited brain - it has become the unlimited Spirit.
+Można powiedzieć: "Matko, kiedy myjesz swoje stopy, otrzymujemy Twoje wibracje w wodzie". Ale [On jest] tak odwiązany, że nie ma potrzeby mycia, w stanie, w którym jesteście całkowicie umyci, całkowicie wyczyszczeni.
 
-I do not know, I really do not know how to give an analogy to a thing like that. But what we can do is to understand it, that if a colour is dropped in the ocean, the ocean becomes colourful - is not possible. But - try to understand, if a little colour, limited colour, is dropped into the ocean, the colour loses its identity completely. Think of the other way round. If the ocean is coloured, and is poured into atmosphere or onto any part, any - any little wee bit, or onto any spot, onto any atom or anything, it all becomes colourful.
+Potem będziemy mieli Puję do Devi, ponieważ należy czcić Gauri, która jest Dziewicą. Powiemy więc sto osiem imion Dziewicy, a potem zrobimy Puję do Shivy.
 
-So the Spirit is like the ocean, which has the light in it. And when this ocean pours into the little cup of our brain, the cup loses its identity, and everything becomes spiritual. Everything. You can make everything spiritual, everything. You touch anything, is spiritual: this sand becomes spiritual, the land becomes spiritual, atmosphere becomes spiritual, celestial bodies become spiritual. Everything becomes spiritual.
+Przepraszam za to, że nie mogę wam powiedzieć wszystkiego w jednym krótkim wykładzie, ale odwiązanie musi zacząć samo się wyrażać w waszej Realizacji. Odwiązanie. Czym jest oddanie się? Jest niczym, ponieważ kiedy jesteście odwiązani, jesteście automatycznie oddani. Kiedy trzymacie się innych rzeczy, nie poddajecie się, to wszystko. Czym jest oddanie się dla Mnie?
 
-So is the ocean that is the Spirit, while your brain is limited. So the detachment from your limited brain has to be brought in. All limitations of brain should be broken, so that when this ocean fills that brain, it should break that little cup, and every bit of that cup should become colourful. The whole atmosphere, everything, whatever you locate, should be colourful. Colour of the Spirit is the light of the Spirit; and this light of the Spirit acts, works, thinks, coordinates, does everything.
+Jestem tak wolną osobą, że nie rozumiem tego wszystkiego. To znaczy, co mogę od was uzyskać? Jestem tak odwiązana. Nic.
 
-This is the reason today I decided to bring Shiva Tattwa to the brain. The first procedure is to take your brain towards the Shiva Tattwa by telling it, “See, where are you going, Mr. Brain? You’re putting attention to this, you’re putting attention to that, getting involved - now detach, become the brain yourself, only the brain. Detach! Detach!”
+Więc dzisiaj mam nadzieję, że wszyscy będziemy się modlić: "O Panie, daj nam siłę i to źródło przyciągania, dzięki którym porzucimy przyciąganie przez wszystkie przyjemności, radości ego, wszystko to, o czym myślimy, a powinniśmy wpaść w formę czystej radości Zasady Shivy. Całkowicie".
 
-And then, take this detached brain, completely filled with the colour of the Spirit. It will automatically happen. As long as you’ll have these limitations to your attention, it will not happen. So one has to really, deliberately do this tapasya, every individual.
+Mam nadzieję, że udało Mi się wyjaśnić wam, dlaczego jestem tu dzisiaj, i dlaczego dzisiaj jest bardzo wielki dzień. Wszyscy, którzy tu jesteście, jesteście szczególnie bardzo szczęśliwymi ludźmi, którzy powinni myśleć, że Bóg był dla was łaskawy, że wybrał was, abyście dzisiaj byli tutaj i tego wysłuchali. A potem, kiedy pozbędziecie się przywiązań, poczujecie się odpowiedzialni - Abhiyukta - odpowiedzialni. Ale to odpowiedzialność, która nie powoduje ego, lecz odpowiedzialność, która wykonuje sama z siebie, która wyraża się sama z siebie, która manifestuje się przez samą siebie.
 
-I’m with you; so you don’t need any puja that way. But that state has to be achieved, and for achieving that state, you need the puja. I hope so many of you’ll become the Shiva tattwas in my lifetime. But don’t think I’m asking you to suffer. There is no suffering in this kind of an ascent. If you understand that this is the complete joyous state, that is the time when you become Nirananda. That’s the joy named in the Sahasrara, the name of the joy is Nirananda, and you know your Mother’s name is Nira. So you become Nirananda.
-
-So today’s worship of Shiva has a special meaning. I hope whatever we do in the outward way, in a gross way, happens also in the subtler way. I’m trying to push your Spirits into your brains, but I find it rather, sometimes, difficult because your attention is still involved.
-
-Try to detach yourself. Temper, lust, greed - everything. Try to reduce. Like in food I told today Warren, “Ask them to eat less, not like gluttonous people”. You see, once in a while, on a day of a big banquet or anything, you eat more, but you can’t eat every time like that. It’s not a sign of a sahaja yogi. Try to control. Try to control your speech. Whether you express temper in your speech or you express your compassion or you are artificially compassionate - try to control. I know, some of you may not do much. It’s all right. I’ll try to tell you many-a-times. I’ll try to help you. But most of you can do it, and you should try that.
-
-So, on a deeper level, from today we start our Sahaja Yoga, where some of you may not attain. But most of you should try to go deeper. Everyone. For that, you don’t need persons who are very well educated or well placed in life. No, not at all. But people who meditate, dedicate, go deeper, because they are like the first roots, which have to reach for others much deeper, so that others can follow.
-
-Now for today’s Puja, we’ll have a very short Ganesh Atharva Sheersh. Just a - not washing my feet or anything much on it, but is a saying of Atharva Sheersha, and you can put...
-
-(Translation from Marathi: “That is during Shiva puja there is no need to wash my feet, as it’s already pure”)
-
-Shiva is all the time clean, pure, immaculate. So what are you going to wash the Immaculate? One may say that, “Mother, when You wash Your Feet, we get Your vibrations in the water”. But so detached that there’s no need to wash, at a state where you get completely washed, completely cleaned out.
-
-Then we’ll have a Devi Pujan because Gauri, who is Virgin, is to be worshipped. So we’ll say the hundred-and-eight names of the Virgin, then we’ll do the Shiva Puja.
-
-I’m sorry, I cannot tell you everything in one short speech all about this, but detachment must start expressing itself in your Realisation. Detachment. What is surrendering? Is nothing because when you are detached, you are surrendered, automatically. When you are holding onto other things you are not surrendered, that’s all. What is there to surrender? I am such a detached person, I don’t understand all that. I mean, what am I to get out of you? I am so detached. Nothing.
-
-So today, I hope we all pray that, “Oh Lord, give us strength and that source of attraction by which we give up all other attractions of all the pleasures, of joy of ego, of everything that we think of, but we should fall into the pure joy form of the Shiva Tattwa. Absolutely.”
-
-I hope I’ve been able to explain to you why I am here today, and why today is a very big day. You all who are here, are specially very lucky people, who should think that God has been kind to you, that He has chosen you today to be here to listen to this.
-
-And then, once you get detached, you’ll start feeling responsible – abhiyukt - responsible. But a responsibility, not giving ego, but responsibility which is executing by itself, which is expressing by itself, manifesting by itself.
-
-May God bless you all.
-
-(Shri Mataji concludes with a few sentences in Marathi)
-
-(Yogis recite Ganesha Atharva Sheersha. Afterwards the “Argala Stotram” is recited in Sanskrit, while ladies make the decoration of the Devi. At the end Shri Mataji says:)
-
-Shri Mataji: As Bhavani, as the consort of Shiva, She doesn’t wear anything very ornamental. As if the oneness with Shiva sucks in all that is manifesting outside. So not much ornaments or anything are to be used. Again this is to make you understand – on rational level it’s difficult.
-
-But all this manifestation is when you are not one with Sadashiva. But once you become one with Him, then your identity is lost, no duality anymore remains. So the question of “me and my power” does not arise, “me and my power” become one.
-
-Sahaja Yogi: Shiva Shakti Swarupini.
-
-Shri Mataji: Shiva Shakti.
-
-Sahaja Yogis: Om twameva Sakshat Shri Shiva Shakti Swarupini Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namoh Namaha.
-
-(Brief conversation with a yogi in marathi)
-
-Sahaja Yogi: Havan?
-
-Shri Mataji: Now the Havana will start.
-
-Sahaja Yogi: ... Shiva Sahasranama?
-
-Shri Mataji: Shiva Sahasranama.
-
-(Marathi)
-
-(Shri Mataji is looking at the book probably containing the Names of Shri Shiva) “She is the one who is the Mediator”. So first you have to adjust to the Goddess that is, who resides in the heart of Shri Shiva, and then you have to describe Shiva in a short form. And when this is going on, you people should start coming here and working it out (Marathi).
-
-Let’s have some ladies and gents to sit here. Come along, some married people, one or - two couples from you, basaa (sit). Two couples.
-
-New couples... (Marathi). Basaa.
-
-And now some foreigners. Married couples. (Marathi).
-
-Come here. Come closer. Your wife, where is she?
-
-Sahaja Yogi: She is coming now.
-
-Shri Mataji: Ah. Sit here. Alright. Sit facing that. There. Ah. Or you sit that side and she’d better sit this side.
-
-Oh. Now. When he is saying all these, you see, you’ll have to put the flowers there. On that. You’ll have to spread it, the flowers. Come along, go ahead, closer. Just be closer. Closer. Still there are - come closer to each other. (Marathi)
-
-Just go that side a little bit. Move it (Marathi).
-
-Sit on one side. (Marathi)
-
-Please clear one foot, and don’t make a complete this thing, like this will be better.
-
-All right, now, at this time when he is putting his... (Shri Mataji speaks in Marathi, then says: “Bull” in English) it’s a very fast one. So what you have to do it’s a fast number, Shiva is a fast number (laughter), that’s why you’ve to be prepared very fast on the point, you see. No, no, no, no (Marathi).
-
-First you have to put the flowers, and then you have to put the – the ladies should arrange this, they, they are better. See, put the... (Marathi).
-
-First the flowers (Marathi), first the flowers and then (Marathi... “fast number”...).
-
-Now first of all they’ll put the flowers and then arrange the whole thing, and by the time it is done then we’ll start the...
-
-Sahaja Yogi: Sahasranama. (Conversation in Marathi).
-
-Mr. Warren, Mr. Dhumal, Mr. Modi.
-
-Please come.
-
-Shri Mataji: Those who have come without their wives.
-
-Sahaja Yogi: All those who have come without their ...
-
-Shri Mataji: ... wives, who are leaders also.
-
-Sahaja Yogi: ... and who are leaders.
-
-Shri Mataji: Not with wives. Those who have come with wives should not come.
-
-(Conversation in Marathi, which seems to be about Dhumal) Is alright (Shri Mataji laughs). Without wives should... (indistinct) (Marathi).
-
-Sahaja Yogi: Pradhan.
-
-Shri Mataji: Pradhan. Yes, yes. (Marathi).
-
-You all have to come here.
-
-You move that side, married people with wives. Come along, round. These are sannyasis. (Marathi)
-
-Come along, all of you. (Marathi)
-
-Come along, all of you should be here (Marathi) Come along. Rajesh? (Marathi) Come along, all of you. (Marathi) Come along.
-
-(The havan begins with the recitation of the Names of Shri Shiva. During the ceremony, while the sahaja yogis make the offerings to the fire, the leaders around Shri Mataji offer leaves on Her feet).
-
-Warren...? All of you should come this side.
-
-(After recitation of the Names, a praise of Shri Shiva is sung)
-
-Sahaja Yogis: Om Twameva Sakshat Shri Shiva Parvati Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namoh Namaha.
-
-(The singing of the praise to Shri Shiva continues)
-
-Sahaja Yogis: Om Twameva Sakshat Shri Shiva Parvati Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namoh Namaha.
-
-(Indistinct conversation in Marathi, then Shri Mataji says: “Rajesh? ... The havan...” and spreads ashes on Her forehead).
-
-Shri Mataji: Should go into meditation for five minutes. You can – you can bow before me, but go into meditation.
-
-(Marathi. A garland is offered on Shri Mataji’s Feet. A liquid which looks like milk is offered on Her hands. Then She takes a cup of tea; conversation with yogis in Marathi)
-
-What silence.
-
-(Marathi, yogis take away the leaves decorations from the Feet of Shri Mataji. For this Shri Mataji then sits with legs apart)
-
-Shivaji’s special pose... (Marathi) See, is a special pose of Shiva.
-
-(Shri Mataji stands up, goes near the havan fire and puts Her hand towards the fire and acts as sending, shaking vibrations from the hands into the fire.)
-
-Shri Mataji: You all should all put your hands here, and then come, go back: all of you.
-
-Now. Symbolically, the fire represents the Vishnu Tattwa. And the cold represents the Shiva Tattwa.
-
-Today as we have asked the Shiva Tattwa to enter into the Vishnu Viraata, you should all come and put your hands here and try to put symbolically your vibrations into the fire, as I have done now. You can come one by one, but I’ll make a move now.
-
-May God bless you all.
-
-Oh, that’s the best. Dhuni should be there.
-
-It should be the fire. Not the fire, but more the smoke. That’s important.
-
-May God bless you.
+Niech Bóg was błogosławi.
