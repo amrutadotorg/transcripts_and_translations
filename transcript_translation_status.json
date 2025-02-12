@@ -12084,6 +12084,10 @@
         "transcript-english-draft"
     ],
     [
+        80137,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13936,10 +13940,6 @@
         "transcript-marathi-reviewed-mr"
     ],
     [
-        12959,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         12970,
         "transcript-marathi-needed-mr"
     ],
@@ -14025,10 +14025,6 @@
     ],
     [
         19207,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        19209,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -14184,10 +14180,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        44418,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         58227,
         "transcript-marathi-needed-mr"
     ],
@@ -14244,38 +14236,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        61903,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61905,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61908,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61914,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61918,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61921,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61923,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        61926,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         61989,
         "transcript-marathi-needed-mr"
     ],
@@ -14285,14 +14245,6 @@
     ],
     [
         62003,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        62042,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        62044,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -14360,10 +14312,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        79888,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         79893,
         "transcript-marathi-needed-mr"
     ],
@@ -14381,6 +14329,50 @@
     ],
     [
         19209,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        44418,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61903,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61905,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61908,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61914,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61918,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61921,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61923,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61926,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        62042,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        62044,
         "transcript-marathi-in-progress-mr"
     ],
     [
