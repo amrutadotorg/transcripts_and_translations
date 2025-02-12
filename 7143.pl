@@ -1,7 +1,7 @@
 24 kwietnia 1994
 We Should Support Each Other
 Mowa do Sahadźa Joginów
-The Peninsula Hong Kong, Hong Kong (China)
+The Peninsula Hong Kong, Hong Kong (Chiny)
 
 Skierujcie ręce w Moją stronę. Przede wszystkim muszę powiedzieć, Bardzo się cieszę, widząc tak wielu Sahaja Joginów w Hongkongu. Jak wiecie, Hongkong jest bardzo materialistycznym miejscem, a ludzie są zbyt zajęci, ale problemy wynikają z tej zajętości. Całe to zabiegane życie stwarza wiele problemów. Więc jestem pewna, że po ostatnim programie przybędzie ich więcej, na pewno będzie ich dużo, a wasze ręce będą miały co robić. Więc chciałam tylko powiedzieć, co naprawdę powinniśmy zrobić, aby osiągnąć maksymalne rezultaty. Przede wszystkim, musimy ustabilizować to, że jesteśmy Sahaja Yoginami, jesteśmy bardzo poważnymi ludźmi i mamy między sobą ogromny szacunek oraz miłość. Zatem, nie powinno się nigdy popierać osoby z zewnątrz, która nie jest jeszcze Sahaja Yoginem lub która będzie Sahaja Yoginem, ale przez cały czas należy wspierać się nawzajem. Nie kłóćcie się między sobą. Niewykluczone, że jedna osoba może się mylić. Ale jest ważne, że powinniśmy się wspierać, a przede wszystkim wspierać lidera.
 

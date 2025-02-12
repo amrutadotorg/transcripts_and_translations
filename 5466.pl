@@ -1,8 +1,6 @@
-1 January 1977
-Talk to Sahaja Yogis
-New Delhi (India)
-Talk Language: English | Transcript (English) - VERIFIED
-
+1 stycznia 1977
+Mowa do Sahadźa Joginów
+Nowe Delhi (Indie)
 Najcenniejsza rzecz jaką mamy wewnątrz siebie ... bezcenność waszego ducha ... jest niemierzalna i dlatego jest określana jako coś o wiecznej wartości.
 
 Ponieważ on jest nieskończony, nie możecie go zmierzyć. O Bogu Wszechmogącym mówimy, że jest Sat-Chit-Anand. ‘Sat’ znaczy ‘prawda’. Prawda, którą rozumiemy wg ludzkiej terminologii, jest względna..., ale ‘sat’, o której wam mówię, jest absolutem, skąd wszystkie relacje się zaczynają.
