@@ -2464,6 +2464,10 @@
         "transcript-english-reviewed"
     ],
     [
+        5742,
+        "transcript-english-reviewed"
+    ],
+    [
         5769,
         "transcript-english-reviewed"
     ],
@@ -3205,6 +3209,10 @@
     ],
     [
         71624,
+        "transcript-english-reviewed"
+    ],
+    [
+        80140,
         "transcript-english-reviewed"
     ],
     [
@@ -7157,10 +7165,6 @@
     ],
     [
         5727,
-        "transcript-english-draft"
-    ],
-    [
-        5742,
         "transcript-english-draft"
     ],
     [
@@ -12088,6 +12092,10 @@
         "transcript-english-draft"
     ],
     [
+        80139,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13340,10 +13348,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19634,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19639,
         "transcript-hindi-needed-hi"
     ],
@@ -13729,6 +13733,10 @@
     ],
     [
         19279,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        19634,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -20114,5 +20122,17 @@
     [
         80134,
         "translation-hindi-to-english-draft-ru"
+    ],
+    [
+        80138,
+        "translation-hindi-to-english-draft-ro"
+    ],
+    [
+        80140,
+        "translation-hindi-to-english-draft-ro"
+    ],
+    [
+        80139,
+        "translation-marathi-to-english-verified-ro"
     ]
 ]
