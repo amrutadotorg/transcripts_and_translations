@@ -1,3 +1,6 @@
+30 grudnia 1989
+Dewi Pudźa
+Brahmapuri (Indie)
 Brahmapuri Puja. Brahmapuri (Indie), 30 Grudnia 1989.
 
 Przykro mi z powodu tego, co się wczoraj stało, ale myślę, że rozpoczęła się wojna między złem, a dobrem i mimo wszystko dobro zwycięża.

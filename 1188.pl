@@ -1,3 +1,6 @@
+30 marca 1976
+Gudi Padwa Pudźa
+Nowe Delhi (Indie)
 Gudi Padwa, Medytacja w świadomości bez myśli, 30.03.1976 Delhi, Indie
 
 Nie możemy medytować, możemy tylko być w medytacji. Gdy mówimy, że będziemy medytować, to nie ma żadnego znaczenia. Musimy być w medytacji. Niezależnie od tego, czy jesteście w domu czy też poza domem nie możecie być w domu i mówić: "Teraz jestem poza domem". Lub gdy jesteście poza domem, nie możecie mówić: "Jestem w domu". W ten sam sposób poruszacie się w trzech wymiarach waszego życia - emocjonalnego, fizycznego i mentalnego istnienia. Nie jesteście wewnątrz siebie. Lecz gdy już jesteście wewnątrz siebie, znajdujecie się w świadomości bez myśli. Wtedy nie tylko tam się znajdujecie, lecz jesteście wszędzie, ponieważ to jest to miejsce, to jest ten punkt, gdzie wy istniejecie naprawdę w czymś, co jest wszechświatowe...
