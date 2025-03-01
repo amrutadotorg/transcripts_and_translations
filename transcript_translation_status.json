@@ -12088,7 +12088,7 @@
         "transcript-english-draft"
     ],
     [
-        80172,
+        80174,
         "transcript-english-draft"
     ],
     [
@@ -20122,5 +20122,9 @@
     [
         80045,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80174,
+        "translation-hindi-to-english-draft-kn"
     ]
 ]
