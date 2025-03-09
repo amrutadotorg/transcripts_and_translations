@@ -1,3 +1,6 @@
+13 septiembre 1995
+Conference
+Guanjunyuan Hotel, Beijing (China)
 Mesa redonda interregional
 
 Cuarta conferencia internacional sobre la mujer
