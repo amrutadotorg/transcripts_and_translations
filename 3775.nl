@@ -1,3 +1,6 @@
+31 juli 1982
+Talk to Sahaja Yogis
+Cowley Manor, Cheltenham (England)
 Toespraak tot Sahaja yogi’s - Volledige toewijding - Cowley Manor, UK - 31-07-1982
 
 Translation not verified. Dear yogi, register as volunteer to do so.

@@ -1,3 +1,6 @@
+3 marca 1996
+Mahashivaratri Pudźa
+Bundilla Scout Camp, Sydney (Australia)
 Mahashivaratri Puja, Motywujcie swoją uwagę, 03.03.1996, Bundilla Scout Camp, Sydney (Australia)
 
 Dzisiaj zrobimy Puję do Shri Shivy. Jak wiecie Shri Shiva jest odbiciem Sadashivy w nas. Mówiłam już o tym odbiciu. Sadashiva jest Bogiem Wszechmogącym, tym, który widzi grę Adi Shakti. Ale On jest Ojcem, który obserwuje każde ze Swojego Stworzenia lub Jej Stworzenia. Jego wsparcie dla Adi Shakti jest całkowicie, w pełni wzmacniające. W Jego umyśle nie ma wątpliwości co do zdolności Adi Shakti. Ale kiedy On odkryje, że w grze Adi Shakti ludzie ze świata jako takiego, próbują przeszkadzać Jej, albo niszczyć Jej pracę, wtedy On wpada w swój gniewny nastrój i niszczy wszystkich takich ludzi, i On może zniszczyć cały świat. Z jednej strony On jest gniewny, bez wątpienia, z drugiej strony jest oceanem współczucia i radości. Właśnie dlatego, kiedy On odzwierciedla się w nas, otrzymujemy naszą Samorealizację. Dostajemy światło naszego Ducha i wchodzimy do oceanu radości.

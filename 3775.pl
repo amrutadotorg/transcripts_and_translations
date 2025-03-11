@@ -1,3 +1,6 @@
+31 lipca 1982
+Mowa do Sahadźa Joginów
+Cowley Manor, Cheltenham (Anglia)
 Całkowite oddanie jedyną drogą (Oddanie przez medytację ) Cowley Manor Seminar, 31.07.1982, Anglia
 
 [Tekst wymaga weryfikacji z transkryptem angielskim i korekt. Czaka na wrzucenie na listę dialgową]

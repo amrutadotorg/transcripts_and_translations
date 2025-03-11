@@ -1,3 +1,6 @@
+3 марта 1996
+Mahashivaratri Puja
+Bundilla Scout Camp, Sydney (Australia)
 Махашиваратри пуджа: «Мотивируйте своё внимание». 
 
 Сидней, Австралия, 3 марта 1996 года.

@@ -1,3 +1,6 @@
+3 marzo 1996
+Mahashivaratri Puja
+Bundilla Scout Camp, Sydney (Australia)
 Mahashivaratri Puja: Activa tu atención
 
 Sidney, Australia 3-3-1996

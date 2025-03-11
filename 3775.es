@@ -1,3 +1,6 @@
+31 julio 1982
+Talk to Sahaja Yogis
+Cowley Manor, Cheltenham (England)
 Seminario: "La dedicación mediante la meditación". Cowley Manor, Cheltenham, Reino Unido. 31 de julio de 1982.
 
 Hoy voy a decir algo que debería haber dicho hace mucho tiempo. Como os dije es necesario que me reconozcáis. Y ese reconocimiento está fijado, es una condición fija y no la puedo cambiar. Cristo dijo: "Cualquier cosa en contra de Mí será tolerada, será perdonada, pero nada en contra del Espíritu Santo". Es una gran advertencia y la gente quizá no se da cuenta de lo que significa. Desde luego es verdad que ninguno de vosotros está en contra de mí, sois mis hijos, os amo mucho y vosotros me amáis. Es tan solo la advertencia que Cristo os dio, pero deberíamos pensar por qué no progresamos tan rápido como deberíamos.
