@@ -1,3 +1,6 @@
+20 marzo 2003
+Birthday Felicitations
+New Delhi (India)
 Felicitaciones de Cumpleaños. Nirmal Dham, Delhi, India. 20 de marzo de 2003.
 
 Hoy todo el mundo está intentando hablaros en inglés, porque creo que se dan cuenta de que la mayoría de vosotros lo habláis. Ojalá pudiera deciros algo nuevo sobre la vida. La vida sigue su curso. Es igual si tenéis ochenta o noventa años. Lo único importante es cuánto habéis usado la luz que habéis obtenido en Sahaja Yoga.
