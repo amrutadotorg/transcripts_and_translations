@@ -6404,6 +6404,10 @@
         "transcript-english-verified"
     ],
     [
+        73169,
+        "transcript-english-verified"
+    ],
+    [
         73172,
         "transcript-english-verified"
     ],
@@ -6421,6 +6425,10 @@
     ],
     [
         80195,
+        "transcript-english-verified"
+    ],
+    [
+        80212,
         "transcript-english-verified"
     ],
     [
@@ -12028,10 +12036,6 @@
         "transcript-english-draft"
     ],
     [
-        73169,
-        "transcript-english-draft"
-    ],
-    [
         73171,
         "transcript-english-draft"
     ],
@@ -12273,6 +12277,10 @@
     ],
     [
         14075,
+        "transcript-hindi-draft-hi"
+    ],
+    [
+        14078,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -12884,6 +12892,10 @@
         "transcript-hindi-verified-hi"
     ],
     [
+        19352,
+        "transcript-hindi-verified-hi"
+    ],
+    [
         19359,
         "transcript-hindi-verified-hi"
     ],
@@ -13009,10 +13021,6 @@
     ],
     [
         19342,
-        "transcript-hindi-reviewed-hi"
-    ],
-    [
-        19352,
         "transcript-hindi-reviewed-hi"
     ],
     [
@@ -13725,10 +13733,6 @@
     ],
     [
         11788,
-        "transcript-hindi-in-progress-hi"
-    ],
-    [
-        14078,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -15280,6 +15284,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        8469,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         8483,
         "translation-hindi-to-english-draft"
     ],
@@ -15812,6 +15820,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        38473,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         44359,
         "translation-hindi-to-english-draft"
     ],
@@ -15872,10 +15884,6 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
-        8469,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
         8630,
         "translation-hindi-to-english-in-progress"
     ],
@@ -15889,10 +15897,6 @@
     ],
     [
         33840,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
-        38473,
         "translation-hindi-to-english-in-progress"
     ],
     [
