@@ -1,3 +1,6 @@
+21 marzo 2002
+Birthday Puja
+New Delhi (India)
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2002.
 
 (Primero habla en hindi, a continuación habla en inglés)
