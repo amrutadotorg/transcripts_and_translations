@@ -1,3 +1,6 @@
+21 maart 2003
+Birthday Puja
+Nirmal Dham, New Delhi (India)
 80th Birthday Puja - Nirmal Dham, Delhi, India - 21 maart 2003
 
 [vertaald uit het Hindi]

@@ -1,3 +1,6 @@
+1 marzo 1983
+Ganesha Puja
+Perth (Australia)
 Shri Ganesha Puja
 
 Perth Western Australia 1-3 -1983

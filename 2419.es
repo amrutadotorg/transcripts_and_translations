@@ -1,3 +1,6 @@
+21 marzo 2004
+Birthday Puja
+New Delhi (India)
 Puja de cumpleaños
 
 Nueva Delhi. India, 21 de Marzo de 2004
