@@ -1,3 +1,6 @@
+21 marzo 1993
+Birthday Puja
+New Delhi (India)
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 1993.
 
 Incluso para mí, es difícil hablar al ver a tantos sahaja yoguis de todas partes del mundo aquí sentados, con caras tan brillantes, como si mi visión hubiera tomado forma hoy.

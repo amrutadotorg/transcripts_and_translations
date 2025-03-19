@@ -12,6 +12,10 @@
         "transcript-english-in-progress"
     ],
     [
+        56447,
+        "transcript-english-in-progress"
+    ],
+    [
         58280,
         "transcript-english-in-progress"
     ],
@@ -2328,6 +2332,10 @@
         "transcript-english-reviewed"
     ],
     [
+        2415,
+        "transcript-english-reviewed"
+    ],
+    [
         2624,
         "transcript-english-reviewed"
     ],
@@ -3485,10 +3493,6 @@
     ],
     [
         55911,
-        "transcript-english-needed"
-    ],
-    [
-        56447,
         "transcript-english-needed"
     ],
     [
@@ -6424,27 +6428,7 @@
         "transcript-english-verified"
     ],
     [
-        80214,
-        "transcript-english-verified"
-    ],
-    [
-        80219,
-        "transcript-english-verified"
-    ],
-    [
-        80221,
-        "transcript-english-verified"
-    ],
-    [
-        80223,
-        "transcript-english-verified"
-    ],
-    [
-        80224,
-        "transcript-english-verified"
-    ],
-    [
-        80227,
+        80228,
         "transcript-english-verified"
     ],
     [
@@ -6817,10 +6801,6 @@
     ],
     [
         2326,
-        "transcript-english-draft"
-    ],
-    [
-        2415,
         "transcript-english-draft"
     ],
     [
@@ -12121,26 +12101,6 @@
     ],
     [
         80197,
-        "transcript-english-draft"
-    ],
-    [
-        80217,
-        "transcript-english-draft"
-    ],
-    [
-        80220,
-        "transcript-english-draft"
-    ],
-    [
-        80222,
-        "transcript-english-draft"
-    ],
-    [
-        80225,
-        "transcript-english-draft"
-    ],
-    [
-        80226,
         "transcript-english-draft"
     ],
     [
@@ -20178,21 +20138,5 @@
     [
         80045,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        80214,
-        "translation-hindi-to-english-reviewed-pl"
-    ],
-    [
-        80217,
-        "translation-marathi-to-english-draft-pl"
-    ],
-    [
-        50347,
-        "translation-hindi-to-english-draft-pt-pt"
-    ],
-    [
-        80226,
-        "translation-hindi-to-english-draft-pt-pt"
     ]
 ]
