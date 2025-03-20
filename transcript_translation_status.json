@@ -6428,7 +6428,11 @@
         "transcript-english-verified"
     ],
     [
-        80228,
+        80230,
+        "transcript-english-verified"
+    ],
+    [
+        80232,
         "transcript-english-verified"
     ],
     [
@@ -13872,6 +13876,10 @@
         "transcript-marathi-verified-mr"
     ],
     [
+        19799,
+        "transcript-marathi-verified-mr"
+    ],
+    [
         20046,
         "transcript-marathi-verified-mr"
     ],
@@ -14701,10 +14709,6 @@
     ],
     [
         19693,
-        "transcript-marathi-draft-mr"
-    ],
-    [
-        19799,
         "transcript-marathi-draft-mr"
     ],
     [
