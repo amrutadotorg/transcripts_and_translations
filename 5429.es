@@ -1,3 +1,6 @@
+23 marzo 1980
+Birthday Puja
+4A Castletown Rd, London (England)
 Puja de Cumpleaños. Protegerse contra la pereza, Londres, Inglaterra, 23-03-1980
 
 El cumpleaños de vuestra Madre y todas estas celebraciones tienen un significado muy profundo, porque en tales ocasiones en la atmósfera fluyen vibraciones especiales.

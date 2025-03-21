@@ -1,3 +1,6 @@
+23 marca 1980
+Urodzinowa Pudźa
+4A Castletown Rd, Londyn (Anglia)
 Puja Urodzinowa, Ochrona Przed Lenistwem, 23.03.1980, Dollis Hill Ashram, London UK
 
 Urodziny waszej Matki i wszystkie te uroczystości mają głębokie znaczenie, ponieważ przy takich okazjach specjalne wibracje płyną do atmosfery. Kiedy wszystkie ciała niebieskie, wieczyste Osobowości, Bogowie i Boginie wyśpiewują pochwały, w ten sposób cała atmosfera wypełniona jest radością i szczęściem. Ludzie również wyrażają swoją wdzięczność. Wyrażanie wdzięczności i miłości odbywa się na różne, różne sposoby w różnych krajach, ale istota pozostaje ta sama, tylko jej formy się zmieniają. Istota jest jak ocean, który płynie nieprzerwanie w kierunku brzegów i fale, które dotykają brzegów są ponownie odpychane i tworzy się ładny wzór. To jest taka spontaniczna rzecz, i jest tak piękna, tworzy piękny wzór w atmosferze. Wszystkie te fale, kiedy splatają się razem we wzór miłości, łagodzą ludzi, oczarowują ludzi i całość jest bardzo błoga. Przy takich okazjach tworzy się specjalny rodzaj uczuć, których nie można wyrazić słowami, więc mogą one być wyrażone w każdej formie. Ale najważniejsza jest ta ekspresja.

@@ -44,6 +44,10 @@
         "transcript-english-in-progress"
     ],
     [
+        77167,
+        "transcript-english-in-progress"
+    ],
+    [
         77204,
         "transcript-english-in-progress"
     ],
@@ -57,10 +61,6 @@
     ],
     [
         79877,
-        "transcript-english-in-progress"
-    ],
-    [
-        79878,
         "transcript-english-in-progress"
     ],
     [
@@ -3984,10 +3984,6 @@
         "transcript-english-needed"
     ],
     [
-        79878,
-        "transcript-english-needed"
-    ],
-    [
         80061,
         "transcript-english-needed"
     ],
@@ -6428,11 +6424,7 @@
         "transcript-english-verified"
     ],
     [
-        80230,
-        "transcript-english-verified"
-    ],
-    [
-        80232,
+        80233,
         "transcript-english-verified"
     ],
     [
@@ -12100,6 +12092,10 @@
         "transcript-english-draft"
     ],
     [
+        79878,
+        "transcript-english-draft"
+    ],
+    [
         79891,
         "transcript-english-draft"
     ],
@@ -13576,10 +13572,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        20663,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         20798,
         "transcript-hindi-needed-hi"
     ],
@@ -13752,6 +13744,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        20663,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         20794,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13793,6 +13789,10 @@
     ],
     [
         17976,
+        "transcript-marathi-verified-mr"
+    ],
+    [
+        17979,
         "transcript-marathi-verified-mr"
     ],
     [
@@ -13937,10 +13937,6 @@
     ],
     [
         17951,
-        "transcript-marathi-reviewed-mr"
-    ],
-    [
-        17979,
         "transcript-marathi-reviewed-mr"
     ],
     [
@@ -16992,10 +16988,6 @@
         "translation-marathi-to-english-draft"
     ],
     [
-        19798,
-        "translation-marathi-to-english-draft"
-    ],
-    [
         20075,
         "translation-marathi-to-english-draft"
     ],
@@ -18017,6 +18009,10 @@
     ],
     [
         12488,
+        "translation-marathi-to-english-verified"
+    ],
+    [
+        19798,
         "translation-marathi-to-english-verified"
     ],
     [
@@ -20021,6 +20017,10 @@
     ],
     [
         80216,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        80233,
         "translation-english-to-chinese-simplified-verified"
     ],
     [
