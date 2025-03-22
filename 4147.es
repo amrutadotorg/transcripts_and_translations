@@ -1,3 +1,6 @@
+21 marzo 1999
+Birthday Puja
+New Delhi (India)
 Puja de cumpleaños (Hindi). Nueva Delhi (India), 21 de Marzo de 1999
 
 Parte en Hindi (de los subtítulos)

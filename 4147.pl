@@ -1,3 +1,6 @@
+21 marca 1999
+Urodzinowa Pudźa
+Nowe Delhi (Indie)
 Pudźa Urodzinowa
 
 21 marca 1999, Delhi, Indie
