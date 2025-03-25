@@ -1,3 +1,6 @@
+21 marzo 1997
+Birthday Puja
+New Delhi (India)
 Puja de cumpleaños. Delhi (India), 21 de Marzode 1997.
 
 [Falta la traducción de la primer parte que está en Hindi, pero no verificada]
