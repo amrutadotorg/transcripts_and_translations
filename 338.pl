@@ -1,3 +1,6 @@
+8 maja 1988
+Sahasrara Pudźa
+Fregene (Włochy)
 Sahasrara Puja, "Jak to zostało postawionione". Fregene (Włochy), 8 Maja 1988.
 
 Dziś jest 19-y Dzień Sahasrary, jeżeli policzycie dzień, kiedy Sahasrara została otwarta po raz pierwszy.

@@ -1,3 +1,6 @@
+8 mayo 1988
+Sahasrara Puja
+Fregene (Italy)
 Sahasrara Puja: "Cómo se decidió". Fregene, Italia. 8 de mayo de 1988.
 
 Hoy es el decimonoveno día del Sahasrara, si contamos el día que se abrió el Sahasrara como el primero. Tengo que contaros la historia del día del Sahasrara, que fue algo que se decidió hace mucho tiempo, antes de que yo encarnara. Hubo una gran reunión en el Cielo y los treinta y cinco "karodes" de Dioses (cerca de un millón) y todas las Deidades estaban presentes para decidir qué había que hacer. Era lo último que había que hacer en los seres humanos, abrir su Sahasrara para abrir su conciencia hacia el Espíritu, hacia el conocimiento real del Divino y para eliminar la oscuridad de la ignorancia. Y debía ser un acontecimiento espontáneo porque debía hacer funcionar la Fuerza Viviente de Dios. Además debía hacerse muy rápidamente. Así que, todos los Dioses me pidieron que yo, la Adi Shakti, tomase nacimiento.

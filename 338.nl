@@ -1,3 +1,6 @@
+8 mei 1988
+Sahasrara Puja
+Fregene (Italy)
 Sahasrara Puja - Hoe het werd beslist - Fregene, Italië - 08/05/1988
 
 Translation not verified. Dear yogi, register as volunteer to do so.
