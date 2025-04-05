@@ -1,3 +1,6 @@
+2 kwietnia 1982
+Rama Pudźa
+Chelsham Road Ashram, Londyn (Anglia)
 Shri Ram Navami Puja, 02.04.1982 Chelsham Road, Londyn, Anglia
 
 Zatem przede wszystkim zacznijcie mówić o energiach, o tym, że te energie przepływają w nas i jak one aktywują. Potem mówicie o trzeciej energii, tej, która ewoluowała nas i że w taki sposób się tu znaleźliśmy. I mówicie o waszej Jaźni, cząstce kontrolującej, która was kontroluje - o Duchu. Więc jeśli będziecie iść po linii abstrakcji, to będzie przemawiać - te energie.

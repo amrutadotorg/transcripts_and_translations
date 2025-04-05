@@ -1,4 +1,6 @@
-Shri Rama puja
+2 abril 1982
+Rama Puja
+Chelsham Road Ashram, London (England)Shri Rama puja
 Wimbledon, London (UK), 1 Septiembre 1985
 
 Primero que todo, han de empezar hablando de las energías. Que estas energías se están moviendo dentro de nosotros y de cómo se activan. Entonces hablen de la tercera energía, la cual es la que nos ha evolucionado, y así es como nosotros hemos llegado a este estado. Y hablen de su Ser, la parte que los controla, que los está controlando, el Espíritu. Así, si ustedes se mantienen en una línea abstracta, será una forma muy atractiva de tratar con el tema. Después, una vez hayan hablado de las energías, esto, lo otro, “que está dentro de ustedes”, ya verán, ellos sentirán una especie de ego, “Oh, tenemos esta energía, podemos utilizarla, hacer esto, hacer aquello”, y entonces más adelante los hacen establecerse en Sahaja Yoga, pero para empezar, vamos a hablarles de lo abstracto; porque los indios son diferentes a los occidentales; porque los occidentales están hartos de las religiones, están hartos de todo estas cosas. Así que si ustedes les hablan de la religión, se crea un problema. Es por eso que en el principio, cuando fueron escritos los Vedas, no hablaban de Dios o deidades en absoluto. Hablaron acerca de Dios, Dios el Creador, pero solo de Brahmadeva, Hiranyagarbha. Hablaron del lado derecho y de todas las cosas, es decir, mantra, como, “Bhur, Bhuvah, Swaha”, tres cosas. Así, Bhur es en realidad el Mooladhara, es la Tierra, el Mooladhara.
