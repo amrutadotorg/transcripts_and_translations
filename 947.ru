@@ -1,3 +1,6 @@
+24 мая 1989
+Pallas Athena Puja
+Stamatis Boudouris house, Athens (Greece)
 Пуджа Шри Aфине Палладе
 
 Афины, Греция, 24 мая 1989

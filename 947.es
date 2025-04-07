@@ -1,3 +1,6 @@
+24 mayo 1989
+Pallas Athena Puja
+Athens, Stamatis Boudouris house (Greece)
 Shri Pallas Athena Puja. Grecis, 24 de Mayo 1989.
 
 En Sahaja Yoga todo es muy científico. Todo está planeado de antemano y todo tiene significado. Por ejemplo, hoy es miércoles y nunca habíamos celebrado un puja en ese día. Yo nací un miércoles, por eso estaba pensando que el Puja empezase antes de las doce, y en cómo arreglármelas porque yo nací a las doce y todos los niños han de dormir después de esa hora. Así pues, es significativo: es la primera vez que tenemos un Puja en miércoles. Normalmente ni siquiera viajo en miércoles. Yo no podía, tenía que dormir. Imaginad qué cambio. Por eso me siento muy feliz de que todos vosotros estéis listos para un Puja con el que se romperá esta regla después de tanto tiempo. Para mí era imposible mantenerme despierta después de las doce. Lo intentaba una y otra vez, y sabía que vosotros también teníais mucho sueño. Es mutuo y así de sencillo.
