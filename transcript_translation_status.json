@@ -4012,6 +4012,14 @@
         "transcript-english-needed"
     ],
     [
+        80316,
+        "transcript-english-needed"
+    ],
+    [
+        80324,
+        "transcript-english-needed"
+    ],
+    [
         29,
         "transcript-english-verified"
     ],
@@ -6445,6 +6453,10 @@
     ],
     [
         80195,
+        "transcript-english-verified"
+    ],
+    [
+        80327,
         "transcript-english-verified"
     ],
     [
@@ -13704,6 +13716,22 @@
         "transcript-hindi-needed-hi"
     ],
     [
+        80318,
+        "transcript-hindi-needed-hi"
+    ],
+    [
+        80319,
+        "transcript-hindi-needed-hi"
+    ],
+    [
+        80322,
+        "transcript-hindi-needed-hi"
+    ],
+    [
+        80326,
+        "transcript-hindi-needed-hi"
+    ],
+    [
         12689,
         "transcript-hindi-in-progress-hi"
     ],
@@ -14349,6 +14377,10 @@
     ],
     [
         80314,
+        "transcript-marathi-needed-mr"
+    ],
+    [
+        80329,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -16381,6 +16413,18 @@
     ],
     [
         80309,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        80317,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        80321,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        80325,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -20204,23 +20248,31 @@
         "translation-english-to-spanish-reviewed"
     ],
     [
-        80303,
+        80328,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80318,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80319,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80322,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80326,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80328,
+        "translation-hindi-to-english-draft-es"
+    ],
+    [
+        80329,
         "translation-marathi-to-english-needed-mr"
-    ],
-    [
-        80314,
-        "translation-marathi-to-english-needed-mr"
-    ],
-    [
-        41753,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80305,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80310,
-        "translation-hindi-to-english-needed-hi"
     ]
 ]
