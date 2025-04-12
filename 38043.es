@@ -1,6 +1,6 @@
 28 febrero 2003
 Mahashivaratri Puja
-House in Pratishthan, Pune (India) | Translation (English to Spanish) - Reviewed, Translation (Hindi to English) – Draft
+House in Pratishthan, Pune (India) | Translation (English to Spanish) - Reviewed
 
 Puja de Shivaratri, Pratisthan, India, 28 de febrero de 2003
 

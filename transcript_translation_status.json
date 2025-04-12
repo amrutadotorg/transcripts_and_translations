@@ -36,10 +36,6 @@
         "transcript-english-in-progress"
     ],
     [
-        71587,
-        "transcript-english-in-progress"
-    ],
-    [
         77167,
         "transcript-english-in-progress"
     ],
@@ -3824,10 +3820,6 @@
         "transcript-english-needed"
     ],
     [
-        71587,
-        "transcript-english-needed"
-    ],
-    [
         71602,
         "transcript-english-needed"
     ],
@@ -4017,6 +4009,10 @@
     ],
     [
         80324,
+        "transcript-english-needed"
+    ],
+    [
+        80330,
         "transcript-english-needed"
     ],
     [
@@ -6453,10 +6449,6 @@
     ],
     [
         80195,
-        "transcript-english-verified"
-    ],
-    [
-        80327,
         "transcript-english-verified"
     ],
     [
@@ -12028,6 +12020,10 @@
         "transcript-english-draft"
     ],
     [
+        71587,
+        "transcript-english-draft"
+    ],
+    [
         71601,
         "transcript-english-draft"
     ],
@@ -13720,14 +13716,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        80319,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        80322,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         80326,
         "transcript-hindi-needed-hi"
     ],
@@ -13809,6 +13797,14 @@
     ],
     [
         79884,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        80319,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        80322,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -14352,10 +14348,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        79893,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         80036,
         "transcript-marathi-needed-mr"
     ],
@@ -14461,6 +14453,10 @@
     ],
     [
         79888,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        79893,
         "transcript-marathi-in-progress-mr"
     ],
     [
@@ -15960,6 +15956,10 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
+        11138,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
         33840,
         "translation-hindi-to-english-in-progress"
     ],
@@ -16121,10 +16121,6 @@
     ],
     [
         11007,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        11138,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -17112,6 +17108,10 @@
         "translation-marathi-to-english-in-progress"
     ],
     [
+        11138,
+        "translation-marathi-to-english-in-progress"
+    ],
+    [
         20087,
         "translation-marathi-to-english-in-progress"
     ],
@@ -17365,10 +17365,6 @@
     ],
     [
         11053,
-        "translation-marathi-to-english-needed"
-    ],
-    [
-        11138,
         "translation-marathi-to-english-needed"
     ],
     [
@@ -20250,29 +20246,5 @@
     [
         80328,
         "translation-english-to-spanish-reviewed"
-    ],
-    [
-        80318,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80319,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80322,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80326,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80328,
-        "translation-hindi-to-english-draft-es"
-    ],
-    [
-        80329,
-        "translation-marathi-to-english-needed-mr"
     ]
 ]
