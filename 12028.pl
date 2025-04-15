@@ -1,3 +1,6 @@
+16 maja 1987
+Ganeśa Pudźa
+Valley Rd Ashram, Auckland (New Zealand)
 Shri Ganesha Puja, 16.05.1987 Auckland, Nowa Zelandia
 
 Myślę, że to było bardzo miłe, że mogłam przyjechać do Nowej Zelandii.
