@@ -48,6 +48,10 @@
         "transcript-english-in-progress"
     ],
     [
+        79618,
+        "transcript-english-in-progress"
+    ],
+    [
         79870,
         "transcript-english-in-progress"
     ],
@@ -2185,6 +2189,18 @@
     ],
     [
         80086,
+        "transcript-english-not-needed"
+    ],
+    [
+        80347,
+        "transcript-english-not-needed"
+    ],
+    [
+        80348,
+        "transcript-english-not-needed"
+    ],
+    [
+        80349,
         "transcript-english-not-needed"
     ],
     [
@@ -6444,15 +6460,7 @@
         "transcript-english-verified"
     ],
     [
-        80335,
-        "transcript-english-verified"
-    ],
-    [
-        80338,
-        "transcript-english-verified"
-    ],
-    [
-        80340,
+        80344,
         "transcript-english-verified"
     ],
     [
@@ -14092,10 +14100,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        19202,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         19207,
         "transcript-marathi-needed-mr"
     ],
@@ -14409,6 +14413,10 @@
     ],
     [
         19200,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        19202,
         "transcript-marathi-in-progress-mr"
     ],
     [
@@ -20288,31 +20296,11 @@
         "translation-english-to-spanish-reviewed"
     ],
     [
-        33841,
-        "translation-hindi-to-english-needed-hi"
+        80344,
+        "translation-hindi-to-english-reviewed-hu"
     ],
     [
-        80337,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        80343,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        79886,
-        "translation-marathi-to-english-needed-mr"
-    ],
-    [
-        80341,
-        "translation-marathi-to-english-needed-mr"
-    ],
-    [
-        80342,
-        "translation-marathi-to-english-needed-mr"
-    ],
-    [
-        80343,
-        "translation-marathi-to-english-needed-hi"
+        80345,
+        "translation-hindi-to-english-draft-it"
     ]
 ]
