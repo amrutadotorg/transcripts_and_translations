@@ -1,4 +1,6 @@
-Saharara Puja, Charla de la tarde del Día del Puja 
+3 mayo 1987
+Talk to Sahaja Yogis
+Thredbo Alpine Hotel, Thredbo (Australia)Saharara Puja, Charla de la tarde del Día del Puja 
 Thredbo, Australia. 3 de mayo de 1987. 
 
 Tuve que hablaros de ello, de otra forma no conoceríais vuestra importancia, vuestra grandeza, vuestras responsabilidades.
