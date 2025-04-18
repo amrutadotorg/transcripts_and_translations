@@ -6452,6 +6452,10 @@
         "transcript-english-verified"
     ],
     [
+        80361,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -13728,11 +13732,15 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        80337,
+        80343,
         "transcript-hindi-needed-hi"
     ],
     [
-        80343,
+        80353,
+        "transcript-hindi-needed-hi"
+    ],
+    [
+        80354,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -13809,6 +13817,10 @@
     ],
     [
         80322,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        80337,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -16420,11 +16432,19 @@
         "translation-hindi-to-english-needed"
     ],
     [
+        80302,
+        "translation-hindi-to-english-needed"
+    ],
+    [
         80304,
         "translation-hindi-to-english-needed"
     ],
     [
         80309,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        80313,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -17977,10 +17997,6 @@
     ],
     [
         80302,
-        "translation-marathi-to-english-needed"
-    ],
-    [
-        80313,
         "translation-marathi-to-english-needed"
     ],
     [
@@ -20270,5 +20286,41 @@
     [
         80328,
         "translation-english-to-spanish-reviewed"
+    ],
+    [
+        80354,
+        "translation-marathi-to-english-needed-hi"
+    ],
+    [
+        80305,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80310,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80318,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80319,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80322,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80337,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80353,
+        "translation-hindi-to-english-needed-hi"
+    ],
+    [
+        80354,
+        "translation-hindi-to-english-needed-hi"
     ]
 ]
