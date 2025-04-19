@@ -1,3 +1,6 @@
+8 kwietnia 2007
+Wielkanocna Pudźa
+House in Pratishthan, Pune (Indie)
 Easter puja. Pratishthan, Pune (India), 8 Kwiecień 2007.
 
 Dzisiaj jest bardzo ważny dzień.

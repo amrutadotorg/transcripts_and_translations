@@ -1,3 +1,6 @@
+6 abril 1980
+Easter Puja
+Dollis Hill Ashram, London (England)
 "El signficado de Pascuas", Puja de Pascuas, Londres, Inglaterra 06/04/1980
 
 Hoy hablaba con un chico musulmán y me dijo que "Mahoma no era una encarnación".

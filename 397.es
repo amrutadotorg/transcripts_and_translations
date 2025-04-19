@@ -1,3 +1,6 @@
+22 abril 2001
+Easter Puja
+Istanbul, Ataköy Marina Hotel (Turkey)
 Puja de Pascua. Estambul, Turquía. 22 de abril de 2001.
 
 Hoy nos hemos reunido aquí para celebrar el Puja de Semana Santa. El día que Cristo resucitó de la muerte es uno de los más importantes en la historia de la espiritualidad. Es muy significativo y simbólico el hecho de que también en Sahaja Yoga, lo que hemos hecho es ascender, renacer desde la muerte hasta la vida. Hay que entender que la resurrección es el mensaje para todos nosotros, para el mundo entero. Tenemos que resucitar. Jesús no tenía ninguna necesidad de hacerlo, pero fue nuestro modelo ideal, modelo de santidad, modelo de alma realizada, una persona modelo que vino desde el cielo para salvarnos.

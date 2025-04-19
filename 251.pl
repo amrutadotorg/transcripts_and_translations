@@ -1,5 +1,6 @@
-Wielkanocna Puja. Magliano Sabina, Rzym (Włochy), 11 kwietnia 1993.
-
+11 kwietnia 1993
+Wielkanocna Pudźa
+Magliano Sabina Ashram, Magliano Sabina (Włochy)
 Zebraliśmy się tu dzisiaj wszyscy, na szczycie tej pięknej góry, aby uczcić zmartwychwstanie Chrystusa.
 
 To bardzo istotne dla Sahaja yoginów, aby zrozumieć to wielkie wydarzenie, jakim było Jego zmartwychwstanie, poprzez które On pokazał, że Duch nie umiera. On był – On był Omkarą. On był Logos i On był Duchem i właśnie dlatego mógł chodzić po wodzie.

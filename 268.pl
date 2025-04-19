@@ -1,7 +1,6 @@
-Puja Wielkanocna
-
-31.03 1991, Sydney, Australia
-
+31 marca 1991
+Wielkanocna Pudźa
+Bundilla Scout Camp, Sydney (Australia)
 [Yogin mówi, że Shri Mataji prosiła go, żeby przeczytał niedawno zrobiony horoskop.] Przygotował go bardzo słynny astrolog. [Horoskop jest czytany] "Moksha karaka" oznacza tego, który daje Realizację - moksha karaka. Moksha. Czterdzieści trzy... To znaczy "planeta". To znaczy "planeta". Gajakesari yoga. "Gaja" oznacza słonia, "kesari" oznacza lwa, więc są obie rzeczy. Nishkalanka. To oznacza Kalki.
 
 Jesteśmy tu dzisiaj, aby czcić Chrystusa, który zmartwychwstał z grobu. Istnieje wiele teorii na temat Jego śmierci, ale właściwie to On wskrzesił sam siebie, a potem pojechał do Indii i osiadł tam ze swoją Matką. Okres po Jego zmartwychwstaniu nie został opisany w żadnych książkach, ale w jednej z Puran, tam gdzie jest opis Shalivahana, jednego z królów dynastii, do której należę, jest napisane, że spotkał on Chrystusa w Kaszmirze i zapytał Go: "Jak masz na imię?" Odrzekł: "Mam na imię Issa". Następnie zapytał Go: "Z jakiego kraju przybywasz?" On odpowiedział: "Przybywam z kraju obcego tobie i Mnie, a jestem teraz w Moim własnym kraju". Oto jak doceniał Indie.

@@ -1,3 +1,6 @@
+23 marca 2008
+Wielkanocna Pudźa
+The Pride Hotel, Nagpur (Indie)
 Puja Wielkanocna, 23.03.2008, Hotel Pride, Nagpur Indie, “Musicie wybaczyć“
 
 Nigdy nie spodziewałam się, że wszyscy będziecie obecni tutaj na pujy. Nie wiem jak zdołaliście przybyć. Zresztą to jest bardzo ważny dzień, dla nas wszystkich, ponieważ wiecie, jak umarł Chrystus. Został ukrzyżowany. Został umieszczony na krzyżu, a potem zmarł. We wspaniały sposób powiedział o was, ludzie. Poprosił o wybaczenie od Boga. To, czego musimy nauczyć się z Jego życia, to sposób jak wybaczać wszystkim.

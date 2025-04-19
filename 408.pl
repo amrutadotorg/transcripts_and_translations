@@ -1,5 +1,6 @@
-Puja Wielkanocna – Przebaczenie, 22.04.1984 Świątynia Wszystkich Wyznań, Hampstead, Wielka Brytania
-
+22 kwietnia 1984
+Wielkanocna Pudźa
+Temple of All Faiths, Hampstead (Anglia)
 Dzisiaj świętujemy zmartwychwstanie Chrystusa.
 Przy okazji musimy także świętować zmartwychwstanie istot ludzkich, Sahaja yoginów, którzy zmartwychwstali jako Dusze Zrealizowane. Musimy przy tym zrozumieć, że wchodzimy w nową świadomość. Nigdy nie było potrzeby, żeby Chrystus wchodził w nową świadomość, On musiał zstąpić i pokazać ponownie temu światu, że jesteście wiecznym życiem, że wiedziecie duchowe życie, które nigdy nie zanika. Musicie wznieść się do tego nowego królestwa, które jest królestwem Boga Wszechmogącego, które nazywacie Królestwem Bożym. I On to powiedział bardzo wyraźnie Nikodemowi, że "musicie narodzić się powtórnie". A gdy tamten spytał: "Czy mam wejść ponownie do łona matki, aby narodzić się powtórnie?" On to powiedział bardzo jasno! To jest tak jasne. Ci, którzy nie chcą widzieć, mogą pozostać ślepi. Ale On powiedział to bardzo, bardzo jasno, że "nie. To znaczy, że to, co narodziło się z ciała, jest cielesne - a co narodziło się z Ducha jest duchowe".
 
