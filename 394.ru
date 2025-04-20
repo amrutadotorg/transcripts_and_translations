@@ -1,3 +1,6 @@
+19 апреля 1987
+Easter Puja
+Ashram of Pichini, Rome (Italy)
 Пасхальная пуджа
 
 Рим (Италия), 19 апреля 1987

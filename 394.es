@@ -1,3 +1,6 @@
+19 abril 1987
+Easter Puja
+Ashram of Pichini, Rome (Italy)
 Puja de Pascua. Roma Ashram, Italia. 19 de abril de 1987.
 
 ¡Feliz Pascua a todos vosotros! Hoy es un gran día para venir a Roma a celebrar la Resurrección de Cristo. Ahora nosotros tenemos que lograr la resurrección de la cristiandad, que se está moviendo justo en la dirección opuesta a la resurrección de Cristo. Como sabéis, Cristo era solo chaitanya y encarnó en un cuerpo de chaitanya. Todo su cuerpo era chaitanya. Y resucitó para mostrar al mundo que vosotros también podéis resucitar, si podéis llenar vuestro cuerpo de chaitanya.

@@ -1,3 +1,6 @@
+19 april 1987
+Easter Puja
+Ashram of Pichini, Rome (Italy)
 Paas Puja Materialisme - Ashram van Picini, Rome - 19 april 1987
 
 NlTVD 2019-0628
