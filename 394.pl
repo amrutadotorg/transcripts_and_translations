@@ -1,6 +1,6 @@
 19 kwietnia 1987
 Wielkanocna Pudźa
-Ashram of Pichini, Rzym (Włochy)
+Aśram w Pichini, Rzym (Włochy)
 
 Życzę wam wszystkim Wesołych Świąt Wielkanocnych!
 
