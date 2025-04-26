@@ -1,6 +1,6 @@
 22 декабря 1973
 Public Program
-Nagpur (Индия) | Translation (Hindi to English) – Draft
+Nagpur (Индия)
 
 22 декабря 1973
 
