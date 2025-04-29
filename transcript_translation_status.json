@@ -2228,6 +2228,38 @@
         "transcript-english-not-needed"
     ],
     [
+        80405,
+        "transcript-english-not-needed"
+    ],
+    [
+        80406,
+        "transcript-english-not-needed"
+    ],
+    [
+        80407,
+        "transcript-english-not-needed"
+    ],
+    [
+        80408,
+        "transcript-english-not-needed"
+    ],
+    [
+        80411,
+        "transcript-english-not-needed"
+    ],
+    [
+        80413,
+        "transcript-english-not-needed"
+    ],
+    [
+        80415,
+        "transcript-english-not-needed"
+    ],
+    [
+        80419,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -12624,10 +12656,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        19388,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         19389,
         "transcript-hindi-draft-hi"
     ],
@@ -13004,10 +13032,6 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
-        12981,
-        "transcript-hindi-reviewed-hi"
-    ],
-    [
         12988,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13021,10 +13045,6 @@
     ],
     [
         13533,
-        "transcript-hindi-reviewed-hi"
-    ],
-    [
-        14863,
         "transcript-hindi-reviewed-hi"
     ],
     [
@@ -13828,6 +13848,10 @@
         "transcript-hindi-reviewing"
     ],
     [
+        19388,
+        "transcript-hindi-reviewing"
+    ],
+    [
         20794,
         "transcript-hindi-reviewing"
     ],
@@ -13842,6 +13866,14 @@
     [
         79881,
         "transcript-hindi-reviewing"
+    ],
+    [
+        12981,
+        "transcript-hindi-verifying"
+    ],
+    [
+        14863,
+        "transcript-hindi-verifying"
     ],
     [
         12805,
@@ -14069,10 +14101,6 @@
     ],
     [
         14431,
-        "transcript-marathi-needed-mr"
-    ],
-    [
-        15013,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -14400,15 +14428,15 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        80342,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         80369,
         "transcript-marathi-needed-mr"
     ],
     [
         12959,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        15013,
         "transcript-marathi-in-progress-mr"
     ],
     [
@@ -14501,6 +14529,10 @@
     ],
     [
         80341,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        80342,
         "transcript-marathi-in-progress-mr"
     ],
     [
