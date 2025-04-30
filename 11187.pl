@@ -1,3 +1,6 @@
+29 maja 1976
+Program Publiczny
+Mumbai (Indie)
 Public Program, Dhyan Kaise Karein (Hindi) “Jak Medytować“ 29.05.1976, Bombay, Indie
 
 Mówiłam wam w Dadarze, że w Sahaja Yodze najpierw musicie dojść do stanu Tadatmya [jedność z Bogiem] . Po Tadatmya można osiągnąć etap Samipya [zbliżenie się do Boga] a potem Salokya [towarzyszenie Bogu]. Ale po osiągnięciu Tadatmya, zainteresowania danej osoby same się zmieniają. Natychmiast po osiągnięciu stanu Tadatmya, z powodu tych doświadczeń, osoba nie ma ochoty na dojście do stanu Salokya i Samipya. To znaczy, że kiedy zaczynają płynąć wibracje do waszych rąk i kiedy czujecie Kundalini innych ludzi i możecie podnosić ich Kundalini, wtedy wasza chitta [uwaga] idzie w kierunku obserwowania Kundalini innych i rozumienia własnej Kundalini.

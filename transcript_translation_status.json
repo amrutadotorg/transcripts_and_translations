@@ -16,10 +16,6 @@
         "transcript-english-in-progress"
     ],
     [
-        62123,
-        "transcript-english-in-progress"
-    ],
-    [
         62591,
         "transcript-english-in-progress"
     ],
@@ -3649,10 +3645,6 @@
     ],
     [
         62116,
-        "transcript-english-needed"
-    ],
-    [
-        62123,
         "transcript-english-needed"
     ],
     [
@@ -11824,6 +11816,10 @@
         "transcript-english-draft"
     ],
     [
+        62123,
+        "transcript-english-draft"
+    ],
+    [
         62140,
         "transcript-english-draft"
     ],
@@ -12189,6 +12185,10 @@
     ],
     [
         80298,
+        "transcript-english-draft"
+    ],
+    [
+        80421,
         "transcript-english-draft"
     ],
     [
@@ -20338,5 +20338,9 @@
     [
         5696,
         "translation-hindi-to-english-reviewing-2"
+    ],
+    [
+        80422,
+        "translation-hindi-to-english-reviewed-es"
     ]
 ]
