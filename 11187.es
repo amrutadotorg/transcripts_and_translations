@@ -1,6 +1,6 @@
 29 mayo 1976
 Public Program
-Mumbai (India) | Translation (Hindi to English) – Reviewed
+Mumbai (India)
 
 Cómo meditar, Bombay 29 de mayo de 1976.
 
