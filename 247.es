@@ -1,4 +1,6 @@
-Sahasrara puja, Cabella, Italia, 4-05-1997
+4 mayo 1997
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)Sahasrara puja, Cabella, Italia, 4-05-1997
 
 Hoy nos hemos reunido para adorar al Sahasrara. Como ya se habrán dado cuenta, el Sahasrara es una parte muy importante del sistema sutil. Sin duda, fue un gran acontecimiento el que este chakra se abriera en 1.970. Tenemos que ver qué hemos logrado con ello.
 En primer lugar, cuando la Kundalini asciende va a su vacío, situado alrededor del Nabhi, donde se encuentra el dharma, y éste se fortalece en el Nabhi Chakra, podemos decir alrededor del Nabhi Chakra. El dharma que es la religión pura, innata y universal queda establecido, y la Kundalini continúa ascendiendo. Sin embargo, a pesar de este fortalecimiento del dharma, nos empezamos a sentir algo distantes del resto de la sociedad, porque vemos que no respetan lo dhármico, incluso tenemos miedo de coger obstrucciones por las cosas que hacen.
