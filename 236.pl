@@ -1,3 +1,6 @@
+4 maja 1986
+Sahasrara Pudźa
+Alpe Motta (Włochy)
 Sahasrara Puja, 04.05.1986 Alpe Motta, Włochy
 
 Dzisiaj jest wielki dzień dla nas wszystkich, ponieważ to jest szesnasty Dzień Sahasrary.

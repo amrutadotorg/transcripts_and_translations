@@ -1,3 +1,6 @@
+4 mayo 1986
+Sahasrara Puja
+Alpe Motta (Italy)
 Sahasrara Puja. Alpe Motta, Italia. 4 de mayo de 1986.
 
 Hoy es un gran día para todos nosotros, porque es el decimosexto día del Sahasrara. En dieciséis percusiones o dieciséis movimientos alcanzáis una posición más elevada en la espiral. Se dice que Shri Krishna es completo, que es una encarnación completa, porque tiene dieciséis pétalos. A esta plenitud se la denomina "Purna".

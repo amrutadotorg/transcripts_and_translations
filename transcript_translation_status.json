@@ -6516,6 +6516,14 @@
         "transcript-english-verified"
     ],
     [
+        80430,
+        "transcript-english-verified"
+    ],
+    [
+        80432,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -12244,10 +12252,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        12586,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         12798,
         "transcript-hindi-draft-hi"
     ],
@@ -13732,10 +13736,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        80335,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         80343,
         "transcript-hindi-needed-hi"
     ],
@@ -13828,8 +13828,16 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        80335,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         80337,
         "transcript-hindi-in-progress-hi"
+    ],
+    [
+        12586,
+        "transcript-hindi-reviewing"
     ],
     [
         12966,
@@ -16028,10 +16036,6 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
-        20115,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
         957,
         "translation-hindi-to-english-needed"
     ],
@@ -16796,6 +16800,10 @@
         "translation-hindi-to-english-verified"
     ],
     [
+        20115,
+        "translation-hindi-to-english-verified"
+    ],
+    [
         20148,
         "translation-hindi-to-english-verified"
     ],
@@ -17185,10 +17193,6 @@
     ],
     [
         11138,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        20115,
         "translation-marathi-to-english-in-progress"
     ],
     [
@@ -18169,6 +18173,10 @@
     ],
     [
         20087,
+        "translation-marathi-to-english-verified"
+    ],
+    [
+        20115,
         "translation-marathi-to-english-verified"
     ],
     [
@@ -20208,6 +20216,14 @@
         "translation-english-to-chinese-simplified-verified"
     ],
     [
+        80432,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        80430,
+        "translation-english-to-chinese-traditional-draft"
+    ],
+    [
         230,
         "translation-english-to-italian-not-verified"
     ],
@@ -20346,5 +20362,13 @@
     [
         5696,
         "translation-hindi-to-english-reviewing-2"
+    ],
+    [
+        20116,
+        "translation-hindi-to-english-reviewing-3"
+    ],
+    [
+        20117,
+        "translation-marathi-to-english-reviewing"
     ]
 ]
