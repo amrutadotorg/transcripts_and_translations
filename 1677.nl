@@ -1,3 +1,6 @@
+23 juni 2002
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja - Gebruik je rechter kant om realisatie te geven - Cabella, italië - 23 Juni 2002
 
 NlTvd2021-0623

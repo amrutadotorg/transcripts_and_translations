@@ -1,10 +1,6 @@
-29 February 1984
-Detachment & Enlightenment Of Brain
-Mahashivaratri Puja
-Pandharpur (India)
-Talk Language: English | Transcript (English) - Reviewed | Translation (Marathi to English) - NEEDED
-
-Mahashivaratri Puja, Odwiązanie i Oświecenie Mózgu, 29.02.1984 Pandharpur, Indie
+29 lutego 1984
+Mahashivaratri Pudźa
+Pandharpur (Indie)
 
 Zatem teraz przybyliśmy wszyscy, to miejsce zostało wybrane, ponieważ oni powiedzieli, że wokół jest mnóstwo strasznych ludzi. Nadal mamy ich problemy. W porządku. Widzicie, trzeba wiedzieć, że są to nowoczesne czasy, a współczesne czasy mają wiele komplikacji. Czy wszyscy przyjechali? Najpierw będę mówiła po angielsku, a potem w marathi. W przeciwnym razie, ci ludzie niczego nie zrozumieją i nie będzie to właściwe.
 

@@ -1,3 +1,6 @@
+9 maja 1988
+Mowa do Sahadźa Joginów
+Rzym (Włochy)
 Mit Przywództwa, 09.05 1988 Rzym, Włochy
 
 Teraz jest to pochwała Mahalakshmi tattwy, Zasady Mahalakshmi.

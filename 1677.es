@@ -1,3 +1,6 @@
+23 junio 2002
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Shri Adi Shakti puja, Cabella Ligure - Italia
 
 23 de Junio de 2002
