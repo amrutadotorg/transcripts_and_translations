@@ -1,3 +1,6 @@
+14 marzo 1983
+Devi Puja
+Sydney (Australia)
 La meditación: El viaje individual hacia la colectividad y la dicha
 
 Puja en Sydney 14-03-1983

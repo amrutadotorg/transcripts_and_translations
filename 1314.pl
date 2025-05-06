@@ -1,3 +1,6 @@
+14 marca 1983
+Dewi Pudźa
+Sydney (Australia)
 Devi Puja. Sydney (Australia), 14 Marca 1983.
 
 Teraz wszyscy zdaliście sobie sprawę przez ten czas, że w nas znajduje się spokój, piękno, chwała naszej istoty. Jest ocean tego wszystkiego. Nie możemy go szukać na zewnątrz. Musimy iść do środka, jak nazywają "w stanie medytacji" szukasz tego, cieszysz się tym.
