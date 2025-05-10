@@ -1,3 +1,6 @@
+20 octubre 1996
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri puja
 
 Cabella. 20 - 10 - 1996

@@ -1,3 +1,6 @@
+20 oktober 1996
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja - Cabella Italië - 20 october 1996
 
 Translation not verified. Dear yogi, register as volunteer to do so.
