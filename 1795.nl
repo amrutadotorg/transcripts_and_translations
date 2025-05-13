@@ -1,3 +1,6 @@
+8 oktober 1989
+Navaratri Puja
+Butlins Grand Hotel, Margate (England)
 Shri Mataji Nirmala Devi
 
 Navaratri Puja

@@ -1,3 +1,6 @@
+5 mei 1982
+Sahasrara Puja
+Ashram in Le Raincy, Le Raincy (France)
 Sahasrara Puja - De opening van de Sahasrara - Le Raincy, Frankrijk - 5/05/1982
 
 Translation not verified. Dear yogi, register as volunteer to do so.

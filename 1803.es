@@ -1,3 +1,6 @@
+26 agosto 1990
+Ganesha Puja
+Lanersbach (Austria)
 Shri Ganesha Puja. Lanersbach, Austria. 26 de agosto de 1990.
 
 Hoy estamos celebrando el cumpleaños de Shri Ganesha. Todos conocéis la historia de su nacimiento, no necesito repetirlo. Fue creado por la Adi Shakti solo a partir de la Madre Tierra y del mismo modo habéis sido creados vosotros después de Él.
