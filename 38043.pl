@@ -1,6 +1,6 @@
 28 lutego 2003
 Mahaśiwaratri Pudźa
-House in Pratishthan, Pune (Indie) | Translation (Hindi to English) – Draft
+House in Pratishthan, Pune (Indie)
 
 Jeśli nie przebaczy, nic nie zostanie oszczędzone. Jest bardzo wyrozumiały i dzięki Jego przebaczającej naturze udaje nam się przetrwać, inaczej bylibyśmy skończeni. ...tak wielkiego boga [Mahadevę] powinniśmy prosić o takie cechy, jak przebaczająca osobowość, jak Jego charakter i moce. Pomimo takich cech jest pełen przebaczenia, bierze pod uwagę, że jesteśmy ludźmi i przebacza. Powinniśmy przyjąć Jego cechę [gunę] przebaczenia. Nie mamy takiego zachowania, w którym przebaczamy. Czepiamy się drobnych rzeczy i walczymy. To nie jest puja do Mahadevy, ci, którzy za Nim podążają, powinni każdemu przebaczyć. Każdy może popełnić błąd. Każdy ma jakieś wady.
 

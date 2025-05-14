@@ -1,3 +1,6 @@
+21 julio 1978
+Guru Puja
+Finchley Ashram, London (England)
 Guru Puja: Tu propia dignidad y gravedad. 21-07-1978
 
 ...La adoración de vuestro Guru, no de vuestra Madre sino de vuestro Guru. El Guru establece el Dharma, el sustento en los discípulos. Da todas las ideas claras acerca del poder del sustento para los discípulos. Puede predicar a todo el mundo excepto a sus discípulos a los que da instrucciones muy claras. La mayoría de los gurus, cuando lo hacen, realmente cincelan a cada discípulo. En primer lugar, sopesan la necesidad de cada discípulo. Cuánto puede recibir el discípulo en realidad. Y aceptan a alguien como discípulo después de verificar si el discípulo es verdaderamente capaz de recibir las instrucciones sobre el dharma. Pero en Sahaja Yoga no, porque vuestro guru es una madre. Así pues, ella os inicia sin averiguar cuál es vuestra necesidad, cuál es vuestra capacidad y qué tipo de personalidad tenéis. Es un estilo de guru muy diferente el que tenéis, que cuida de vuestro cuerpo, de vuestra mente y de vuestros problemas; y luego os concede las bendiciones del despertar de la Kundalini.

@@ -1,3 +1,6 @@
+7 mayo 1995
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja
 
 Cabella 7 - 5 -1995

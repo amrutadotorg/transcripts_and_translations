@@ -1,3 +1,6 @@
+7 mei 1995
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja - Bereik de volledige vrijheid - Cabella, Italië- -07/05/1995
 
 Translation not verified. Dear yogi, register as volunteer to do so.
