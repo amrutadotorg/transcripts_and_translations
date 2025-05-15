@@ -1,3 +1,6 @@
+14 stycznia 1984
+Makar Sankranti Pudźa
+Mumbai (Indie)
 Makar Sankranti Pudźa
 
 14 stycznia 1984 Bombaj, Indie
