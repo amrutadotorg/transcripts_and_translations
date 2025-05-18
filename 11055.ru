@@ -1,6 +1,6 @@
 10 сентября 1973
 Public Program
-New Delhi (Индия) | Translation (Hindi to English) – VERIFIED
+New Delhi (Индия)
 
 Особенности невинного человек
 

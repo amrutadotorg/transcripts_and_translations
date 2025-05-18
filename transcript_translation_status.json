@@ -6560,6 +6560,10 @@
         "transcript-english-verified"
     ],
     [
+        80470,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -12221,10 +12225,6 @@
     ],
     [
         80421,
-        "transcript-english-draft"
-    ],
-    [
-        80467,
         "transcript-english-draft"
     ],
     [
@@ -20414,9 +20414,5 @@
     [
         11130,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        80465,
-        "translation-hindi-to-english-verified-ru"
     ]
 ]
