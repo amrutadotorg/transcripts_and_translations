@@ -1,3 +1,6 @@
+26 mayo 1980
+Talk to Sahaja Yogis
+Dollis Hill Ashram, London (England)
 La Atención, Dollis Hill, Londres, Inglaterra, 26 de Mayo de 1980
 
 Hoy voy a hablaros de la atención: qué es la atención, cuál es el movimiento de la atención y cuáles son las formas y métodos para elevar nuestra atención.
