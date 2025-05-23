@@ -1,3 +1,6 @@
+21 Ιουνίου 1998
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja. Cabella Ligure (Italy), 21 June 1998.
 
 Στη Ρωσία, οι άνθρωποι είναι πολύ ανοιχτόμυαλοι.

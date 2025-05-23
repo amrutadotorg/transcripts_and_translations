@@ -1,3 +1,6 @@
+21 junio 1998
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja. Cabella Ligure, Italia. 21 de junio de 1998.
 
 De algún modo, en Rusia la gente es muy abierta. No solo eso, los científicos especialmente son muy abiertos. Fueron muy reprimidos, de modo que intentaron buscar el aspecto más sutil de las cosas. No solo investigaron acerca de la química o de las propiedades físicas de la luz, sino que querían ir hacia el aspecto más sutil. Y ya han hecho grandes descubrimientos acerca de las auras. Las auras alrededor de la mano y las auras alrededor del cuerpo. Han investigado mucho sobre ello y sus descubrimientos han sido aceptados en todo el mundo.
