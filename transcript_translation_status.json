@@ -8,10 +8,6 @@
         "transcript-english-in-progress"
     ],
     [
-        56447,
-        "transcript-english-in-progress"
-    ],
-    [
         58280,
         "transcript-english-in-progress"
     ],
@@ -3857,10 +3853,6 @@
     ],
     [
         64762,
-        "transcript-english-needed"
-    ],
-    [
-        64837,
         "transcript-english-needed"
     ],
     [
@@ -11664,6 +11656,10 @@
         "transcript-english-draft"
     ],
     [
+        56447,
+        "transcript-english-draft"
+    ],
+    [
         56464,
         "transcript-english-draft"
     ],
@@ -12320,10 +12316,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        12983,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         12985,
         "transcript-hindi-draft-hi"
     ],
@@ -12493,6 +12485,10 @@
     ],
     [
         18512,
+        "transcript-hindi-draft-hi"
+    ],
+    [
+        18528,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -12957,6 +12953,10 @@
     ],
     [
         18088,
+        "transcript-hindi-verified-hi"
+    ],
+    [
+        18519,
         "transcript-hindi-verified-hi"
     ],
     [
@@ -13768,10 +13768,6 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
-        18528,
-        "transcript-hindi-in-progress-hi"
-    ],
-    [
         18561,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13852,11 +13848,11 @@
         "transcript-hindi-reviewing"
     ],
     [
-        14063,
+        12983,
         "transcript-hindi-reviewing"
     ],
     [
-        18519,
+        14063,
         "transcript-hindi-reviewing"
     ],
     [
@@ -15232,6 +15228,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        4779,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         5039,
         "translation-hindi-to-english-draft"
     ],
@@ -16061,10 +16061,6 @@
     ],
     [
         4686,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        4779,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -20410,5 +20406,25 @@
     [
         11130,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        558,
+        "translation-hindi-to-english-draft-it"
+    ],
+    [
+        2949,
+        "translation-hindi-to-english-draft-it"
+    ],
+    [
+        80483,
+        "translation-hindi-to-english-draft-it"
+    ],
+    [
+        35861,
+        "translation-hindi-to-english-draft-zh-hant"
+    ],
+    [
+        80484,
+        "translation-hindi-to-english-draft-zh-hant"
     ]
 ]
