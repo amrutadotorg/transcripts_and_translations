@@ -3596,10 +3596,6 @@
         "transcript-english-needed"
     ],
     [
-        37661,
-        "transcript-english-needed"
-    ],
-    [
         47457,
         "transcript-english-needed"
     ],
@@ -11480,6 +11476,10 @@
         "transcript-english-draft"
     ],
     [
+        37661,
+        "transcript-english-draft"
+    ],
+    [
         37689,
         "transcript-english-draft"
     ],
@@ -13396,10 +13396,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19615,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19628,
         "transcript-hindi-needed-hi"
     ],
@@ -13620,10 +13616,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        20798,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         20801,
         "transcript-hindi-needed-hi"
     ],
@@ -13653,10 +13645,6 @@
     ],
     [
         37656,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        38045,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -13784,6 +13772,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        19615,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         19657,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13796,7 +13788,15 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        20798,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         33842,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        38045,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -16352,6 +16352,10 @@
         "translation-hindi-to-english-needed"
     ],
     [
+        37661,
+        "translation-hindi-to-english-needed"
+    ],
+    [
         47413,
         "translation-hindi-to-english-needed"
     ],
@@ -17677,10 +17681,6 @@
     ],
     [
         37458,
-        "translation-marathi-to-english-needed"
-    ],
-    [
-        37661,
         "translation-marathi-to-english-needed"
     ],
     [
@@ -20406,25 +20406,5 @@
     [
         11130,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        558,
-        "translation-hindi-to-english-draft-it"
-    ],
-    [
-        2949,
-        "translation-hindi-to-english-draft-it"
-    ],
-    [
-        80483,
-        "translation-hindi-to-english-draft-it"
-    ],
-    [
-        35861,
-        "translation-hindi-to-english-draft-zh-hant"
-    ],
-    [
-        80484,
-        "translation-hindi-to-english-draft-zh-hant"
     ]
 ]
