@@ -24,6 +24,10 @@
         "transcript-english-in-progress"
     ],
     [
+        64641,
+        "transcript-english-in-progress"
+    ],
+    [
         64763,
         "transcript-english-in-progress"
     ],
@@ -36,7 +40,7 @@
         "transcript-english-in-progress"
     ],
     [
-        77496,
+        77497,
         "transcript-english-in-progress"
     ],
     [
@@ -3828,10 +3832,6 @@
         "transcript-english-needed"
     ],
     [
-        64641,
-        "transcript-english-needed"
-    ],
-    [
         64642,
         "transcript-english-needed"
     ],
@@ -4045,10 +4045,6 @@
     ],
     [
         77494,
-        "transcript-english-needed"
-    ],
-    [
-        77497,
         "transcript-english-needed"
     ],
     [
@@ -6553,6 +6549,10 @@
     ],
     [
         80195,
+        "transcript-english-verified"
+    ],
+    [
+        80489,
         "transcript-english-verified"
     ],
     [
@@ -12172,6 +12172,10 @@
         "transcript-english-draft"
     ],
     [
+        77496,
+        "transcript-english-draft"
+    ],
+    [
         78500,
         "transcript-english-draft"
     ],
@@ -12213,6 +12217,10 @@
     ],
     [
         80421,
+        "transcript-english-draft"
+    ],
+    [
+        80490,
         "transcript-english-draft"
     ],
     [
