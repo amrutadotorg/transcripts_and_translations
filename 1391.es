@@ -1,3 +1,6 @@
+13 septiembre 2003
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 13 de septiembre de 2003.
 
 [Shri Mataji invita a los niños a sentarse en el escenario]

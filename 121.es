@@ -1,3 +1,6 @@
+26 junio 1994
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja
 
 Cabella Ligure, 26-06-1994
