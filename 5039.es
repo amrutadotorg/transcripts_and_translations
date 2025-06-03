@@ -1,6 +1,6 @@
 24 diciembre 1988
 Evening Program
-Ganapatipule (India) | Translation (English to Spanish) - Reviewed, Translation (Hindi to English) – Draft
+Ganapatipule (India) | Translation (English to Spanish) - Reviewed
 
 Feliz Navidad a todos. Que Dios os bendiga. El nacimiento de Cristo se celebra en todo el mundo, y es bonito que estemos celebrándolo aquí, en Ganapatipule. Como sabéis muy bien en Sahaja Yoga, nos hemos dado cuenta de que el principio de Cristo, era Shri Ganesha. Así que este es el lugar adecuado para celebrar la Navidad y el Nacimiento de Cristo -coinciden absolutamente hoy- y estoy muy feliz de que hayáis elegido Ganapatipule para eso. Ahora, como sabéis muy bien, el principio de Ganesha se convirtió en el principio de Cristo, en el Agnya chakra. Y ese es un centro muy importante que tenemos dentro de nosotros que ha dado una nueva dimensión a nuestra personalidad, que podemos resucitar como Cristo mismo resucitó. Así que el mensaje de su vida, es la resurrección. Así, desde su nacimiento, Él realizó su resurrección, de la misma manera que vosotros nacéis de nuevo cuando obtenéis vuestra Resurrección, u os convertís en Sahaja Yoguis. Funciona según el mismo principio. Pero Él tuvo que pasar físicamente por toda la penitencia, pues decimos que murió por nosotros, por nuestros pecados; pero ahora que Él ha hecho eso por nosotros, el Agnya chakra está completamente bajo nuestro control, y podemos abrirlo cuando queramos, si somos sahaja yoguis, y también podemos iluminar ese chakra.
 
