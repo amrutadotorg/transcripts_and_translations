@@ -1,5 +1,6 @@
-Adi Shakti Puja, 01.08.1982 Cowley Manor Seminar. Cheltenham, Anglia
-
+1 sierpnia 1982
+Adi Śakti Pudźa
+Cowley Manor, Cheltenham (Anglia)
 [Przed pują nieformalna rozmowa, z paroma osobami]
 
 Shri Mataji: Niech mu ktoś jeszcze pomoże, jedna osoba nie może tego zrobić.
