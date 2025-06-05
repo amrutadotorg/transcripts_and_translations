@@ -3360,6 +3360,10 @@
         "transcript-english-reviewed"
     ],
     [
+        80504,
+        "transcript-english-reviewed"
+    ],
+    [
         4486,
         "transcript-english-needed"
     ],
@@ -6533,6 +6537,14 @@
     ],
     [
         80195,
+        "transcript-english-verified"
+    ],
+    [
+        80502,
+        "transcript-english-verified"
+    ],
+    [
+        80503,
         "transcript-english-verified"
     ],
     [
@@ -12732,6 +12744,10 @@
         "transcript-hindi-draft-hi"
     ],
     [
+        19634,
+        "transcript-hindi-draft-hi"
+    ],
+    [
         19655,
         "transcript-hindi-draft-hi"
     ],
@@ -13408,10 +13424,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19634,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19639,
         "transcript-hindi-needed-hi"
     ],
@@ -13837,6 +13849,10 @@
     ],
     [
         80335,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        80504,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -15740,6 +15756,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        12037,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         12044,
         "translation-hindi-to-english-draft"
     ],
@@ -16205,10 +16225,6 @@
     ],
     [
         11550,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        12037,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -20212,6 +20228,10 @@
         "translation-english-to-chinese-simplified-verified"
     ],
     [
+        36194,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
         36429,
         "translation-english-to-chinese-simplified-verified"
     ],
@@ -20245,6 +20265,14 @@
     ],
     [
         80432,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        80502,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        80503,
         "translation-english-to-chinese-simplified-verified"
     ],
     [
@@ -20410,5 +20438,9 @@
     [
         11130,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        80504,
+        "translation-hindi-to-english-needed-hi"
     ]
 ]

@@ -1,3 +1,6 @@
+5 mayo 1985
+Sahasrara Puja
+Laxenburg (Austria)
 Hoy en este precioso lugar creado por la reina de Austria, nos hemos reunido aquí para celebrar el Puja del Sahasrara.
 
 Cuando entramos en el reino del Sahasrara, sólo entonces tenemos el derecho para hacer el Puja del Sahasrara. Antes de esto, nadie habló acerca del Sahasrara, nadie hizo ningún Puja al Sahasrara. Este es vuetro privilegio, que estéis en el reino del Sahasrara, y que podáis realizar este Puja. Es vuestro derecho. Fuisteis elegidos para esto. Es un lugar muy privilegiado para que entréis en el Sahasrara del Viraat, para residir en el cerebro como células del Sahasrara. Vamos a ver cuál es la calidad de las células del Sahasrara. Estas son células especialmente creadas a través del trabajo del Swadishthana. Pasando a través de todos los chakras, que cuando llegan al Sahasrara están equipadas para manejar la actividad cerebral sin involucrarse en otros elementos del cuerpo. De la misma manera los sahaja yoguis no tienen que involucrarse con otras células - seres humanos, del cuerpo de este universo.
