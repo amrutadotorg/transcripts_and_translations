@@ -1,5 +1,5 @@
 3 marca 1996
-Mahashivaratri Pudźa
+Mahaśiwaratri Pudźa
 Bundilla Scout Camp, Sydney (Australia)
 Mahashivaratri Puja, Motywujcie swoją uwagę, 03.03.1996, Bundilla Scout Camp, Sydney (Australia)
 
