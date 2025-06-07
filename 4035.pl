@@ -1,3 +1,6 @@
+25 lipca 1992
+Durga Pudźa
+La Plaine Saint-Denis, Saint-Denis (Francja)
 Shri Durga Mahakali Puja, 25.07.1992 Paryż, Francja
 
 Dzisiaj przygotowaliśmy puję do Durgi lub Kali.

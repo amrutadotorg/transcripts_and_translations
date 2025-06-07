@@ -1,3 +1,6 @@
+6 junio 2004
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja. Cabella Ligure, Italia. 6 de junio de 2004.
 
 La reunión de hoy es muy especial. También es un día muy especial lleno de bendiciones. El motivo es lo que se habla, canta y dice sobre el nacimiento del orden, el nacimiento del poder, el origen, el "Adi" [Lo Supremo] , lo Primordial y cómo este es responsable de la Creación de este gran Universo. Vosotros ya sabéis por qué ha comenzado y cómo funciona. No necesito hablar de esto.

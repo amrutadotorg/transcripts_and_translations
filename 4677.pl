@@ -1,3 +1,6 @@
+1 listopada 1982
+Mowa do Sahadźa Joginów
+Nirmala Palace - Nightingale Lane Ashram, Londyn (Anglia)
 Urodziny Guru Nanaka, "Każdy Sahaja yogin powinien stać się Guru", 01.11.1982 Nirmala Palace (Nightingale Lane ashram), Londyn, Wielka Brytania
 
 Dzisiaj jest dzień słynnej, wielkiej pełni księżyca, zwanej Sharada Indu, która jest również imieniem Bogini Sharada Indu; to jest księżyc tego sezonu jesiennego.

@@ -1,3 +1,6 @@
+9 marzo 1983
+Devi Puja
+Kew Ashram, Melbourne (Australia)
 La dedicación da gozo, Puja en Ashram
 
 Mealbourne, 09-03-1983

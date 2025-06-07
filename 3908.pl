@@ -1,3 +1,6 @@
+14 sierpnia 1988
+Fatima Pudźa
+Saint-George (Szwajcaria)
 Shri Fatima Puja, 14.08.1988 St. Georges, Szwajcaria
 
 Dzisiaj zebraliśmy się, aby wykonać Puję do Fatimy, która była symbolem Gruha Lakshmi.

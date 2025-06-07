@@ -1,3 +1,6 @@
+15 września 2002
+Marriage
+Kampus, Cabella Ligure (Włochy)
 Śluby w Obecności Shri Mataji, 15.09.2002 Cabella Ligure, Włochy
 
 Mowa do Panien Młodych

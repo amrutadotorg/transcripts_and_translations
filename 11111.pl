@@ -1,3 +1,6 @@
+1 stycznia 1970
+Cytat
+ (Lokalizacja nieznana)
 Sahaja Yoga – Wyjątkowe Odkrycie
 
 [tekst został przetłumaczony na podstawie artykułu napisanego przez Shri Mataji w 1979 roku]

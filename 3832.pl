@@ -1,3 +1,6 @@
+20 sierpnia 1988
+Vishnumaya Pudźa
+Shudy Camps Park, Shudy Camps (Anglia)
 Shri Vishnumaya puja, 20.08.1988 Shudy Camps, Anglia
 
 Było to najmniej oczekiwane, że będziemy mieli tutaj puję albo jakikolwiek taki program.

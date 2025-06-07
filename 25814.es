@@ -1,3 +1,6 @@
+6 julio 1977
+Devi Puja
+Djamel Metouri House, St Albans (England)
 “Nuestras raíces deben profundizar en el dharma” Charla en la casa de Djamel, St Albans, Inglaterra, 6 de julio, 1977
 
 Hoy deseo hablarles sobre la pureza. De hecho, ese es mi nombre, ustedes lo saben, Nir-mala. “Ni” significa “sin”, “mala” significa impuro. Aquel que no tiene impurezas es Nirmala y este es uno de los nombres de la Diosa. La pureza es una cualidad que es silenciosa. Habla en silencio.

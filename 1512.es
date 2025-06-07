@@ -1,3 +1,6 @@
+11 agosto 1991
+Kundalini Puja
+Weilburg (Germany)
 Shri Kundalini Puja. Weilburg, Alemania. 11 de agosto de 1991.
 
 Hoy nos hemos reunido aquí para hacer el Puja de Adi Kundalini, y también para hacer el Puja a vuestra propia Kundalini.

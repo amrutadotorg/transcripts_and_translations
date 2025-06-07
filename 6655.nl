@@ -1,3 +1,6 @@
+25 december 1990
+Christmas Puja
+Ganapatipule (India)
 Kerst Puja - “Hij is enkel chaitanya” - Ganapatipule, India - 25 december 1990
 
 Vandaag hebben we een prachtige gelegenheid om de geboorte van Christus te vieren. Hij werd in een kribbe geboren. Al deze dingen waren vooraf al gepland: dat hij moest geboren worden in een kribbe, in moeilijke omstandigheden, om aan te tonen dat, of je nu rijk of arm geboren wordt of in moeilijkheden of in problemen, als je goddelijkheid in je hebt, schittert die vanzelf. Omdat het christendom een erg verkeerde en afwijkende koers nam, zijn ze nooit bij machte geweest de betekenis van Christus te begrijpen.

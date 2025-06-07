@@ -1,3 +1,6 @@
+4 października 1997
+Navaratri Pudźa
+Kampus, Cabella Ligure (Włochy)
 4-ty Dzień Navaratri, Wieczór Poprzedzający Navaratri Puję , "Materializm, Natura i Balans", 04.10.1997 Cabella, Włochy
 
 To była dla nas wielka uczta, nie tylko rozrywka, ale i droga na przyszłość – jak się poruszać i co robić. To bardzo zaskakujące, że aktywność biznesowa Swiss Banku przyciągała Moją uwagę cały czas. Nie wiem wiele, jak oni trawią wszystko tak dobrze. We współczesnych czasach, kiedy ludzie mówią o demokracji, mówią o wielkich ideałach i wszystkim takim, jak może w tym samym czasie jawnie istnieć tak nielegalny system?

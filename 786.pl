@@ -1,3 +1,6 @@
+8 marca 1980
+Mowa do Sahadźa Joginów
+Dollis Hill Ashram, Londyn (Anglia)
 Wartość Małżeństwa, 08.03.1980, Dollis Hill Ashram, Londyn
 
 ...w Sahaja Yodze najpierw następuje wasze kiełkowanie, następnie jest wzrost.
