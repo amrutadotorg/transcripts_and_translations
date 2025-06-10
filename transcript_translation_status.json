@@ -8,10 +8,6 @@
         "transcript-english-in-progress"
     ],
     [
-        49334,
-        "transcript-english-in-progress"
-    ],
-    [
         58280,
         "transcript-english-in-progress"
     ],
@@ -33,6 +29,10 @@
     ],
     [
         64763,
+        "transcript-english-in-progress"
+    ],
+    [
+        73063,
         "transcript-english-in-progress"
     ],
     [
@@ -2372,6 +2372,10 @@
         "transcript-english-reviewed"
     ],
     [
+        1557,
+        "transcript-english-reviewed"
+    ],
+    [
         1565,
         "transcript-english-reviewed"
     ],
@@ -3973,10 +3977,6 @@
     ],
     [
         72904,
-        "transcript-english-needed"
-    ],
-    [
-        73063,
         "transcript-english-needed"
     ],
     [
@@ -6532,6 +6532,10 @@
         "transcript-english-verified"
     ],
     [
+        80515,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -6765,10 +6769,6 @@
     ],
     [
         1552,
-        "transcript-english-draft"
-    ],
-    [
-        1557,
         "transcript-english-draft"
     ],
     [
@@ -11564,6 +11564,10 @@
         "transcript-english-draft"
     ],
     [
+        49334,
+        "transcript-english-draft"
+    ],
+    [
         49660,
         "transcript-english-draft"
     ],
@@ -16016,6 +16020,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        79885,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         80336,
         "translation-hindi-to-english-draft"
     ],
@@ -16049,10 +16057,6 @@
     ],
     [
         62127,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
-        79885,
         "translation-hindi-to-english-in-progress"
     ],
     [
@@ -17192,6 +17196,10 @@
         "translation-marathi-to-english-draft"
     ],
     [
+        79885,
+        "translation-marathi-to-english-draft"
+    ],
+    [
         5483,
         "translation-marathi-to-english-in-progress"
     ],
@@ -17217,10 +17225,6 @@
     ],
     [
         20926,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        79885,
         "translation-marathi-to-english-in-progress"
     ],
     [

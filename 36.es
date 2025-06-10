@@ -1,3 +1,6 @@
+4 junio 1995
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja
 
 Cabella Ligure, 4 - 6 - 1995

@@ -1,3 +1,6 @@
+4 июня 1995
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Пуджа Шри Ади Шакти
 
 Кабелла (Италия), 4 июля 1995

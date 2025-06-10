@@ -1,3 +1,6 @@
+6 juni 2004
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja, Cabella Ligure, 6 June 2004.
 
 NlTVD 2021-1122
