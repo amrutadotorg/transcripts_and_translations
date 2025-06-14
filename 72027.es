@@ -1,3 +1,9 @@
+31 diciembre 1990
+Public Program
+ (India)
+
+[Translation from 1990-1231 Unique Discovery Shri Mataji Sahaja Yoga Intro]
+
 La verdad es que no somos este cuerpo, este intelecto, emociones, este ego, ni los condicionamientos, sino el Espíritu.
 
 Y la segunda verdad es que hay un Poder Divino sutil omnipresente, que hace todo el trabajo viviente. En 1970, Shri Mataji Nirmala Devi fundó Sahaja Yoga, una técnica dinámica de meditación que nos lleva más allá de nuestras limitaciones. A través del despertar de la energía espiritual en nuestro interior, podemos experimentar la integración de todos los aspectos de nuestra vida: físico, mental, emocional y espiritual. Miles de personas de más de de 40 países han experimentado esta iluminación. La verdadera paz en el mundo sólo se logrará mediante la transformación interior de los seres humanos. Sahaja Yoga - Un descubrimiento único Me inclino ante todos los buscadores de la Verdad. La Verdad es algo que no puede cambiarse. No puede ser desafiada. No puede imaginarse. Uno tiene que sentir la Verdad en su sistema nervioso central.
