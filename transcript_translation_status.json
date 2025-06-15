@@ -6520,6 +6520,18 @@
         "transcript-english-verified"
     ],
     [
+        80524,
+        "transcript-english-verified"
+    ],
+    [
+        80525,
+        "transcript-english-verified"
+    ],
+    [
+        80526,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -12212,11 +12224,7 @@
         "transcript-english-draft"
     ],
     [
-        80522,
-        "transcript-english-draft"
-    ],
-    [
-        80523,
+        80528,
         "transcript-english-draft"
     ],
     [
@@ -20442,5 +20450,13 @@
     [
         33843,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        80527,
+        "translation-hindi-to-english-reviewed-ru"
+    ],
+    [
+        80528,
+        "translation-marathi-to-english-verified-ru"
     ]
 ]
