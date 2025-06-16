@@ -1,6 +1,6 @@
 29 марта 1983
 Holi Puja
-New Delhi (Индия) | Translation (Hindi to English) – Reviewed
+New Delhi (Индия)
 
 Значение Холи
 
