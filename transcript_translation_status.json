@@ -1,5 +1,9 @@
 [
     [
+        5759,
+        "transcript-english-in-progress"
+    ],
+    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -7216,10 +7220,6 @@
         "transcript-english-draft"
     ],
     [
-        5759,
-        "transcript-english-draft"
-    ],
-    [
         5767,
         "transcript-english-draft"
     ],
@@ -12208,6 +12208,10 @@
         "transcript-english-draft"
     ],
     [
+        80535,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13680,10 +13684,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        62227,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         64258,
         "transcript-hindi-needed-hi"
     ],
@@ -13813,6 +13813,10 @@
     ],
     [
         62125,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        62227,
         "transcript-hindi-in-progress-hi"
     ],
     [
