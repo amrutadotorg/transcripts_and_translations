@@ -3884,10 +3884,6 @@
         "transcript-english-needed"
     ],
     [
-        68047,
-        "transcript-english-needed"
-    ],
-    [
         68048,
         "transcript-english-needed"
     ],
@@ -12048,6 +12044,10 @@
         "transcript-english-draft"
     ],
     [
+        68047,
+        "transcript-english-draft"
+    ],
+    [
         68053,
         "transcript-english-draft"
     ],
@@ -12205,6 +12205,10 @@
     ],
     [
         80421,
+        "transcript-english-draft"
+    ],
+    [
+        80595,
         "transcript-english-draft"
     ],
     [
@@ -13124,6 +13128,10 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
+        19388,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
         19400,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13861,10 +13869,6 @@
     ],
     [
         19383,
-        "transcript-hindi-reviewing"
-    ],
-    [
-        19388,
         "transcript-hindi-reviewing"
     ],
     [
@@ -16777,6 +16781,10 @@
     ],
     [
         11128,
+        "translation-hindi-to-english-verified"
+    ],
+    [
+        11130,
         "translation-hindi-to-english-verified"
     ],
     [
@@ -20284,6 +20292,10 @@
         "translation-english-to-italian-not-verified"
     ],
     [
+        125,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         416,
         "translation-english-to-italian-reviewed"
     ],
@@ -20416,15 +20428,7 @@
         "translation-hindi-to-english-reviewing-2"
     ],
     [
-        11130,
-        "translation-hindi-to-english-reviewing-2"
-    ],
-    [
         7534,
-        "translation-hindi-to-english-verifying"
-    ],
-    [
-        11130,
         "translation-hindi-to-english-verifying"
     ],
     [
