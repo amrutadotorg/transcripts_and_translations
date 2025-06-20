@@ -3376,6 +3376,10 @@
         "transcript-english-needed"
     ],
     [
+        5377,
+        "transcript-english-needed"
+    ],
+    [
         5747,
         "transcript-english-needed"
     ],
@@ -3881,6 +3885,10 @@
     ],
     [
         67564,
+        "transcript-english-needed"
+    ],
+    [
+        68047,
         "transcript-english-needed"
     ],
     [
@@ -7176,10 +7184,6 @@
         "transcript-english-draft"
     ],
     [
-        5377,
-        "transcript-english-draft"
-    ],
-    [
         5391,
         "transcript-english-draft"
     ],
@@ -10224,10 +10228,6 @@
         "transcript-english-draft"
     ],
     [
-        11624,
-        "transcript-english-draft"
-    ],
-    [
         11626,
         "transcript-english-draft"
     ],
@@ -10792,10 +10792,6 @@
         "transcript-english-draft"
     ],
     [
-        19507,
-        "transcript-english-draft"
-    ],
-    [
         19536,
         "transcript-english-draft"
     ],
@@ -11081,10 +11077,6 @@
     ],
     [
         20908,
-        "transcript-english-draft"
-    ],
-    [
-        20909,
         "transcript-english-draft"
     ],
     [
@@ -12044,10 +12036,6 @@
         "transcript-english-draft"
     ],
     [
-        68047,
-        "transcript-english-draft"
-    ],
-    [
         68053,
         "transcript-english-draft"
     ],
@@ -12208,7 +12196,11 @@
         "transcript-english-draft"
     ],
     [
-        80595,
+        80598,
+        "transcript-english-draft"
+    ],
+    [
+        80600,
         "transcript-english-draft"
     ],
     [
@@ -12389,10 +12381,6 @@
     ],
     [
         14346,
-        "transcript-hindi-draft-hi"
-    ],
-    [
-        14350,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -13189,6 +13177,10 @@
     ],
     [
         13782,
+        "transcript-hindi-needed-hi"
+    ],
+    [
+        14350,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -15236,10 +15228,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        5377,
-        "translation-hindi-to-english-draft"
-    ],
-    [
         5555,
         "translation-hindi-to-english-draft"
     ],
@@ -16069,6 +16057,10 @@
     ],
     [
         4686,
+        "translation-hindi-to-english-needed"
+    ],
+    [
+        5377,
         "translation-hindi-to-english-needed"
     ],
     [
