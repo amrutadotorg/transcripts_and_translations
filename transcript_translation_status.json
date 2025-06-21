@@ -1,9 +1,5 @@
 [
     [
-        5759,
-        "transcript-english-in-progress"
-    ],
-    [
         7152,
         "transcript-english-in-progress"
     ],
@@ -1301,6 +1297,10 @@
     ],
     [
         49900,
+        "transcript-english-not-needed"
+    ],
+    [
+        50212,
         "transcript-english-not-needed"
     ],
     [
@@ -7220,6 +7220,10 @@
         "transcript-english-draft"
     ],
     [
+        5759,
+        "transcript-english-draft"
+    ],
+    [
         5767,
         "transcript-english-draft"
     ],
@@ -12193,14 +12197,6 @@
     ],
     [
         80421,
-        "transcript-english-draft"
-    ],
-    [
-        80598,
-        "transcript-english-draft"
-    ],
-    [
-        80600,
         "transcript-english-draft"
     ],
     [
