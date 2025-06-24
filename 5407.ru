@@ -1,3 +1,6 @@
+14 октября 1978
+Talk to Sahaja Yogis
+Easthampstead Park Conference Centre, Wokingham (England)
 Семинар, день первый: «Биджа мантры. Шри Маха янтра. Шри Лалита, Шри чакра»
 
 Брэкнел, Англия, 14 октября 1978.

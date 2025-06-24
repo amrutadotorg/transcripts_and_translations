@@ -1,3 +1,6 @@
+28 mei 1990
+Hamsa Chakra Puja
+YMCA - Camp Marston, San Diego (United States)
 Hamsa chakra Puja - Goddelijk onderscheidingsvermogen - San Diego, U.S.A. - 28/05/1990
 
 Translation not verified. Dear yogi, register as volunteer to do so
