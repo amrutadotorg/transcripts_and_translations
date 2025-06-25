@@ -2292,6 +2292,10 @@
         "transcript-english-not-needed"
     ],
     [
+        80612,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -6529,14 +6533,6 @@
     ],
     [
         80195,
-        "transcript-english-verified"
-    ],
-    [
-        80609,
-        "transcript-english-verified"
-    ],
-    [
-        80610,
         "transcript-english-verified"
     ],
     [
@@ -12220,10 +12216,6 @@
         "transcript-english-draft"
     ],
     [
-        80608,
-        "transcript-english-draft"
-    ],
-    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -12369,10 +12361,6 @@
     ],
     [
         13412,
-        "transcript-hindi-draft-hi"
-    ],
-    [
-        13657,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -13869,6 +13857,10 @@
     ],
     [
         12983,
+        "transcript-hindi-reviewing"
+    ],
+    [
+        13657,
         "transcript-hindi-reviewing"
     ],
     [

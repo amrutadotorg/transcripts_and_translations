@@ -1,6 +1,6 @@
 31 diciembre 1990
 Public Program
- (India)
+Ganapatipule (India)
 
 [Translation from 1990-1231 Unique Discovery Shri Mataji Sahaja Yoga Intro]
 
