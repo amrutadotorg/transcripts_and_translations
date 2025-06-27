@@ -16,10 +16,6 @@
         "transcript-english-in-progress"
     ],
     [
-        62434,
-        "transcript-english-in-progress"
-    ],
-    [
         63870,
         "transcript-english-in-progress"
     ],
@@ -2296,6 +2292,10 @@
         "transcript-english-not-needed"
     ],
     [
+        81141,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -3456,10 +3456,6 @@
         "transcript-english-needed"
     ],
     [
-        10697,
-        "transcript-english-needed"
-    ],
-    [
         10735,
         "transcript-english-needed"
     ],
@@ -4105,10 +4101,6 @@
     ],
     [
         80376,
-        "transcript-english-needed"
-    ],
-    [
-        80607,
         "transcript-english-needed"
     ],
     [
@@ -6533,6 +6525,10 @@
     ],
     [
         80195,
+        "transcript-english-verified"
+    ],
+    [
+        81139,
         "transcript-english-verified"
     ],
     [
@@ -9780,6 +9776,10 @@
         "transcript-english-draft"
     ],
     [
+        10697,
+        "transcript-english-draft"
+    ],
+    [
         10710,
         "transcript-english-draft"
     ],
@@ -11308,10 +11308,6 @@
         "transcript-english-draft"
     ],
     [
-        33763,
-        "transcript-english-draft"
-    ],
-    [
         33782,
         "transcript-english-draft"
     ],
@@ -11848,6 +11844,10 @@
         "transcript-english-draft"
     ],
     [
+        62434,
+        "transcript-english-draft"
+    ],
+    [
         62449,
         "transcript-english-draft"
     ],
@@ -12213,6 +12213,10 @@
     ],
     [
         80421,
+        "transcript-english-draft"
+    ],
+    [
+        80607,
         "transcript-english-draft"
     ],
     [
@@ -13096,10 +13100,6 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
-        19260,
-        "transcript-hindi-reviewed-hi"
-    ],
-    [
         19332,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13865,6 +13865,10 @@
     ],
     [
         14063,
+        "transcript-hindi-reviewing"
+    ],
+    [
+        19260,
         "transcript-hindi-reviewing"
     ],
     [
@@ -20417,6 +20421,10 @@
     ],
     [
         80498,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        81139,
         "translation-english-to-spanish-reviewed"
     ],
     [
