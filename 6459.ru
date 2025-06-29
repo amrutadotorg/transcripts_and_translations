@@ -1,6 +1,6 @@
 28 декабря 1993
 Marriage
-Ganapatipule (Индия) | Translation (Hindi to English) – NEEDED
+Ganapatipule (Индия)
 
 Советы Женихам
 
