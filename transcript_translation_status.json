@@ -24,15 +24,11 @@
         "transcript-english-in-progress"
     ],
     [
-        64641,
-        "transcript-english-in-progress"
-    ],
-    [
-        64642,
-        "transcript-english-in-progress"
-    ],
-    [
         64763,
+        "transcript-english-in-progress"
+    ],
+    [
+        72904,
         "transcript-english-in-progress"
     ],
     [
@@ -3380,6 +3376,10 @@
         "transcript-english-reviewed"
     ],
     [
+        80076,
+        "transcript-english-reviewed"
+    ],
+    [
         4486,
         "transcript-english-needed"
     ],
@@ -3977,10 +3977,6 @@
     ],
     [
         72895,
-        "transcript-english-needed"
-    ],
-    [
-        72904,
         "transcript-english-needed"
     ],
     [
@@ -11976,6 +11972,14 @@
         "transcript-english-draft"
     ],
     [
+        64641,
+        "transcript-english-draft"
+    ],
+    [
+        64642,
+        "transcript-english-draft"
+    ],
+    [
         64644,
         "transcript-english-draft"
     ],
@@ -12196,10 +12200,6 @@
         "transcript-english-draft"
     ],
     [
-        80076,
-        "transcript-english-draft"
-    ],
-    [
         80197,
         "transcript-english-draft"
     ],
@@ -12213,6 +12213,10 @@
     ],
     [
         80607,
+        "transcript-english-draft"
+    ],
+    [
+        81149,
         "transcript-english-draft"
     ],
     [
@@ -16676,10 +16680,6 @@
         "translation-hindi-to-english-reviewed"
     ],
     [
-        11128,
-        "translation-hindi-to-english-reviewed"
-    ],
-    [
         11134,
         "translation-hindi-to-english-reviewed"
     ],
@@ -16781,6 +16781,10 @@
     ],
     [
         11055,
+        "translation-hindi-to-english-verified"
+    ],
+    [
+        11128,
         "translation-hindi-to-english-verified"
     ],
     [
@@ -18080,10 +18084,6 @@
         "translation-marathi-to-english-reviewed"
     ],
     [
-        11128,
-        "translation-marathi-to-english-reviewed"
-    ],
-    [
         14419,
         "translation-marathi-to-english-reviewed"
     ],
@@ -18176,6 +18176,10 @@
         "translation-marathi-to-english-verified"
     ],
     [
+        11128,
+        "translation-marathi-to-english-verified"
+    ],
+    [
         11138,
         "translation-marathi-to-english-verified"
     ],
@@ -18248,10 +18252,6 @@
         "translation-english-to-marathi-draft"
     ],
     [
-        19430,
-        "translation-english-to-marathi-draft"
-    ],
-    [
         19647,
         "translation-english-to-marathi-draft"
     ],
@@ -18281,6 +18281,10 @@
     ],
     [
         18017,
+        "translation-english-to-marathi-reviewed"
+    ],
+    [
+        19430,
         "translation-english-to-marathi-reviewed"
     ],
     [
@@ -20278,6 +20282,10 @@
     [
         80430,
         "translation-english-to-chinese-traditional-draft"
+    ],
+    [
+        81149,
+        "translation-english-to-italian-draft"
     ],
     [
         230,
