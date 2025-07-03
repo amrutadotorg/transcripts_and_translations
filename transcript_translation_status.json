@@ -28,6 +28,10 @@
         "transcript-english-in-progress"
     ],
     [
+        72437,
+        "transcript-english-in-progress"
+    ],
+    [
         72904,
         "transcript-english-in-progress"
     ],
@@ -3928,10 +3932,6 @@
         "transcript-english-needed"
     ],
     [
-        72437,
-        "transcript-english-needed"
-    ],
-    [
         72438,
         "transcript-english-needed"
     ],
@@ -6477,6 +6477,10 @@
     ],
     [
         81139,
+        "transcript-english-verified"
+    ],
+    [
+        81150,
         "transcript-english-verified"
     ],
     [
@@ -20314,6 +20318,18 @@
     [
         77588,
         "translation-english-to-italian-verified"
+    ],
+    [
+        47062,
+        "translation-english-to-deutsch-draft"
+    ],
+    [
+        55438,
+        "translation-english-to-deutsch-draft"
+    ],
+    [
+        55879,
+        "translation-english-to-deutsch-draft"
     ],
     [
         77088,
