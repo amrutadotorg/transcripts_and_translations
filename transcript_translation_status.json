@@ -2096,10 +2096,6 @@
         "transcript-english-not-needed"
     ],
     [
-        79658,
-        "transcript-english-not-needed"
-    ],
-    [
         79673,
         "transcript-english-not-needed"
     ],
@@ -3216,6 +3212,10 @@
         "transcript-english-reviewed"
     ],
     [
+        34292,
+        "transcript-english-reviewed"
+    ],
+    [
         34644,
         "transcript-english-reviewed"
     ],
@@ -4021,6 +4021,10 @@
     ],
     [
         79647,
+        "transcript-english-needed"
+    ],
+    [
+        79658,
         "transcript-english-needed"
     ],
     [
@@ -11272,10 +11276,6 @@
         "transcript-english-draft"
     ],
     [
-        34292,
-        "transcript-english-draft"
-    ],
-    [
         34295,
         "transcript-english-draft"
     ],
@@ -12173,10 +12173,6 @@
     ],
     [
         80607,
-        "transcript-english-draft"
-    ],
-    [
-        81155,
         "transcript-english-draft"
     ],
     [
