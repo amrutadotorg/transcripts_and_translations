@@ -1,3 +1,6 @@
+21 julio 2002
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja. Cabella Ligure, Italia. 21 de julio de 2002.
 
 [Un gran trueno seguido de aplausos]

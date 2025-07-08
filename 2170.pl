@@ -1,3 +1,6 @@
+21 lipca 2002
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
 Guru Puja, Cabella Ligure (Italy), 21 July 2002.
 
 W Indiach wszyscy czekali na monsuny i byli tak zmartwieni, ponieważ deszcz nie nadchodził.

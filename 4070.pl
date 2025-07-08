@@ -1,3 +1,6 @@
+21 grudnia 1996
+Kartikeya Pudźa
+Vashi Health Centre, Mumbai (Indie)
 Shri Kartikeya Puja, (Transkrypt angielskiej części od 45 min), 21.12.1996 Bombay, Indie
 
 Przepraszam, musiałam mówić w języku Marathi, ponieważ musiałam powiedzieć im coś, o czym nie chciałam, żebyście wiedzieli.
