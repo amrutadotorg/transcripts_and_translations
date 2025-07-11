@@ -2404,6 +2404,10 @@
         "transcript-english-reviewed"
     ],
     [
+        2176,
+        "transcript-english-reviewed"
+    ],
+    [
         2188,
         "transcript-english-reviewed"
     ],
@@ -4045,10 +4049,6 @@
     ],
     [
         80308,
-        "transcript-english-needed"
-    ],
-    [
-        80316,
         "transcript-english-needed"
     ],
     [
@@ -6813,10 +6813,6 @@
     ],
     [
         2150,
-        "transcript-english-draft"
-    ],
-    [
-        2176,
         "transcript-english-draft"
     ],
     [
@@ -12165,6 +12161,10 @@
     ],
     [
         80298,
+        "transcript-english-draft"
+    ],
+    [
+        80316,
         "transcript-english-draft"
     ],
     [
@@ -20277,6 +20277,10 @@
     ],
     [
         416,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
+        2179,
         "translation-english-to-italian-reviewed"
     ],
     [
