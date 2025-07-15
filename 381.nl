@@ -1,3 +1,6 @@
+21 maart 1983
+Birthday Puja
+Sydney (Australia)
 Sydney (Australië) 21 maart 1983.
 
 Nederlandse vertaling versie datum 2024-0205

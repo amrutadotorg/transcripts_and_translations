@@ -1,3 +1,6 @@
+21 marca 1983
+Urodzinowa Pudźa
+Sydney (Australia)
 Jakże wspaniale być dzisiaj z wami w ten pomyślny dzień; z Australijczykami, którzy dowiedli, że są bardzo dobrymi Sahaja yoginami, którzy w bardzo szybki sposób zrobili postępy w życiu duchowym. Bycie z Moimi dziećmi tutaj daje Mi największą przyjemność.
 
 Jak wiecie, mam tak wiele dzieci na całym świecie, oprócz tych, które rzeczywiście fizycznie urodziłam. Dziś musimy myśleć o tych wszystkich, którzy są daleko od nas, tysiące mil, modlących się do Boga Wszechmogącego o wzrost duchowy. Należy modlić się tylko o wzrost duchowy, bo gdy wzrastacie, otrzymujecie całą resztę, a ponieważ nie wzrastacie, nie otrzymujecie tego, co potrzebne. To dlatego są problemy.
