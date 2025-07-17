@@ -12316,10 +12316,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        13374,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         13412,
         "transcript-hindi-draft-hi"
     ],
@@ -13464,10 +13460,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        20159,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         20183,
         "transcript-hindi-needed-hi"
     ],
@@ -13740,6 +13732,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        20159,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         20293,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13853,6 +13849,10 @@
     ],
     [
         12981,
+        "transcript-hindi-verifying"
+    ],
+    [
+        13374,
         "transcript-hindi-verifying"
     ],
     [
@@ -16669,6 +16669,10 @@
     ],
     [
         33840,
+        "translation-hindi-to-english-reviewed"
+    ],
+    [
+        33843,
         "translation-hindi-to-english-reviewed"
     ],
     [
@@ -20437,10 +20441,6 @@
     ],
     [
         7534,
-        "translation-hindi-to-english-verifying"
-    ],
-    [
-        33843,
         "translation-hindi-to-english-verifying"
     ]
 ]
