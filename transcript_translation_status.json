@@ -6484,6 +6484,10 @@
         "transcript-english-verified"
     ],
     [
+        81195,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -14452,10 +14456,6 @@
         "transcript-marathi-in-progress-mr"
     ],
     [
-        20033,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
         34950,
         "transcript-marathi-in-progress-mr"
     ],
@@ -14829,6 +14829,10 @@
     ],
     [
         20022,
+        "transcript-marathi-draft-mr"
+    ],
+    [
+        20033,
         "transcript-marathi-draft-mr"
     ],
     [
@@ -18213,6 +18217,10 @@
     ],
     [
         19647,
+        "translation-english-to-marathi-draft"
+    ],
+    [
+        20033,
         "translation-english-to-marathi-draft"
     ],
     [
