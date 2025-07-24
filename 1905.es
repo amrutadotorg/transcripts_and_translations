@@ -1,3 +1,6 @@
+29 febrero 1984
+Mahashivaratri Puja
+Pandharpur (India)
 Charla antes del Mahashivaratri Puja. Pandharpur, India. 29 de febrero de 1984.
 
 Ahora hemos llegado todos, muy bien.

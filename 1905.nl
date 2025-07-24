@@ -1,3 +1,7 @@
+29 februari 1984
+Mahashivaratri Puja
+Pandharpur (India)
+
 Mahashivaratri Puja. Onthechting en verlichting van het brein, Panadur, India. 1984-0229
 
 Nederlandse vertaling versie datum 2022-0409
