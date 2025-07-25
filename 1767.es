@@ -1,3 +1,6 @@
+19 junio 1990
+Kundalini Puja
+Moedling (Austria)
 Shri Adi Kundalini Puja. Moedling, Austria. 19 de junio de 1990.
 
 Hoy nos hemos reunido aquí para hacer el Puja a la Kundalini. Lo hicimos una vez en India hace mucho, mucho tiempo, y esta es la primera vez que hacemos este Puja aquí, en Austria. Este es el Puja de Adi Kundalini, que es la Kundalini Primordial.

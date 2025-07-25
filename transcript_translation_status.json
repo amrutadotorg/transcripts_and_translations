@@ -1,9 +1,5 @@
 [
     [
-        7152,
-        "transcript-english-in-progress"
-    ],
-    [
         13087,
         "transcript-english-in-progress"
     ],
@@ -21,10 +17,6 @@
     ],
     [
         63935,
-        "transcript-english-in-progress"
-    ],
-    [
-        64763,
         "transcript-english-in-progress"
     ],
     [
@@ -2444,6 +2436,10 @@
         "transcript-english-reviewed"
     ],
     [
+        2525,
+        "transcript-english-reviewed"
+    ],
+    [
         2624,
         "transcript-english-reviewed"
     ],
@@ -4073,10 +4069,6 @@
     ],
     [
         80376,
-        "transcript-english-needed"
-    ],
-    [
-        81199,
         "transcript-english-needed"
     ],
     [
@@ -6853,10 +6845,6 @@
     ],
     [
         2419,
-        "transcript-english-draft"
-    ],
-    [
-        2525,
         "transcript-english-draft"
     ],
     [
@@ -12192,6 +12180,10 @@
         "transcript-english-draft"
     ],
     [
+        81200,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -15324,6 +15316,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        6891,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         6970,
         "translation-hindi-to-english-draft"
     ],
@@ -16001,10 +15997,6 @@
     ],
     [
         5557,
-        "translation-hindi-to-english-in-progress"
-    ],
-    [
-        6891,
         "translation-hindi-to-english-in-progress"
     ],
     [
@@ -17188,10 +17180,6 @@
         "translation-marathi-to-english-draft"
     ],
     [
-        5483,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
         5557,
         "translation-marathi-to-english-in-progress"
     ],
@@ -17200,19 +17188,7 @@
         "translation-marathi-to-english-in-progress"
     ],
     [
-        10923,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        10997,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
         12489,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        20926,
         "translation-marathi-to-english-in-progress"
     ],
     [
@@ -20320,6 +20296,10 @@
         "translation-english-to-italian-reviewed"
     ],
     [
+        2527,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         31,
         "translation-english-to-italian-verified"
     ],
@@ -20466,13 +20446,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        19290,
-        "translation-hindi-to-english-needed-hi"
-    ],
-    [
-        81199,
-        "translation-hindi-to-english-needed-hi"
     ]
 ]

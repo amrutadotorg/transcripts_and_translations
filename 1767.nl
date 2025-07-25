@@ -1,3 +1,6 @@
+19 juni 1990
+Kundalini Puja
+Moedling (Austria)
 Shri Mataji Nirmala Devi
 
 SHRI KUNDALINI PUJA
