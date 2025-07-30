@@ -1,3 +1,6 @@
+1 octubre 1995
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja
 
 Cabella 1 - 10 - 1995
