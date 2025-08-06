@@ -2576,6 +2576,10 @@
         "transcript-english-reviewed"
     ],
     [
+        5220,
+        "transcript-english-reviewed"
+    ],
+    [
         5448,
         "transcript-english-reviewed"
     ],
@@ -3369,6 +3373,14 @@
     ],
     [
         80076,
+        "transcript-english-reviewed"
+    ],
+    [
+        81220,
+        "transcript-english-reviewed"
+    ],
+    [
+        81222,
         "transcript-english-reviewed"
     ],
     [
@@ -6492,10 +6504,6 @@
         "transcript-english-verified"
     ],
     [
-        81219,
-        "transcript-english-verified"
-    ],
-    [
         5,
         "transcript-english-draft"
     ],
@@ -7137,10 +7145,6 @@
     ],
     [
         5191,
-        "transcript-english-draft"
-    ],
-    [
-        5220,
         "transcript-english-draft"
     ],
     [
@@ -12181,6 +12185,14 @@
     ],
     [
         80607,
+        "transcript-english-draft"
+    ],
+    [
+        81221,
+        "transcript-english-draft"
+    ],
+    [
+        81223,
         "transcript-english-draft"
     ],
     [
@@ -20296,6 +20308,10 @@
         "translation-english-to-italian-reviewed"
     ],
     [
+        81220,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         31,
         "translation-english-to-italian-verified"
     ],
@@ -20442,5 +20458,9 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        81221,
+        "translation-marathi-to-english-needed-zh-hans"
     ]
 ]
