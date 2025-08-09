@@ -12896,6 +12896,10 @@
         "transcript-hindi-verified-hi"
     ],
     [
+        13374,
+        "transcript-hindi-verified-hi"
+    ],
+    [
         14679,
         "transcript-hindi-verified-hi"
     ],
@@ -13201,10 +13205,6 @@
     ],
     [
         19239,
-        "transcript-hindi-needed-hi"
-    ],
-    [
-        19243,
         "transcript-hindi-needed-hi"
     ],
     [
@@ -13696,6 +13696,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        19243,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         19262,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13849,10 +13853,6 @@
     ],
     [
         12981,
-        "transcript-hindi-verifying"
-    ],
-    [
-        13374,
         "transcript-hindi-verifying"
     ],
     [
@@ -20438,13 +20438,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        20175,
-        "translation-marathi-to-english-verified-tr"
-    ],
-    [
-        81226,
-        "translation-marathi-to-english-verified-tr"
     ]
 ]
