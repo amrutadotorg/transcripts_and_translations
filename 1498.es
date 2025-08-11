@@ -1,3 +1,6 @@
+3 junio 2001
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 “El Trabajo de la Adi Shakti”, Adi Shakti Puja, Cabella Ligure (Italia), 3 de junio 2001.
 
 Hoy estamos adorando a la Adi Shakti.

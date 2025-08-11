@@ -1,3 +1,6 @@
+14 мая 1982
+Public Program
+Brighton Pavilion, Brighton (England)
 Публичная программа
 
 Брайтон (Великобритания), 14 мая 1982

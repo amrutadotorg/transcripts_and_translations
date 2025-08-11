@@ -1,3 +1,5 @@
+3 lipca 1997
+Royal Albert Hall, Londyn (Anglia)
 03.07.1997 Program Publiczny, Royal Albert Hall, Londyn Mowa Klausa Nobla w Hołdzie dla Shri Mataji
 
 Mam przywilej i zaszczyt przedstawić państwu pierwszego z naszych znakomitych mówców. Jego nazwisko jest sławne, więc przedstawię go w kilku słowach. Alfred Nobel, szwedzki chemik i przemysłowiec, był człowiekiem, który wynalazł dynamit i pozostawił swoją fortunę na użytek Nagrody Nobla. On sam był kawalerem a pan Claus Nobel jest synem jego bratanka. Zainspirowany pracą swojego wybitnego przodka i osobiście miał pomysł założenia organizacji zwanej United Earth "Zjednoczona Ziemia", której jest przewodniczącym.

@@ -1,3 +1,6 @@
+5 mayo 1991
+Sahasrara Puja
+Ischia (Italy)
 Sahasrara Puja. Ischia, Italia. 5 de mayo de 1991.
 
 Hoy nos hemos reunido aquí para celebrar el día del Sahasrara, que fue abierto en 1970. Esta hermosa carpa es como nuestro Sahasrara, habéis hecho una decoración muy bonita para representar el Sahasrara.

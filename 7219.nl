@@ -1,3 +1,6 @@
+20 maart 1983
+Workshop
+Sydney (Australia)
 Nl TVD 2020-1127
 
 [Yogi] De vraag is: als mensen vóór hun zelfrealisatie al een zeker niveau van bewustzijn hebben. Zijn ze dan dicht bij realisatie en wat als ze jou niet eens ontmoeten, waar staan ze dan?

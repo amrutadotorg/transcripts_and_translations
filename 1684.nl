@@ -1,3 +1,6 @@
+16 september 2000
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja - Onschuld en Huwelijk - Cabella, Italië 16/09/2000
 
 Wij zijn hier vandaag samengekomen om Ganeshapuja te vieren. Jullie weten zeer goed dat Ganesha het symbool is van zuiverheid, van heiligheid en het vereren van de onschuld. Als je Shri Ganesha vereert, moet je beseffen dat hij de belichaming is van de onschuld. Ik vraag me af of hij de betekenis van “onschuld” begrijpt of niet. Onschuld is een aangeboren kwaliteit die je niet kunt forceren, die je niet kunt inoefenen, ze is een aangeboren kwaliteit van de mens. Als hij een volgeling wordt van Shri Ganesha, wordt hij onschuldig.

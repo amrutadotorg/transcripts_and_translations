@@ -1,3 +1,6 @@
+26 april 1993
+Pallas Athena Puja
+Athens, Sahaja Yoga Center in Athens (Greece)
 Shri Pallas Athena Puja - Athene, Griekenland - 26 april 1993
 
 EnTvd2016-0114 NlTVD2020-0308

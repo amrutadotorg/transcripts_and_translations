@@ -1,3 +1,6 @@
+17 marca 1985
+Urodzinowa Pudźa
+Kew Ashram, Melbourne (Australia)
 Urodzinowa Puja. Melbourne (Australia), 17 marca 1985.
 
 Jestem dziś bardzo radosna widząc was wszystkich nie tylko świętujących Moje urodziny, ale też w tym samym dniu organizujących krajowy program. To jest dobra kombinacja, jaką mamy w miesiącu marcu. W Indiach uważa się go za okres wiosenny – Madhumas, to jest to, co śpiewacie, Madhumas. I jak wiecie 21 marca następuje zrównanie dnia z nocą, więc to jest coś w rodzaju punktu równowagi a także centrum wszystkich znaków w horoskopie. Tak wiele centrów musiałam osiągnąć, urodziłam się też na Zwrotniku Raka, tak jak wy jesteście na Zwrotniku Koziorożca i Ayers Rock jest na Zwrotniku Koziorożca dokładnie w centrum. Tak wiele kombinacji trzeba było wypracować. Tak więc zasadą wzrostu jest to, aby być w centrum, aby być w równowadze, aby być w centrum maryad. Zasada jest taka, aby być w granicach centrum.

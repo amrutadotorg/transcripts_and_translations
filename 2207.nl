@@ -1,3 +1,6 @@
+4 juli 1993
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja Ik ben een Sahaja yogi Cabella, Italië 04/07/1993
 
 Vandaag gaan we guru puja houden.

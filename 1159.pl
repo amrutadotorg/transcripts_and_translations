@@ -1,3 +1,6 @@
+28 marca 1991
+Mahavira Pudźa
+Perth (Australia)
 Shri Mahavira Jayanti Puja
 28 marca 1991, Gidgegannup, Perth, Australia
 

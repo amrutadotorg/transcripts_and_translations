@@ -1,3 +1,6 @@
+18 febrero 1984
+Chandrama Puja
+Vaitarna (India)
 Shri Chandrama Puja, Vaitarna (India), 18 de Febrero de 1984.
 
 Vosotros elogiáis mucho a los indios y yo también os elogio a vosotros. Pero tenemos algunas características muy malas, y una de ellas es que somos gente extremadamente desordenada. Nuestro sentido de la estética es tan horrible que no entendemos la diferencia entre una bolsa de plástico y una jarra de plata. ¡Qué mezcla de cosas tenemos! Creo que os pediría que insistierais en ordenar las cosas vosotros mismos, porque así sabrán escoger y aprenderán lo que hay que hacer. Tenéis que aprender muchas cosas de ellos, pero ellos también tienen que aprender algunas de vosotros y son cosas muy importantes. Porque todo esto crea un ambiente y una atmósfera que es agradable para los Dioses. Pero este es el carácter de los indios. cualquier cosa que esté en mal estado, donde sea y como sea, se sigue usando. No se ve lo malo, no se habla de ello- es así. Si algo está estropeado, se deja como está.

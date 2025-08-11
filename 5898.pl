@@ -1,3 +1,6 @@
+2 grudnia 1979
+Guru Pudźa
+Dollis Hill Ashram, Londyn (Anglia)
 Guru Puja, Deklaracja Shri Mataji, 12.1979, Londyn, Wielka Brytania
 
 Miesiąc temu powiedziałam Rustomowi, że musicie zorganizować puję w tę niedzielę.

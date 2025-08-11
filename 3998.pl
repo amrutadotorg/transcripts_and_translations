@@ -1,3 +1,6 @@
+12 września 1990
+Mahakali Pudźa
+Centre Culturel Thierry Le Luron, Le Raincy (Francja)
 Shri Mahakali Puja: Czystość i Kolektywność, 12.09.1990, Le Raincy, Francja
 
 Mieliśmy Bhairava Puję w Belgii i teraz pomyślałam, aby dzisiaj mieć Puję Mahakali, ponieważ wczorajsze doświadczenie, doświadczenie zeszłej nocy, było dziełem Mahakali.

@@ -1,3 +1,6 @@
+17 agosto 1991
+Public Program
+Štvanice, Prague (Czech Republic)
 1er programa público en Praga. República Checa. 17 de agosto de 1991.
 
 Me inclino ante todos los buscadores de la verdad.

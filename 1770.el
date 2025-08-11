@@ -1,3 +1,6 @@
+7 Σεπτεμβρίου 1986
+Ganesha Puja
+YMCA - Camp Marston, San Diego (United States)
 Shri Ganesha Puja, "Establishing Shri Ganesha Principle". San Diego (USA), 7 September 1986.
 
 Σήμερα, στη γη του Σρι Κρίσνα, γιορτάζουμε τα γενέθλια του Σρι Γκανέσα.

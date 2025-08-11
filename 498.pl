@@ -1,3 +1,6 @@
+9 listopada 2003
+Diwali Pudźa
+Holiday Inn, Ventura County (Stany Zjednoczone)
 Diwali Puja, „Potrzeba Szczerości“ 09. 11.2003, Los Angeles, USA
 
 Dzisiaj jest wspaniały dzień Diwali.

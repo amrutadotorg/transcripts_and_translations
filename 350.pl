@@ -1,3 +1,6 @@
+5 maja 2002
+Sahasrara Pudźa
+Kampus, Cabella Ligure (Włochy)
 Sahasrara Puja - Obserwuj Siebie, 05.05.2002, Cabella Ligure, Włochy
 
 Muszę powiedzieć, że dzisiaj jest bardzo wielki dzień do świętowania Sahastrary, dzień Sahasrara pujy. Wydarzyło się coś bardzo wyjątkowego, że Sahasrara została otwarta. Udało się to nielicznym ludziom na całym świecie; kilku sufim, paru świętym, kilku innym w Chinach i to wszystko. Ale bardzo, bardzo niewielu udało się otworzyć Sahastrarę. Cokolwiek by powiedzieli czy napisali, nie było to zrozumiane przez ludzi, którzy się nad nimi znęcali, ukrzyżowali ich i robili te wszystkie straszne rzeczy, ponieważ nie mogli znieść kogoś, kto ma Realizację.

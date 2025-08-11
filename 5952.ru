@@ -1,3 +1,6 @@
+16 марта 1980
+Talk to Sahaja Yogis
+Dollis Hill Ashram, London (England)
 Беседа с йогами. Мать и Ее дети
 
 Доллис Хилл, Лондон, Англия

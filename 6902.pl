@@ -1,3 +1,6 @@
+26 października 1985
+Mowa do Sahadźa Joginów
+Bergenfield Ashram, New Jersey (Stany Zjednoczone)
 Kultura Sahaj, Mowa do Yoginów w Ashramie Bergenfield w New Jersey
 
  26.10.1985 New Jersey, USA

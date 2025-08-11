@@ -1,8 +1,6 @@
-6 October 1983
-He Will Be Incarnated Again As Eleven Rudras
+6 октября 1983
 Ganesha Puja
-Vancouver, West Vancouver ashram (Canada)
-Talk Language: English | Transcript (English) - Reviewed
+West Vancouver ashram, Vancouver (Canada)
 
 На Западе вы стали очень большими снаружи, подобно большому дереву.
 

@@ -1,3 +1,6 @@
+23 kwietnia 1989
+Hanumana Pudźa
+Butlins Grand Hotel, Margate (Anglia)
 Puja do Shri Hanumany
 23.04.1989, Margate, Anglia
 

@@ -1,3 +1,6 @@
+22 oktober 1979
+Publieke programma's
+Caxton Hall, London (England)
 De problemen van het Ego – Londen - 22/10/1979
 
 Translation not verified. Dear yogi, register as volunteer to do so.

@@ -1,3 +1,6 @@
+27 сентября 1992
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Наваратри Пуджа
 
 Кабелла (Италия), 27 сентября 1992

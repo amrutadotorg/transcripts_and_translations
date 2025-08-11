@@ -1,3 +1,6 @@
+15 sierpnia 1982
+Kryszna Pudźa
+Chelsham Road Aszram, Londyn (Anglia)
 Shri Krishna jako Yogeshwara – Bóg Yogi, 15.08.1982 Chelsham Road, Londyn, Anglia (wersja 2 po korektach 18.03.2021)
 
 Dzisiaj jest wspaniały dzień dla nas wszystkich, abyśmy byli radośni, ponieważ Pierwotna Istota osobiście inkarnowała się na tej Ziemi jako Shri Krishna.

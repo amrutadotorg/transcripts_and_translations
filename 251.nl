@@ -1,3 +1,6 @@
+11 april 1993
+Easter Puja
+Magliano Sabina Ashram, Magliano Sabina (Italy)
 Shri Mataji Nirmala Devi
 
 Paas Puja
@@ -145,7 +148,7 @@ Moge God jullie allemaal zegenen.
 
 [1] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
-[2] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
+[2] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 [3] Logos: het ‘Woord’ uit het Johannes evangelie; Om, Aum, Amen, de Logos of het Woord hebben dezelfde betekenis.
 

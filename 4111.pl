@@ -1,3 +1,6 @@
+27 września 1998
+Navaratri Pudźa
+Kampus, Cabella Ligure (Włochy)
 Navaratri puja, “The  Pure Knowledge”, Cabella (Italy), 27 September 1998.
 
 Nie możecie sobie wyobrazić co czuje Matka tak wielu pięknych dzieci, gdy widzi je w tak radosnym nastroju z ich rodzinami, ich dziećmi, ładnie usadzonych.

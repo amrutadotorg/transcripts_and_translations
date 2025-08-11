@@ -1,3 +1,6 @@
+28 września 1979
+Navaratri Pudźa
+Mumbai (Indie)
 7-my Dzień Navaratri: "Kundalini i Kalki Shakti", 28.09.1979, Bombaj, Maharastra, Indie.
 
 Na wasze życzenie będę mówiła dzisiaj po angielsku. Jutro być może, będziemy również posługiwać się tym językiem.

@@ -1,3 +1,6 @@
+26 września 1982
+Durga Pudźa
+Wiedeń (Austria)
 Shri Durga Puja. Wiedeń (Austria), 26 Wrzesień 1982.
 
 Wszyscy powinni założyć bandan. Tak będzie lepiej przed pują.

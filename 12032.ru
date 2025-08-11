@@ -1,3 +1,6 @@
+6 марта 1990
+Talk to Sahaja Yogis
+Melbourne (Australia)
 Беседа с сахаджа йогами о лидерах
 
 Мельбурн, Австралия

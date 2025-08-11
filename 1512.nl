@@ -1,3 +1,6 @@
+11 augustus 1991
+Kundalini Puja
+Weilburg (Germany)
 Kundalini puja - Vereer de Adi-kundalini - Weilburg, Duitsland - 11/08/1991
 
 NlTVD 2017-1125

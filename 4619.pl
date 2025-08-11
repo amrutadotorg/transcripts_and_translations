@@ -1,3 +1,6 @@
+8 czerwca 1980
+Mowa do Sahadźa Joginów
+Dollis Hill Ashram, Londyn (Anglia)
 Mowa do Sahaja yoginów, Subtelność, 08.06.1980 Dollis Hill Ashram, Dollis Hill, Londyn, Wielka Brytania
 
 Tylko osoby o subtelniejszej osobowości są w stanie zrozumieć wartości Sahaj Yogi, trzymać się wartości Sahaj Yogi, i zachować je w tym rozpadającym się świecie. Świat jest w kawałkach i każdy działa w kierunku własnej destrukcji. Wszystkie wartości, których przestrzegają ludzie, są wartościami przyziemnymi. Większość wartości jest całkowicie przyziemna. Więc dla Sahaj Yogi musimy mieć ludzi, którzy próbują uzasadnić swoje subtelności.

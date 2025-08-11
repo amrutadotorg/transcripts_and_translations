@@ -1,3 +1,6 @@
+9 juli 1982
+Publieke programma's
+Doctor Johnson House, Birmingham (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma

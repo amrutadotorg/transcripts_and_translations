@@ -1,3 +1,6 @@
+25 października 1987
+Diwali Pudźa
+Lecco (Włochy)
 Diwali Puja, “Potęga Niewinności”, 25.10.1987, Lecco (Italy)
 
 Fragment z Pujy - Znaczenie Imion

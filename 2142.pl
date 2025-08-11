@@ -1,3 +1,6 @@
+21 października 2001
+Navaratri Pudźa
+Sportcamp, Loutraki (Grecja)
 Navaratri Puja, Dzień 5-ty, ”Przezwyciężyć nienawiść miłością”, 21.10.2001, Sportcamp, Loutraki, Grecja
 
 Dziś zebraliśmy się tutaj, żeby zrobić puję do Devi. Puję tę celebrowano wiele razy i Devi była proszona przez Devów, żeby obroniła ich przed tyranią diabelskich ludzi. Dziś czuję podobnie, że jesteśmy w szponach dziwacznej sytuacji, że są ludzie, którzy sami są diabłami, jak sądzę – a także ludzie, których oni hipnotyzują – którzy usiłują zrobić coś, czego nigdy nie powinni robić. Ale oni nie wiedzą, że teraz jest kulminacja wszystkiego. Doszło do tego momentu, że wszyscy dobrzy ludzie, szczególnie Sahaja yogini powinni skierować cały swój umysł na zniszczenie takich strasznych osobowości, jak Mahishasura.

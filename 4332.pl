@@ -1,3 +1,6 @@
+18 sierpnia 2002
+Kryszna Pudźa
+Nirmal Nagari, Canajoharie (Stany Zjednoczone)
 Shri Kubera Puja, 18.08 2002, Canajoharie (USA)
 
 Dzisiaj będziemy czcić Shri Krishnę jako bardzo wielką osobowość. I wiecie, po co On przyszedł na tę ziemię - aby ustanowić tę nową formę, nie Viraty, nie Viraty, ale formę, dzięki której ten kraj stał się tak zamożny. I dopiero swoim przyjściem stworzył piękną mentalność wśród ludzi, jak rozwinąć ten kraj za pomocą Dharmy [w sposób moralny].

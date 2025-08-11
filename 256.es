@@ -1,3 +1,6 @@
+10 mayo 1992
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja, la Voluntad de Dios, Cabella, Italia, 10-05-1992
 
 Hoy vamos a celebrar el día del Sahasrara. Quizá no nos hemos dado cuenta de cómo debe haber sido ese día. Antes de la apertura del Sahasrara, Dios era un mito, la religión en si misma era un mito. Y todo comentario sobre la divinidad era un mito. La gente creía en ello, pero era simplemente una creencia. Y la ciencia, tal como se presentaba, trataba de destruir todo el sistema de valores, toda prueba del poder de Dios Todopoderoso. Si observamos la historia, una y otra vez, cuando se estableció la ciencia como tal, la gente que, por así decirlo, estaba a cargo de la dirección de los asuntos religiosos, en las diferentes religiones intentaron arreglárselas con los descubrimientos de la ciencia. Intentaron manifestar que "De acuerdo, si algo que está en la Biblia se dice mucho, si está equivocado, debemos corregirla." Especialmente (San) Agustín hizo eso. Y empezó a considerar todo esto como si fuera una estupidez, como si estas escrituras fueran simples mitos. Por lo menos El Corán, aunque contenía muchas cosas que estaban descritas en la biología de hoy.

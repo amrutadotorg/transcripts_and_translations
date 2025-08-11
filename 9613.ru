@@ -1,3 +1,6 @@
+17 мая 1981
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)
 Сила Кундалини
 
 Челшам роуд Ашрам, Лондон, (Великобритания) 17 Мая 1981

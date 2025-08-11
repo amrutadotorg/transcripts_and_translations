@@ -1,3 +1,6 @@
+2 juli 1984
+Publieke programma's
+Hampstead Town Hall Centre, Hampstead (England)
 Publiek Programma Hampstead Town Hall, Londen (UK), 2 Juli 1984.
 
 Nederlandse vertaling versie datum 2024-0205

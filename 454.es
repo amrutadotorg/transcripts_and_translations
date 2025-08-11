@@ -1,3 +1,6 @@
+2 noviembre 1997
+Diwali Puja
+Sintra (Portugal)
 Diwali Puja
 
 Portugal 2-11-1997

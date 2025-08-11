@@ -1,3 +1,6 @@
+7 september 1980
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)
 Hoe weet je waar je staat, wat God betreft.
 
 Advies in Chelsam Rd Ashram, Londen, 7 september 1980

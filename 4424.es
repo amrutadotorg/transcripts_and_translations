@@ -1,3 +1,6 @@
+23 agosto 1986
+Krishna Puja
+Hostellerie am Schwarzsee, Plaffeien (Switzerland)
 Seminario: "Charla a yoguis por la tarde antes del Krishna Puja". Schwarzsee, Suiza. 23 de agosto de 1986.
 
 Shri Krishna reside en nuestro Vishuddhi chakra. En el centro reside como Shri Krishna. En el lado izquierdo se encuentra su poder, Vishnumaya, su hermana. Allí reside como Gopala, “aquel” que vivió en Gokul cuando era niño. En el lado derecho se asienta como el rey que reinó en Dwarika, el rey Shri Krishna. Estos son los tres aspectos de nuestro Vishuddhi chakra.

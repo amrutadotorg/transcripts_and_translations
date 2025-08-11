@@ -1,3 +1,6 @@
+1 enero 1980
+Talk to Sahaja Yogis
+London (England)
 Consejos para una meditación sin esfuerzo, 1980-01-01
 
 De la misma forma que las vibraciones llegan, son emitidas. Lo que tenéis que hacer es exponeros a ellas. Lo mejor es no hacer ningún esfuerzo. No os preocupéis de dónde tenéis un problema. He visto que muchas personas que, durante la meditación, si tienen un bloqueo, continúan ocupándose. No tenéis que preocuparos. Ignoradlo y funcionará por sí mismo. Es muy fácil. Así pues, no tenéis que hacer ningún esfuerzo. Esto es lo que es la meditación.

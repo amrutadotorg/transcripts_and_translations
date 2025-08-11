@@ -1,4 +1,6 @@
-Shri Mahalakshmi Puja en Auckland, Nueva Zelanda, 12 de Marzo de 1990
+12 marzo 1990
+Mahalakshmi Puja
+Auckland, Parnell Ashram (New Zealand)Shri Mahalakshmi Puja en Auckland, Nueva Zelanda, 12 de Marzo de 1990
 
 Estoy muy feliz de estar aquí con vosotros después de tanto tiempo; y os he echado mucho de menos a todos.
 

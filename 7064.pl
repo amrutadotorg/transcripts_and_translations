@@ -1,3 +1,6 @@
+27 maja 1989
+Dewi Pudźa
+Stambuł, Dom Carla (Turcja)
 Shri Devi Puja: Istota Szacunku do Samego Siebie, 27.05.1989 Dom Carli, Istambuł, Turcja
 
 [Transkrypt z 28.11.2015 – niezweryfikowany, do dalszych korekt]

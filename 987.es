@@ -1,3 +1,6 @@
+14 mayo 1982
+Public Program
+Brighton Pavilion, Brighton (England)
 Programa público: "Consejos sobre el lado derecho". Brighton, Reino Unido. 13 de mayo de 1982.
 
 Sugiero que hoy se hagan las preguntas primero. Me pondré aquí... Si tenéis preguntas, mejor hacédmelas ahora, para que vuestra mente quede en calma. Me gustaría levantarme, así veo mejor a la gente. ¿Aquí o abajo?

@@ -1,3 +1,6 @@
+10 mayo 1998
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja. Cabella Ligure, Italia. 10 de mayo de 1998.
 
 Hoy es un gran día al coincidir en él la celebración del Sahasrara y el día de la madre. Creo que esto es un suceso muy sahaja, y lo que tenemos que entender con ello es que el Sahasrara y la cualidad de madre van juntos. Ciertamente el Sahasrara ha sido abierto y tuvo que hacerlo la Madre. Antiguamente todas las personas que vinieron a la tierra intentaron enseñar a la gente el dharma, llevarles al camino del centro, al camino recto del ascenso.

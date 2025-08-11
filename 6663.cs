@@ -1,3 +1,6 @@
+21 září 1990
+Talk to Sahaja Yogis
+Givrins Ashram, Givrins (Switzerland)
 Projev k jogínům: Dávejte na své děti pozor, 21/09/1990, Girving Ašrám, Švýcarsko
 
 Takže se tu pohybuje mnoho lovců, kteří se snaží získat pižmo, a hledají a hledají kabara.

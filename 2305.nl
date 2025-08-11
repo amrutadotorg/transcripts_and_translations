@@ -1,3 +1,6 @@
+10 oktober 1993
+Virata Puja
+YMCA Camp Whittle, Fawnskin (United States)
 Shri Virata Viratangana Puja. Los Angeles (USA), 10 oktober 1993
 
 English Transcript Version Date: 2015-1009

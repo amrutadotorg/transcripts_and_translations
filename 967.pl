@@ -1,3 +1,6 @@
+6 grudnia 1991
+Program Publiczny
+Madras (Indie)
 Publiczny Program. Madras (Indie). 6 grudnia 1991.
 
 Kłaniam się wszystkim poszukiwaczom prawdy.

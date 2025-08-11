@@ -1,8 +1,6 @@
-6 December 1991
-The Queen Of All The Queens
-Raja Rajeshwari Puja
+6 prosince 1991
+Raja Rajeshwari Púdža
 Madras (India)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Šrí Rádža Radžešvarí púdža: Královna všech královen 06/12/1991, (nekontrolováno), Madras, Indie
 

@@ -1,3 +1,5 @@
+30 grudnia 1985
+Ganapatipule (Indie)
 Międzynarodowe Seminarium, Dr. Rustom, 30.12.1985, Ganapatipule, Indie
 
 Jesteśmy tutaj na seminarium, wszyscy jesteśmy Sahaja yoginami i wszyscy dobrze się bawimy, żartujemy, dyskutujemy, itp. To wszystko jest w porządku, mam na myśli, że można cieszyć się sobą, faktycznie powinniśmy się sobą cieszyć, ponieważ całe stworzenie zostało utworzone w taki sposób, aby się sobą cieszyć.

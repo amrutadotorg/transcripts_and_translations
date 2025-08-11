@@ -1,3 +1,6 @@
+14 kwietnia 1991
+Ganeśa Pudźa
+Canberra Ashram, Canberra (Australia)
 Shri Ganesha Puja - Wewnętrzne Granice, 14.04.1991 Canberra Ashram, Australia
 
 Nie wiem, co więcej powiedzieć wam o Shri Ganeshy, ponieważ naprawdę jest to takie ważne, że musimy znać znaczenie czakry Mooladhara.

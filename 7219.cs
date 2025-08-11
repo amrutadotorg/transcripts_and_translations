@@ -1,3 +1,6 @@
+20 března 1983
+Workshop
+Sydney (Australia)
 Praktický seminář pro začátečníky: Léčení svíčkami
 
 Ášrám v Burwoodu, 20/03/1983 Sydney, Austrálie

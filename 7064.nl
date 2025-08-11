@@ -1,3 +1,6 @@
+27 mei 1989
+Devi Puja
+Carla's House, Istanbul (Turkey)
 Devi Puja - De essentie van het zelfrespect - Istambul, Turkije - 27/05/89
 
 NlTVD 2020-0904

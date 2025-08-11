@@ -1,8 +1,6 @@
-10 April 1991
-Appreciation Should Be Practiced And Informal Talk
-Virata Puja
+10 dubna 1991
+Virata Púdža
 Lake Road Ashram, Melbourne (Australia)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Šrí Viráta púdža: Začněte používat chválu, 10/4/1991, (nekontrolováno), Lake Road Ashram, Melbourne (Australia)
 

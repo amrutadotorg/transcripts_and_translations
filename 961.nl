@@ -1,3 +1,6 @@
+7 december 1991
+Publieke programma's
+Madras (India)
 Shri Mataji Nirmala Devi
 
 Publiek programma 2
@@ -305,7 +308,7 @@ Moge God jullie zegenen.
 
 [11] tattwa: een element, de essentie, het principe
 
-[12] Aum of Om: de oerklank die ontstond bij de splitsing van Sadashiva (God Almachtig) en de Adi Shakti (Oermoeder) aan het begin van de schepping. Deze klank wordt voorgesteld door het Sanskriet letterteken Omkara (\).
+[12] Aum of Om: de oerklank die ontstond bij de splitsing van Sadashiva (God Almachtig) en de Adi Shakti (Oermoeder) aan het begin van de schepping. Deze klank wordt voorgesteld door het Sanskriet letterteken Omkara ().
 
 [13] swastika: eeuwenoud, voorspoedbrengend symbool van zuiverheid en wijsheid; symbool van de Muladhara chakra.
 
@@ -357,7 +360,7 @@ Moge God jullie zegenen.
 
 [37] prana: vitale levensstroom; uitdrukking van de kracht van het rechterkanaal (Mahasaraswati)
 
-[38] Omkara of Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\).
+[38] Omkara of Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt ().
 
 [39] moksha: bevrijding, gelukzaligheid
 

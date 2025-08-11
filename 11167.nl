@@ -1,3 +1,6 @@
+25 december 1982
+Christmas Puja
+Pune (India)
 1982-1225 Christmas Puja, Puna, Indië
 
 Vandaag vieren we de geboorte van Christus, een zeer belangrijke gebeurtenis op het gebied van menselijk bewustzijn.

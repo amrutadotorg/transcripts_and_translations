@@ -1,3 +1,6 @@
+21 enero 1983
+Devi Puja
+Vaitarna (India)
 “Mantén a tu Madre complacida”, Devi Puja, Vaitarna (India), 21 de Enero 1983.
 
 Así pues, estamos llegando al final de la primera mitad de nuestra gira.

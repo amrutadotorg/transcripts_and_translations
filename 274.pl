@@ -1,3 +1,6 @@
+8 marca 1983
+Wywiad
+Melbourne (Australia)
 Konferencja Prasowa, Melbourne, Australia. 8 Marca 1983.
 
 Myślę, że powinniśmy zacząć od pytań...

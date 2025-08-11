@@ -1,3 +1,6 @@
+17 juni 1990
+Mahavira Puja
+Barcelona, Teatro del Ateneo de Arenys de Munt (Spain)
 Shri Mahavira Puja. Barcelona (Spanje), 17 Juni 1990.
 
 NlTVD2021-0410

@@ -1,3 +1,6 @@
+10 noviembre 1980
+Public Program
+Caxton Hall, London (England)
 El Espíritu: Lo Eterno, Caxton Hall, Londres, Inglaterra, 10 de noviembre de 1980
 
 Hoy vamos a tener una sesión corta, porque estáis todos invitados a cenar después del programa. Mi marido es el anfitrión que quiere invitaros y llegará sobre las 8:15 u 8:30. Así pues, hoy vamos a pensar en nuestro Espíritu, al que hemos descuidado completamente. Ni siquiera somos conscientes de que tenemos un Espíritu. Aquellos que ahora son conscientes gracias a Sahaja Yoga, porque pueden sentirlo a través de sus vibraciones, también pueden perderse y olvidarlo. El Espíritu es lo único eterno dentro de nosotros, todo lo restante es pasajero y está en evolución. Todo está en evolución y cuanto mejor es la evolución, más elevada es la forma en que el Espíritu empieza a manifestarse. Ni siquiera el sol se refleja en una piedra. Y el reflejo del sol en el lago es, creo, un reflejo que algunas veces sienten los sahaja yoguis cuando lo ven, lo sienten, fluye, pueden sentir la brisa en sus manos. Pero todavía su atención no está totalmente iluminada. El Espíritu no ha impregnado el interior.

@@ -1,3 +1,6 @@
+2 kwietnia 1976
+Mowa do Sahadźa Joginów
+Nowe Delhi (Indie)
 "Rola Języka". Delhi (Indie), 2 Kwietnia 1976.
 
 Mówiłam wam o tym, jakie to trudne być i Matką i Guru, gdyż te dwie funkcje sobie zaprzeczają.

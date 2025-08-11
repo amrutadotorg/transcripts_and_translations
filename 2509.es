@@ -1,3 +1,6 @@
+28 agosto 1983
+Krishna Puja
+Tannay Ashram, Tannay (Switzerland)
 Shri Krishna Puja. Ginebra, Suiza. 28 de agosto de 1983.
 
 Hoy estamos aquí, en esta tierra santa, celebrando el cumpleaños de Shri Krishna. Shri Krishna es lo último. Como os he dicho antes, es el Padre que vino a esta tierra y nos mostró nuestro destino final. Por esta razón, en esta tierra, nuestro Padre Supremo es la conciencia de Shri Krishna. Pero en el Reino de Dios, podemos decir que en el Cielo o incluso por encima de todo lo demás, reside Sadashiva que no encarna. Él es uno de sus aspectos; Shri Krishna es uno de los aspectos de Sadashiva, que es el Padre. Y la Adi Shakti o el Espíritu Santo, es el otro aspecto de Sadashiva que es el Poder. Cuando Shri Krishna encarnó en esta tierra, un aspecto de la Adi Shakti vino a la tierra como Radha. Es la misma que vino como la Madre de Cristo y le dio el nombre de Cristo como un apellido de Shri Krishna. Como si fuese un nombre del mismo Krishna. A Él se le llama Krist en las lenguas de India. Y ya os he dicho anteriormente por qué se le llamó Jesu o Yesu.

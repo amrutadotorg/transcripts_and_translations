@@ -1,3 +1,6 @@
+17 marzo 1985
+Birthday Puja
+Kew Ashram, Melbourne (Australia)
 Puja de Cumpleaños. Melbourne, Australia. 17 de marzo de 1985.
 
 Hoy me siento muy feliz de veros a todos celebrar mi cumpleaños, y de tener el programa nacional el mismo día. Es una buena combinación que tenemos en el mes de marzo. En India es considerado como la primavera, Madhumas. Eso es lo que cantabais. Y como sabéis, el veintiuno de marzo es el equinoccio, así que, en cierto modo es un equilibrio. También es el centro de todos los signos que tenéis en el horóscopo. Tuve que organizar muchos aspectos. También nací en el Trópico de Cáncer y -al igual que vosotros que estáis en el Trópico de Capricornio y Ayers Rock que está en el Trópico de Capricornio- está justo en el centro. Se tuvieron que producir muchas combinaciones.

@@ -1,3 +1,6 @@
+23 maart 2008
+Easter Puja
+The Pride Hotel, Nagpur (India)
 Paaspuja, “Je moet vergeven”, Hotel Pride, Nagpur (India), 23 maart 2008.
 
 NlTVD 2021-0403

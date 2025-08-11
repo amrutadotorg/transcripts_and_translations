@@ -1,3 +1,6 @@
+27 januari 1980
+Talk to Sahaja Yogis
+Bordi (India)
 Krachten geschonken aan Sahaja Yogi's, Bordi,India. 1980-01-27
 
 NL translation version 2021-11-18

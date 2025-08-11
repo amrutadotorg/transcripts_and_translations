@@ -1,3 +1,6 @@
+18 января 1983
+Ganesha Puja
+Dr Sanghvi's House, Nashik (Индия)
 Пуджа Шри Ганеше
 
 Насик, Индия

@@ -1,3 +1,6 @@
+6 agosto 1988
+Krishna Puja
+Como (Italy)
 Shri Krishna Puja, El estado de testigo
 
 Italia 6-8-1988

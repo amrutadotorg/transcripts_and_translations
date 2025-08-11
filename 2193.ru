@@ -1,3 +1,6 @@
+28 июля 1991
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Пуджа Гуру
 
 Кабелла (Италия), 28 июля 1991

@@ -1,3 +1,6 @@
+1 января 1977
+Talk to Sahaja Yogis
+New Delhi (Индия)
 Дух
 
 1977 01 01

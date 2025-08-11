@@ -1,4 +1,7 @@
-Пуджа Шри Сарасвати,
+11 августа 1990
+Mahasaraswati Puja
+Ashram in Lions Bay, Lions Bay (Canada)
+ Пуджа Шри Сарасвати,
 
 "Шри Вишнумайя - очень огненная Личность",
 

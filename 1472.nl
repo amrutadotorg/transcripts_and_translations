@@ -1,3 +1,6 @@
+1 januari 1986
+Mahaganesha Puja
+Ganapatipule (India)
 Shri Mataji Nirmala Devi
 
 Mahaganesha Puja
@@ -65,7 +68,7 @@ We hebben elf kunda's, en we zullen de havan doen voor de elf kunda's. Want de M
 
 [6] pitha of peetha: plaats, ‘zetel’ van een chakra
 
-[7] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
+[7] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 [8] Ganapati: Shri Ganesha als leider van de gana’s (engelen in de hemelse legers)
 

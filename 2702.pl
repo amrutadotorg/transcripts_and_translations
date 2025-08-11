@@ -1,3 +1,6 @@
+21 października 2007
+Navaratri Pudźa
+Sydney (Australia)
 Navaratri – Dassera 10-ty Dzień O Małżeństwach, 21.10.2007, Sydney, Australia (wersja 2)
 
 Dzisiaj jest Dassera, wielki dzień w Indiach. Mówi się, że tego dnia zabito Ravanę. On był największym wrogiem istot ludzkich i został zabity. Ale cokolwiek to jest, na pamiątkę wielkiego człowieka, Shri Ramy, świętuje się dzisiaj Dassera. Mówią, że tego dnia ci, którzy są dushtas, co znaczy "źli ludzie" lub można powiedzieć negatywni ludzie, zostają zabici. Wyobrażacie to sobie?

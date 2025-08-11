@@ -1,3 +1,6 @@
+17 octubre 1999
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja. Cabella Ligure, Italia. 17 de octubre de 1999.
 
 Esta noche nos hemos reunido aquí para celebrar el Puja a la Diosa, que es Mahakali o Durga. Ella ha adoptado muchas formas distintas para eliminar las fuerzas negativas que intentan obstruir e incluso corromper a la gente buena y honrada. Adoptó diferentes formas para destruir a muchos rakshasas y discípulos del mal. Estuvo en las dos guerras mundiales para proteger a los puros de corazón, y así fue como sobrevivieron a los sangrientos y macabros planes de aquellas personas crueles y malvadas. La gente mala tiene la capacidad de odiar y de expresar su odio de cualquier forma posible. Hay quien ya nace malo y hay quien se hace malo. Se puede adivinar quien nace malvado por su carácter vil y agresivo hacia las cosas.

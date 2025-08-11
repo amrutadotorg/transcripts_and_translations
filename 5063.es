@@ -1,3 +1,6 @@
+5 julio 1985
+Bhoomi Devi Puja
+Huis Overvoorde, Rijswijk (Holland)
 Shri Bhumi Devi Puja, Shri Trigunatmika Puja. Den Haag, Holanda. 5 de julio de 1985.
 
 Estamos en Holanda que es la tierra sagrada de Europa. Y la tierra sagrada de Europa tiene mucha agua fluyendo en su interior. La Madre Tierra está a un nivel más bajo y por ello el mar fluye a su través. De modo que aquí hay una buena combinación entre el mar y la tierra. El mar limpia y la Madre Tierra bendice a la gente de Holanda. Pero si ellos han perdido sus amarras y se encaminan en la dirección equivocada, esta misma tierra sagrada puede volverse una tierra infernal. De modo que debemos ser muy cuidadosos y ver que creamos más y más sahaja yoguis en este lugar.

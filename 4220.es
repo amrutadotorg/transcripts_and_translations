@@ -1,3 +1,6 @@
+25 diciembre 1992
+Christmas Puja
+Ganapatipule (India)
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 1992.
 
 Ya debo haber hablado mucho de Cristo anteriormente, de la relación que guarda con Shri Radaji. Él es la encarnación de Shri Ganesha, que a su vez es el Hijo de la Adi Shakti. Luego Él fue entregado a Shri Radaji y Shri Radha creó, como Mahalakshmi, como la Virgen María, a esta gran encarnación de Cristo.

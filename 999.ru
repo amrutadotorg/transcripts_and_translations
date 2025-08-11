@@ -1,3 +1,6 @@
+9 июля 1982
+Public Program
+Doctor Johnson House, Birmingham (England)
 Публичная программа. Смятение -- тонкое рабство
 
 Бирмингем (Великобритания), 9 июля 1982

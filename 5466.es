@@ -1,3 +1,6 @@
+1 enero 1977
+Talk to Sahaja Yogis
+New Delhi (India)
 El Espíritu, 1977-01-01
 
 [El Espíritu] es lo más valioso que tenemos dentro de nosotros. El valor de vuestro espíritu es incalculable y esa es la razón por la que se le considera una cosa de valor eterno. Porque es infinito. No lo podéis medir. Ahora Dios, el Todopoderoso, decimos que es Sat-Chit-Anand. "Sat" significa la verdad. La verdad que entendemos, en terminología humana, es relativa. Pero el Sat, del que os estoy hablando, es lo absoluto, desde donde empiezan todas las relaciones. Os daré un ejemplo para que comprendáis: Esta Tierra tiene océanos, ríos, y todo tipo de aguas, podemos decir. Pero la Tierra las está envolviendo a todas. Si la Madre Tierra no estuviera ahí, no podría existir ninguna de ellas.

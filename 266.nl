@@ -1,3 +1,6 @@
+25 april 1999
+Easter Puja
+Ataköy Marina Hotel, Istanbul (Turkey)
 Paas Puja "Treedt in de voetsporen van Christus" Istamboel, Turkije 25/04/1999
 
 ETVD Unknown NL Vertaling: Unknown Versië: 2017-0512

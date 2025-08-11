@@ -1,3 +1,6 @@
+7 september 1986
+Ganesha Puja
+YMCA - Camp Marston, San Diego (United States)
 Shri Mataji Nirmala Devi
 
 Shri Ganesha Puja
@@ -167,7 +170,7 @@ Wat is dit? Is zij helemaal van Oostenrijk gekomen? Ah! Uit Oostenrijk! Heel erg
 
 [2] gana's: engelen, strijders in het goddelijke leger, waarvan Shri Kartikeya de opperbevelhebber is.
 
-[3] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
+[3] Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 [4] Pashupati: Shri Shiva is gekend als ‘Pashupati’; alle dieren zijn gebonden door zijn wetten.
 

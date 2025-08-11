@@ -1,3 +1,6 @@
+25 oktober 1998
+Diwali Puja
+Novi Ligure (Italy)
 Diwali Puja - Novi Ligure,Italië - 25/10/1998
 
 Translation not verified. Dear yogi, register as volunteer to do so.

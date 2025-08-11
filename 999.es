@@ -1,3 +1,6 @@
+9 julio 1982
+Public Program
+Doctor Johnson House, Birmingham (England)
 Programa público: "Confusión: la Esclavitud Sutil". Birmingham, Reino Unido. 9 de julio de 1982.
 
 Nos tenemos que dar cuenta que los tiempos modernos son tiempos de confusión. No sabéis lo que queréis. No sabéis lo que queréis pedir. No sabéis si lo que estáis haciendo está bien o mal. La confusión es necesaria. Sin confusión no os sentís desesperados. Sin sentiros desesperados no buscáis. Pero la confusión solo es visible cuando una persona llega a una determinada área de consciencia o, podríamos decir, cuando se alcanza un cierto grado de consciencia.

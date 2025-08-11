@@ -1,3 +1,6 @@
+1 сентября 2000
+Talk to Sahaja Yogis
+Ealing Ashram, London (England)
 Беседа Шри Матаджи с врачами
 
 1 Января 2000

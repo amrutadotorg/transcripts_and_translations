@@ -1,3 +1,6 @@
+28 agosto 1994
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Krishna Puja. Cabella Ligure, Italia. 28 de agosto de 1994.
 
 Hoy estamos aquí para adorar a Shri Krishna. Como sabéis, Shri Krishna es la encarnación de Vishnu y Vishnu es el Protector del Universo. Cuando se creó el mundo, fue necesario crear también un protector, pues sin Él este mundo podría haber sido destruido completamente. Tal y como son los seres humanos, sin un protector, podrían haber hecho cualquier cosa con este mundo. Pero así Vishnu es el Protector. Es el Protector y el único que realmente encarna. Por supuesto, Brahmadeva también encarnó a veces; pero solo tomó formas. En nuestro proceso evolutivo Él ha tomado diferentes formas. Vino a esta tierra de diferentes maneras y, como decís, tuvo doce. Fue Shri Rama y hasta la décima estuvo ahí.

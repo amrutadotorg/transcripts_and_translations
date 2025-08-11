@@ -1,3 +1,6 @@
+14 mei 1982
+Publieke programma's
+Brighton Pavilion, Brighton (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma

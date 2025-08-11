@@ -1,3 +1,5 @@
+1 ledna 2007
+ (Austria)
 TWO WORLDS  (Dva světy)
 
 Vydala: Yuva Shakti Universal a Sahaja Yoga Austria, 30 minut, režie: David Jesus Vignolli © 2007 české a slovenské titulky

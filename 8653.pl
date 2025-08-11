@@ -1,3 +1,6 @@
+25 grudnia 1999
+Christmas Pudźa
+Ganapatipule (Indie)
 Pudźa Bożonarodzeniowa , Ganapatipule, Indie, 25 Grudnia 1999
 
 Dzisiaj będziemy świętować narodziny Jezusa Chrystusa. On przyszedł na tę ziemię w bardzo szczególny sposób, że narodził się z Dziewicy. I możemy zrozumieć, jak wiecie, że Śri Ganeśa również urodził się w ten sam sposób, a ponieważ Jezus jest inkarnacją Śri Ganeśy, On miał wszystkie Jego moce, kiedy się urodził, nie musiał przynosić żadnej zewnętrznej broni, aby pokazać, jakie moce On miał. Miał jednak przy sobie wszystkie moce, a mimo to starał się okazać tolerancję i zrozumienie, bo w tamtych czasach ludzie, z którymi miał do czynienia, byli zupełnymi ignorantami w sprawach duchowości.

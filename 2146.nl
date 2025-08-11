@@ -1,3 +1,6 @@
+27 september 1992
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 English transcript: ISDP verified
 Nederlands vertaling nagekeken 30/09/2011
 
@@ -103,7 +106,7 @@ Moge God jullie zegenen.
 
 [1]  Swastika: eeuwenoud, voorspoedbrengend symbool van zuiverheid en wijsheid; symbool van de Muladhara chakra
 
-[2]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die  ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya
+[2]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (). Aum is de oerklank die  ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya
 
 [3]  alfa: eerste letter van het Griekse alfabet (α)
 

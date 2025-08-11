@@ -1,3 +1,6 @@
+8 juni 1997
+Krishna Puja
+Camp Vacamas NJ, New Jersey (United States)
 Shri Krishna Puja. New York (USA), 8 Juni 1997
 
 We hebben besloten om een Shri Krishna Puja te houden in het land van Shri Krishna. Hoewel dit het land van Shri Krishna is, vraagt men mij waarom de mensen er niet spiritueel zijn. Hoe komt het dat ze verstrikt raken in verschillende soorten zoektochten die niet tot de waarheid leiden? Hoe komt het dat de mensen in Amerika niet zo alert zijn om te herkennen wat de waarheid is en wat ze moeten vinden?

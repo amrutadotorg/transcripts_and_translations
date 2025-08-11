@@ -1,3 +1,6 @@
+5 mayo 1987
+Public Program
+Brisbane City Hall, Brisbane (Australia)
 Programa público: "Necesidad de la Realización". Brisbane, Australia. 5 de mayo de 1987.
 
 Me inclino ante todos los buscadores de la verdad. Hace un momento Albert os ha explicado con mucha claridad el mecanismo que hay en nuestro interior, que permite que se produzca nuestra Realización. Sin duda hay un mecanismo. Estamos en esta sala, vemos muchas luces a nuestro alrededor y hay un mecanismo detrás de ello. Pero lo que hacemos es simplemente dar al interruptor y la luz aparece. Así, todo el mecanismo ha sido construido en nuestro interior a lo largo del proceso de la evolución y ahora hemos llegado a un punto en el que tenemos que lograr el resultado de este proceso evolutivo.

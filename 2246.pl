@@ -1,3 +1,6 @@
+23 lipca 1989
+Guru Pudźa
+Lago di Braies (Włochy)
 Guru Puja, Twórczość, 23.07.1989 Lago Di Braies, Włochy
 
 Dzisiaj musieliśmy spędzić trochę więcej czasu niż zwykle, by osiągnąć poziom, gdzie możemy naprawdę czcić Guru.

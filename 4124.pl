@@ -1,3 +1,6 @@
+9 października 1994
+Navaratri Pudźa
+Kampus, Cabella Ligure (Włochy)
 5-ty Dzień – Navaratri, Niewinność i Oświecona Wiara, 09.10.1994 Cabella, Włochy
 
 Dzisiaj zamierzamy spełnić Puję Navaratri. Wczoraj widzieliście piękny opis Navaratri i to, w jaki sposób Matka Bogini stworzyła wszelkiego rodzaju moce w was. To nie jest tak, że tylko Ona ma moce, ale wy wszyscy macie moce. I wszyscy możecie to wypracować. Wszyscy możecie odkryć, czy są te moce czy ich nie ma.

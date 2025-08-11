@@ -1,3 +1,6 @@
+3 enero 1988
+Cultural Event
+Ganapatipule (India)
 Charla a yoguis, India Tour. Ganapatipule (India), 3 Enero 1988.
 
 Espero que estéis muy cómodos y que estéis disfrutando también de la comida. Además estamos llegando al final de nuestro tour. Este tour se ha organizado, como sabéis, como un viaje a través de vuestro Shushumna Nadi. En distintos puntos, tenemos distintos chakras, de igual manera hemos pasado a través de varios lugares y ahora hemos llegado a Ganapatipule, donde tenemos que conseguir que nuestro Sahasrara se empape completamente de las bendiciones de Shri Ganesha.

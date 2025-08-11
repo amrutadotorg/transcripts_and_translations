@@ -1,3 +1,6 @@
+11 juni 1989
+Virata Puja
+Camp Wonposet, Litchfield (United States)
 Shri Virata Puja ‘Wees dynamisch’ - Connecticut, Verenigde Staten - 11 juni 1989
 
 Engelse transcriptie: IBP reviewed

@@ -1,3 +1,6 @@
+11 Ιουνίου 1985
+Public Program
+Geneva (Switzerland)
 Public Program. Geneva (Switzerland), 11 June 1985.
 
 Υποκλίνομαι σε όλους τους αναζητητές της αλήθειας.

@@ -1,3 +1,6 @@
+10 maart 1985
+Devi Puja
+Sydney (Australia)
 Devi Puja, "Hoe op te stijgen tot in Nirvikalpa" Sydney (Australië), 10 Maart 1985.
 
 NlTVD 2021-0629

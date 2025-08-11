@@ -1,3 +1,6 @@
+9 maja 2004
+Sahasrara Pudźa
+Kampus, Cabella Ligure (Włochy)
 Pudża Sahasrara
 09.05.2004, Cabella, Włochy
 

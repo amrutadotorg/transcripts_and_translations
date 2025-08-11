@@ -1,3 +1,6 @@
+9 августа 1980
+Public Program
+Carrs Lane Church Centre, Birmingham (England)
 Что мы есть внутри?
 
 Публичная программа,

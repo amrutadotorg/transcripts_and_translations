@@ -1,3 +1,6 @@
+24 czerwca 2007
+Adi Śakti Pudźa
+Kampus, Cabella Ligure (Włochy)
 Adi Shakti Puja, Cabella Ligure, 24 Czerwiec 2007.
 
 Bardzo mi miło jest was znowu tu widzieć.

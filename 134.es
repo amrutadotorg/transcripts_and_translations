@@ -1,3 +1,6 @@
+31 mayo 1985
+Devi Puja
+San Diego (United States)
 Devi Puja. San Diego, California (USA), 31 May 1985.
 
 Es un gran placer estar aquí, en el ashram de San Diego.

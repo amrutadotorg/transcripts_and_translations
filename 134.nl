@@ -1,3 +1,6 @@
+31 mei 1985
+Devi Puja
+San Diego (United States)
 Shri Mataji Nirmala Devi
 
 Devi Puja

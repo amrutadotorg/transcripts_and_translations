@@ -1,8 +1,6 @@
-5 September 1998
-Ekakarita
-Ganesha Puja
-Campus, Cabella Ligure (Italy)
-Talk Language: English | Transcript (English) – VERIFIED
+5 září 1998
+Ganesha Púdža
+Campus, Cabella Ligure (Itálie)
 
 Šrí Ganéša púdža: Ékakárita, 05/09/1998, Cabella,Itálie
 

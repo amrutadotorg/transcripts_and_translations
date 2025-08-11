@@ -1,3 +1,6 @@
+14 stycznia 1981
+Makar Sankranti Pudźa
+Pune (Indie)
 Makar Sankranti Puja, 14.01.1981, Pune, Indie
 
 Przepraszam, że nie mogłam do was mówić po angielsku - i to dość długo. Dzisiaj jest specjalny dzień Sankrant. Sankr - wiecie 'San' znaczy dobry, święty, a 'krant' znaczy – [Yogin mówi po cichu: 'Rewolucja'. Shri Mataji mówi kilka słów w Marathi]. Kiedy mówię w Marathi zapominam angielski –

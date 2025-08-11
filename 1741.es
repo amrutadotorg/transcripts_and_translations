@@ -1,3 +1,6 @@
+9 junio 1996
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti puja, Cabella Ligure, 9 - 6 - 1996
 
 Hoy vamos a adorar a la Adi Shakti y el reflejo de la Adi Shakti en vosotros es la Kundalini. Podemos decir que esta es la adoración a la Adi Shakti y a la Adi Kundalini, si comprendéis que todo lo que ha sido creado en este universo y en muchos universos es el trabajo de la Adi Shakti. Mucha gente cree que existe un solo Dios. Esto es verdad, hay un Dios, que es Dios Todopoderoso; pero Él tiene sus propios poderes y puede otorgárselos a cualquiera, así Él se manifestaría a Sí mismo. En primer lugar, lo que hizo fue crear este poder de la Adi Shakti; después se creó el sonido, lo que conocemos como "AUM"; algunos lo llaman Logos o bien el Sonido Primordial; y estos tres poderes vinieron de este sonido "A" "U" M", "Aum".

@@ -1,3 +1,6 @@
+19 lipca 1989
+Paramchaitanya Pudźa
+Taufkirchen (Niemcy)
 Paramchaitanya Puja. Taufkirchen (Niemcy), 19 July 1989.
 
 Paramchaitanya Puja

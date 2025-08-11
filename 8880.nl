@@ -1,3 +1,6 @@
+13 mei 1982
+Publieke programma's
+Christchurch House, Brighton (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma:

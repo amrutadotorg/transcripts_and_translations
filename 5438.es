@@ -1,3 +1,6 @@
+27 enero 1980
+Talk to Sahaja Yogis
+Bordi (India)
 Transformación, Consejos por la mañana durante el seminario en Bordi 1980-01-27
 
 Todo el mundo se sentía muy bien al llegar aquí, felices. Y sentían que sus vibraciones estaban bien, pero no era así. Deberíais estar alerta. Comprobadlo entre vosotros mismos, sed humildes acerca de ello. Debéis continuar revisándolo. A menos que os reviséis a vosotros mismos, ¿cómo sabréis qué es lo que os está bloqueando? Pedidles a otros que os revisen y sed humildes, muy humildes con ello. No deis las cosas por sentado porque, mientras que no nos transformemos a nosotros mismos, Sahaja Yoga no significa nada para vosotros. Ya veis, sería una forma muy material de expresión de Sahaja Yoga; como esta radio o este transistor o este altavoz que solo están transmitiendo. Tenemos que saber que Sahaja Yoga no es solo pasar energía a través de nosotros, como todas las cosas materiales están pasando energía. Este micro está pasando la energía, este transistor está pasando la energía y todas las otras cosas están pasando la energía.

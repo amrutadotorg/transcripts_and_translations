@@ -1,3 +1,6 @@
+21 octubre 1990
+Diwali Puja
+Chioggia (Italy)
 Diwali Puja. Chioggia, Venecia (Italia), 21 octubre 1990
 
 Fue una sorpresa veros a todos vosotros en procesión. De hecho Yo estaba esperando y

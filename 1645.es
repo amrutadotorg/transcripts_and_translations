@@ -1,3 +1,6 @@
+19 julio 1989
+Paramchaitanya Puja
+Taufkirchen (Germany)
 Shri Paramchaitanya Puja. Taufkirchen, Munich, Alemania. 19 de julio de 1989.
 
 Me preguntaron, ¿qué puja vamos a tener hoy? Yo lo mantuve en secreto. Hoy debemos adorar al Paramchaitanya, al Poder Omnipresente del Amor de Dios. Nosotros somos conscientes de que el Paramchaitanya lo hace todo. Al menos sabemos mentalmente que todo funciona por la gracia del Paramchaitanya, que es el Poder de la Adi Shakti, pero aún no está completamente en nuestro corazón ni en nuestra atención.

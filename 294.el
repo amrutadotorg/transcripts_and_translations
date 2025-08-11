@@ -1,3 +1,6 @@
+18 Ιουνίου 1988
+Talk to Sahaja Yogis
+Shudy Camps Park, Shudy Camps (Αγγλία)
 Advice, "Introspection and Meditation". Shudy Camps (UK), 18 June 1988.
 
 Λοιπόν σήμερα είναι η ημέρα που πρέπει να κάνουνε ενδοσκόπηση.

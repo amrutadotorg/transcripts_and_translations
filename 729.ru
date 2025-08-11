@@ -1,3 +1,6 @@
+8 апреля 2007
+Easter Puja
+House in Pratishthan, Pune (Индия)
 Пуна (Индия),
 8 апреля 2007
 

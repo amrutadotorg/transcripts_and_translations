@@ -1,3 +1,6 @@
+1 januari 1980
+Talk to Sahaja Yogis
+London (England)
 Advice for Effortless Meditation. London (UK), 1 January 1980.
 
 In het leven, op dezelfde manier, de vibraties, komen de vibraties, ze worden uitgestraald.

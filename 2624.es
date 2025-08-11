@@ -1,3 +1,6 @@
+25 diciembre 2002
+Christmas Puja
+Ganapatipule (India) | Translation (English to Spanish) - Reviewed
 Puja de Navidad
 
 ¡Feliz Navidad a todos!

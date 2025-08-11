@@ -1,3 +1,6 @@
+9 december 1991
+Mahakali Puja
+Keshavs shilpa, Bengaluru (India)
 Shri Mataji Nirmala Devi
 
 Shri Shakti Mahakali Puja

@@ -1,3 +1,6 @@
+18 maja 1993
+Fatima Pudźa
+Stambuł, Mövenpick Hotel Istanbul (Turcja)
 Shri Fatima Puja, 18.05.1993, Istanbul (Turcja)
 
 Uważajcie, żeby nie zniszczyć dywanów. Usiądźcie proszę Tak jest dobrze. Mam nadzieję, że wszyscy Mnie słyszycie? Przysuńcie się trochę bliżej. Dzisiaj jest bardzo radosny dzień, bo jesteśmy wszyscy tutaj w Turcji, aby świętować Puję do Fatimy. Jak wiecie była Ona córką Mahometa i żoną Alego, i miała dwóch synów, Hassana i Husseina, którzy później zostali zabici

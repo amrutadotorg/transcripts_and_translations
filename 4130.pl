@@ -1,3 +1,6 @@
+13 października 1991
+Navaratri Pudźa
+Kampus, Cabella Ligure (Włochy)
 1991-1013 Navaratri Pudźa, Cabella, Włochy
 
 Dzisiaj zebraliśmy się tutaj, aby celebrować Pudżę Navaratri. Miało to miejsce 9 razy, kiedy główne inkarnacje Matki tego Wszechświata zamanifestowały się. Zamanifestowały się w określonym celu. Tym celem jest ochrona tych, którzy Ją wielbią, Jej uczniów, Jej dzieci. Ta miłość zobowiązuje, Ona nie mogła tego uniknąć. Miłość Matki jest wiążąca, Ona nie może od niej uciec i Ona musi ją okazać, wypracować, i dać tę ochronę wszystkim swoim dzieciom. We współczesnych czasach, ta ochrona przybrała inną formę. W tamtych czasach, zło próbowało szkodzić, niszczyć ludzi, którzy byli sprawiedliwi, którzy byli wyznawcami, którzy czynili dobro, którzy chcieli prowadzić bardzo religijne życie. Więc żeby ich ocalić, Ona się inkarnowała. Aby ich chronić, Ona się inkarnowała. Ale oni wiedzieli, co jest dobre a co jest złe.

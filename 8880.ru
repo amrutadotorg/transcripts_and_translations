@@ -1,3 +1,6 @@
+13 мая 1982
+Public Program
+Christchurch House, Brighton (England)
 Левая сторона, проблемы подсознания
 
 Брайтон (Англия)

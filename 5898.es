@@ -1,3 +1,6 @@
+2 diciembre 1979
+Guru Puja
+Dollis Hill Ashram, London (England)
 Guru Puja, la declaración de Shri Mataji
 
 Hace un mes le dije a Rustom que debía organizar un Puja este domingo. Es un día de luna llena. Y me preguntó ¿cómo debería llamarlo? ¿Es un Guru Puja, un Puja a Mahalaxmi, o un Ganesha Puja? Así pues, le dije llámalo Guru Puja. Más tarde, me preguntó -mientras me iba a India-. "¿Por qué no celebrar aquí también el Puja de Navidad?" Hoy es un día muy importante. Porque, hace mucho tiempo, cuando Cristo era tan solo un niño, leyó las Escrituras y declaró a las multitudes que él era el Advenimiento, la Encarnación que es el Salvador. Creían que iba a venir un Salvador. Hoy, hace mucho tiempo, un domingo, declaró que él era el Salvador.

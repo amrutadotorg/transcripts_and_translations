@@ -1,3 +1,6 @@
+27 septiembre 2002
+Ganesha Puja
+Frankfurt (Germany)
 Charla en Frankfurt. Alemania. 27 de septiembre de 2003.
 
 Es maravilloso volver aquí después de tanto tiempo. Siempre que venía nos reuníamos en un gran hall y así es cómo Sahaja Yoga ha ido creciendo. Para vosotros que sois de Alemania y Austria es muy importante que entendáis que hace tiempo estuvisteis en guerra, pero hoy estáis en la guerra conmigo. Tenemos que luchar contra el mal. Ya sabéis cómo está el mundo. Tenemos que luchar y conseguir librar a la gente de la ignorancia. Sois un gran apoyo, porque tenemos que transformar a los seres humanos, tienen que llegar a ser gente buena y muy rápidamente. Una vez reciban la Realización, el cambio comenzará.

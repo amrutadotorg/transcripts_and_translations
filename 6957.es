@@ -1,3 +1,6 @@
+23 agosto 1986
+Talk to Sahaja Yogis
+Hostellerie am Schwarzsee, Plaffeien (Switzerland)
 Seminario: "Charla a yoguis por la mañana antes del Krishna Puja". Schwarzsee, Suiza. 23 de agosto de 1986.
 
 Es tan gratificante y gozoso veros a todos juntos aquí, hoy, para celebrar el Shri Krishna Puja. ¿Podéis oírme por allí? ¿No? ¿No podéis oír? Al ver a tantos sahaja yoguis aquí reunidos, estoy segura de que el diablo debe haber huido hace mucho y la caravana que le sigue también debe haberse ido. Pero espero que nosotros seamos conscientes de ello y que olvidemos nuestros temores, todas nuestras obstrucciones, nuestro pasado y aquellas cosas que hemos hecho equivocadas hasta ahora. Creo que, a veces, la gente en mi presencia se siente culpable. Yo estoy aquí para tranquilizaros, para limpiaros, para haceros hermosos y no para que os sintáis culpables.

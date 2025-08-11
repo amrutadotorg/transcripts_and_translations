@@ -1,3 +1,6 @@
+8 kwietnia 1991
+Kundalini Pudźa
+Parnell, Auckland (New Zealand)
 Gauri jest Matką Shri Ganeshy, Ona stworzyła Shri Ganeshę. bo miała wziąć kąpiel, i aby chronić swoją niewinność, stworzyła Shri Ganeshę. W ten sam sposób, Kundalini jest Gauri, a my mamy Shri Ganeshę, rezydującego w czakrze Mooladhara. A więc mamy Mooladharę, która jest siedzibą Gauri, siedzibą Kundalini, a za ochronę Kundalini odpowiada Shri Ganesha.
 
 Jak wiecie, Shri Ganesha jest bóstwem, które istnieje dla naszej niewinności. Tylko Shri Ganesha może być tam umiejscowiony, ponieważ jak wiadomo splot miedniczny dba o wszystkie funkcje wydalnicze. I jedynie Shri Ganesha może tam naprawdę pozostać nie brudząc się tym, co Go otacza.

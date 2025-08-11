@@ -1,3 +1,7 @@
+2 april 1981
+Publieke programma's
+Royal Exhibition Building, Melbourne (Australia)
+
 Nederlandse vertaling versie datum 2022-0718
 
 Public Programma Melbourne Australia, 2 april 1981

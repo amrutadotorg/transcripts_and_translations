@@ -1,3 +1,6 @@
+4 stycznia 1983
+Ganeśa Pudźa
+Solapur (Indie)
 Puja in Sholapur (India), 4 January 1983.
 
 Przykro mi. Nie udało mi się z wami porozmawiać... porozmawiać z wami bezpośrednio o rzeczach i chociaż wiecie, że bardzo dobrze się wami opiekuję i nie miałam dużo czasu, ale wiecie, że muszę pracować bardzo ciężko, a kiedy macie tylko jeden program, ja mam trzy lub cztery programy i bardzo ciężko pracuję aby się powiodły. Powiedziałam wam, że Maharashtra będzie bardzo szybkim ruchem i musimy poruszać się bardzo szybko. Musicie zrozumieć, po co przybyliście na program do Maharasztry? Dlaczego tu przyjechaliście? Ludzie muszą to zrozumieć. Odkryłam, że nie ma zrozumienia tego prostego faktu... z niektórymi ludźmi... Niektórzy są szemrającymi duszami pomiędzy wami i nie rozumieją, dlaczego tu są. Są tutaj, aby nauczyć się pewnych rzeczy o Sahaja Yodze. Zwłaszcza jeśli nie macie aszramu to zawsze jest problem, aby nauczyć się żyć z innymi w taki sposób, że powinniśmy poruszać się po spartańsku, po spartańsku, jak żyć po spartańsku i jak być mądrymi. Zobaczcie tych ludzi tutaj, Maharasztrian. Wystarczy na nich spojrzeć, trzeba się od nich uczyć.

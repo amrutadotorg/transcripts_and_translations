@@ -1,3 +1,6 @@
+30 diciembre 1992
+Mahalakshmi Puja
+Kalwa (India)
 Shri Mahalakshmi Puja. Kalwe, India. 30 de diciembre de 1992.
 
 Aquellos que se han pasado la mañana preocupados (por los billetes) deberían entender que os estáis insultando a vosotros mismos. Sois santos, ¿por qué deberíais preocuparos sobre qué avión vais a coger y cuál no? No sé por qué os preocupáis, habéis venido aquí bajo mi protección y volveréis bajo mi protección. Me sentía tan enferma por vuestra preocupación esta mañana, que pensé que quizá no tendríamos ningún Puja. Debéis saber que formáis parte de mi cuerpo, os he puesto dentro de mi cuerpo y debéis comportaros.

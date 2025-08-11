@@ -1,3 +1,6 @@
+7 mei 2000
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Talk after Sahasrara Puja, "Penetrate Your Attention",. Cabella Ligure, Italy, 7 May 2000
 
 Het was echt een prachtig idee om mijn aandacht te vestigen op al deze gebieden van het leven, die zeer belangrijk zijn en zoals het is, heb ik aandacht voor ze allemaal en ik geef om dat alles. Maar ik zou zeggen dat jullie er nu allemaal aandacht aan besteden. Omdat jullie het zijn die er iets aan kunnen doen. Je kunt beginnen met de natuur zoals zij dat zeggen, we moeten vriendelijk zijn met de natuur. We hebben zulke problemen, mensen hakken bomen uit, al dit soort dingen doen ze zonder na te denken dat dit voor het nageslacht een woestijn zal worden. Zodat, wat voor alles geldt, kunnnen de vibraties voor uw fruit en landbouw, echt veranderingen brengen. We hadden in onze tuin, je zult het niet geloven, een pioenen bloem net als deze, nog groter dan dit, heel groot. We hebben nog nooit zo'n bloem gezien. We hadden ook de tulpen die zo groot waren.

@@ -1,3 +1,6 @@
+15 september 1991
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure (Italië), 15 September 1991.
 
 NlTVD 2021-0506

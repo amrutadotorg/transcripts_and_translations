@@ -1,3 +1,6 @@
+10 november 1996
+Diwali Puja
+Sintra (Portugal)
 DIWALI PUJA - Lissabon - Portugal. - 10 november 1996.
 
 Translation not verified. Dear yogi, register as volunteer to do so.

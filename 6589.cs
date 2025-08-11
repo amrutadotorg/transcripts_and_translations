@@ -1,3 +1,6 @@
+18 srpna 1991
+Veřejné Programy
+Štvanice, Prague (Czech Republic)
 2. veřejný program v Praze: Osvícený člověk a jeho pozornost, 18/08/1991, Československo
 
 Jogín se ptá, zda může fotit během řeči Šrí Mátadží. Když mluvím, nemělo by se. Musíte zazpívat ještě jednu píseň, něco kratšího. Klaním se všem hledačům pravdy. Jak už jsem vám říkala včera, pravda je, to co je. Nemůže být uchopena pojmy, konceptualizována a nelze ji pociťovat tímto lidským vědomím. Musíte se kvůli tomu stát jemnější bytostí, kterou nazýváme duchem. Dnes vám povím o povaze ducha. Duch je odrazem Otce, Boha Všemohoucího. Jeho sídlo je na vrcholu oblasti fontanelní kosti, ale jeho odraz je v našem srdci, zatímco Kundaliní je odrazem Ducha Svatého čili prapůvodní Matky. Když je tento duch osvícen naší pozorností, naše pozornost se stává aktivní v tom smyslu, že pokud dáme na něco pozornost, neodehraje se to tam, ale naopak kamkoliv zaměříte pozornost, jedná to podle vás.

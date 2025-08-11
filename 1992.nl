@@ -1,3 +1,6 @@
+6 december 1991
+Raja Rajeshwari Puja
+Madras (India)
 Shri Mataji Nirmala Devi
 
 Shri Raja Rajeshwari Puja

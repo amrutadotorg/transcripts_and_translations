@@ -1,3 +1,6 @@
+8 mei 1994
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Sahasraradag Puja

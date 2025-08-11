@@ -1,3 +1,6 @@
+20 abril 1985
+Talk to Sahaja Yogis
+University of Birmingham, Birmingham (England)
 Seminario: "Mahamaya Shakti (parte II), mejora del Muladhara. Birmingham, Reino Unido. 20 de abril de 1985.
 
 Así es cómo juega Mahamaya. Todo estaba planeado, todos los preparativos estaban hechos, y faltaba el sari; así que vinieron y me dijeron que faltaba el sari. Por lo tanto, ahora ¿qué hacemos? No podemos hacerte el Puja sin el sari, según ellos. Así que dije: "Está bien, vamos a esperar, si llega a tiempo lo haremos, si no, lo haremos más tarde". Pero yo no estaba nada perturbada, nada molesta. Porque no tengo una concepción mental de ello. Si tenéis una concepción mental: ¡Oh! Lo habíamos programado todo, preparado todo. Hemos hecho esto, y ahora falla. ¡No importa, no falla nada!

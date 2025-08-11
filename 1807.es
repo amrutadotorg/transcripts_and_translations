@@ -1,3 +1,6 @@
+31 agosto 1990
+Hanumana Puja
+Schwetzingen Palace, Schwetzingen (Germany)
 Shri Hanumana Puja. Frankfurt, Alemania. 31 de agosto de 1990.
 
 Algunos de vosotros podéis sentaros aquí también, está bien ... Creo que podéis venir aquí, hay espacio. Algunos podéis poneros aquí para que algunos puedan ponerse allí, así no habrá problema. Vosotros sentaros ahí en frente. Ahí está mejor. Bien. Bre esta puerta, eso estaría bien. De acuerdo, podéis abrir la puerta si queréis. Bien. Mejor abierta, ¿se pueden abrir esas puertas? ¿no se abren? Oh Dios mío, necesitáis una persona alta. Necesitáis a Hanumana. Decid Su nombre y él la abrirá. Poned una silla en frente de ahí.

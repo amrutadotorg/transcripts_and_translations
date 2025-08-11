@@ -1,3 +1,6 @@
+23 października 1983
+Mowa do Sahadźa Joginów
+Deer Park Farm (Stany Zjednoczone)
 Mowa do yoginów o kuracjach (Fragment z wykładu "Talk on Treatments, Hamsa,USA", 22.10.1983 Deer Park Farm, New York, USA)
 
 Wszyscy musicie zapuszczać nieco ciepłego masła [ghee] do nosa.

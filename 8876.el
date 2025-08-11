@@ -1,3 +1,6 @@
+20 Ιουλίου 2008
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja, "How to Become a Guru", Cabella Ligure, Italy, 20 July 2008
 
 Σήμερα είναι μια πολύ σπουδαία ημέρα για όλους τους Σαχάτζα Γιόγκις.

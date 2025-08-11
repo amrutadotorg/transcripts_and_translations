@@ -1,3 +1,6 @@
+16 lutego 1991
+Mahaśiwaratri Pudźa
+Chianciano Terme (Włochy)
 Mahashivaratri Puja. Chianciano Terme (Włochy), 16 luty 1991.
 
 Dzisiaj zebraliśmy się tutaj, aby oddać cześć Sadashivie, który jest odzwierciedlony w nas jako Shiva, jako Duch. On odzwierciedla się w naszym sercu i tak jak widzieliście, celem naszego życia jest osiągnięcie tego stanu bycia Duchem. Kiedyś czytałam kilka książek o tym, jak to się robiło tę Samorealizację, aby poznać Ducha i o tym, jak ludzie byli torturowani. Najpierw prosi się ich, aby w jakiś sposób wyparli się i wyrzekli swojego ciała i potępili je. Następnie, jeśli ciało pragnie komfortu, to powiedziano, aby najpierw spróbować spać na dywanie, a nie na łóżku. Wciąż jednak to nie wystarcza, wtedy z dywanu przenosicie się na matę, wciąż nie wystarcza. Wtedy być może z tego, przenosicie się niżej na Matkę Ziemię, aby spać na Matce Ziemi. Jeśli wciąż ciało nie jest w porządku, zaczynacie spać na kamieniu. Ale wciąż Himalaje są bardzo daleko, ponieważ Shiva rezyduje na górze Kajlasz.

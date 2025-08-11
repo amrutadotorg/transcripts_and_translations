@@ -1,3 +1,6 @@
+26 září 1982
+Veřejné Programy
+Vienna (Austria)
 1.veřejný program: Duch sídlí ve vašem nitru, 26/09/1982, (nekontrolováno), Vídeň, Rakousko
 
 Klaním se všem hledačům pravdy. Všichni slyšíte? Můžete to používat. Já budu jen mluvit. V pořádku. Jsem vídeňským sahadža jogínům velmi vděčná za to, že mě sem pozvali. To je moje první návštěva Vídně. Je to poslední stát, kterého jsem se musela v Evropě dotknout. Hodně práce už bylo vykonáno v Sahadža józe v jiných zemích. Nějak se stalo, že jsem musela přijet do Vídně po tak dlouhé době.

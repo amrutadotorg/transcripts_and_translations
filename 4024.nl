@@ -1,3 +1,6 @@
+4 juli 1992
+Vishnumaya Puja
+Ashram Everbeek, Everbeek (Belgium)
 Shri Vishnumaya Puja - “Voel je niet schuldig” - Everbeek, België - 4 juli 1992
 
 NlTVD 2015-0912 Eind versie

@@ -1,3 +1,6 @@
+13 października 2007
+Navaratri Pudźa
+Sydney (Australia)
 Navaratri 2-gi Dzień, Swadishthana Czakra, 13.10.2007, Sydney, Australia (wersja 2)
 
 To bardzo miłe, widzieć was tutaj, tak szczęśliwych.

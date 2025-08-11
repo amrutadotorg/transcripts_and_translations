@@ -1,3 +1,6 @@
+15 sierpnia 1993
+Kryszna Pudźa
+Kampus, Cabella Ligure (Włochy)
 Shri Krishna Puja, Cabella Ligure (Włochy), 15 sierpnia 1993
 
 Zebraliśmy się tu dzisiaj, aby celebrować Puję do Shri Krishny. Musimy dokładnie zrozumieć, że Shri Krishna jest bardzo, bardzo ważnym Bóstwem w nas, ponieważ On jest Vishnu, który rezyduje w Voidzie, w Nabhi. On jest tym, który tworzy w nas dharmę.

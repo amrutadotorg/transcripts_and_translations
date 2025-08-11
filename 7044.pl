@@ -1,3 +1,6 @@
+5 stycznia 1988
+Evening Program Devi Puja
+Ganapatipule (Indie)
 Ganapatipule, Indie Tour. Ganapatipule (Indie), 5 Stycznia 1988.
 
 Od wczorajszego programu i przez te wszystkie dni musieliście zdać sobie sprawę, że aby wypracować Kundalini, nadać Jej pęd do Sahasrary i poszerzyć swój Shushumna Nadi, nie jest konieczne, abyście siedzieli w medytacji przez 3 do 5 godzin.

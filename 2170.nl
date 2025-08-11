@@ -1,3 +1,6 @@
+21 juli 2002
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja - Cabella, Italië - 21 Juli 2002
 
 NlTVD 2019-0602

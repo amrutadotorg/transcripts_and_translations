@@ -1,3 +1,6 @@
+13 septiembre 1992
+Hamsa Chakra Puja
+Vancouver (Canada)
 Hamsa Chakra Puja
 Canadá, 13-09-92
 

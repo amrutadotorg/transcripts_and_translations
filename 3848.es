@@ -1,3 +1,6 @@
+6 enero 1986
+Mahalakshmi Puja
+Sangli (India)
 Shri Mahalakshmi Puja. Sangli (India), 6 January 1986.
 
 El problema fue que no pudimos hacer que la cocina estuviese más cerca de donde os alojabais y tuvisteis que caminar mucho.

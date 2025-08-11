@@ -1,3 +1,6 @@
+30 czerwca 1980
+Program Publiczny
+Caxton Hall, Londyn (Anglia)
 Co się dzieje w innych lokach
 Miejsce: Caxton Hall, UK
 30 czerwca 1980

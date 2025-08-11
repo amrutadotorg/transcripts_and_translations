@@ -1,3 +1,6 @@
+21 stycznia 1983
+Dewi Pudźa
+Vaitarna (Indie)
 Puja do Devi w Vaitharnie, 21.01.1983 Indie
 
 Teraz dochodzimy do końca naszej pierwszej połowy tury indyjskiej.

@@ -1,3 +1,6 @@
+10 października 1991
+Navaratri Pudźa
+Palazzo Doria, Cabella Ligure (Włochy)
 The third day of Navaratri 1991, talk on October 10th, Cabella, (Italy)
 
 Wczoraj opowiadałam wam o tym w jaki sposób te wszystkie inkarnacje z zasady Guru przyszły na tę Ziemię, i jak próbowały ustanowić Dharmę, wartościowość (walencyjność) wśród ludzi.

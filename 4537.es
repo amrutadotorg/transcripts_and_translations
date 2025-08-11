@@ -1,3 +1,6 @@
+27 enero 1977
+Talk to Sahaja Yogis
+Bordi (India)
 "Atención y gozo". Shibir, Bordi, India. 27 de enero de 1977.
 
 ...se dispersa mucho y cómo fijar la atención. La calidad de la atención cambia de acuerdo al estado de vuestra evolución. Por ejemplo, en un animal... Entonces, ¿dónde está situada la atención en el ser humano? No es un punto fijo. Podéis decir que la atención es la superficie o el borde de la consciencia. Cuando somos conscientes de algo, la atención se desvía hacia ese punto. Por usar una analogía, las limaduras de hierro tienen el poder de ser atraídas hacia el imán. ¿Dónde está ese poder? No se puede localizar, está en todas partes. Las limaduras son atraídas dondequiera que se coloque el imán. Nuestra atención también es así.

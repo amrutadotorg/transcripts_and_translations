@@ -1,3 +1,6 @@
+10 Μαΐου 1998
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja. Cabella Ligure (Italy), 10 May 1998.
 
 Σήμερα είναι μια σπουδαία ημέρα, γιατί η ημέρα του Σαχασράρα συμπίπτει με τη γιορτή της Μητέρας.

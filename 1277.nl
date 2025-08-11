@@ -1,3 +1,6 @@
+26 september 1982
+Durga Puja
+Vienna (Austria)
 Shri Mataji Nirmala Devi
 
 Shri Durga Puja

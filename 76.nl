@@ -1,3 +1,6 @@
+1 november 1981
+Diwali Puja
+Chelsham Road Ashram, London (England)
 Diwali Puja - De krachten van de Gruha Lakshmi - Londen, Chelsam Road Ashram UK - 1 november 1981
 
 NlTVD 2021-1012

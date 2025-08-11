@@ -1,3 +1,6 @@
+11 augustus 1990
+Mahasaraswati Puja
+Ashram in Lions Bay, Lions Bay (Canada)
 Shri Saraswati Puja. Vancouver (Canada), 11 Augustus 1990.
 
 Toen ze me vroegen welke puja we in Vancouver zouden hebben, hoorde ik dat deze ashram omgeven is door zeer mooie natuur en vermits de natuur gecreëerd wordt door de kracht van Saraswati, dacht ik dat het goed zou zijn om de Saraswati Puja hier te houden. Bovendien is het zo dat als mensen in de natuur leven, ze uitermate creatief worden, hun fijne gevoelens zijn bewaard gebleven en ze zijn nooit gehaast, of ze zijn niet wat we noemen teveel gemoderniseerd, omdat de natuur hen kalmeert. Zo ook draagt de creativiteit van Saraswati bij tot het artistieke, en ik wist dat er in dit land sinds mensen heugenis veel kunstenaars gecreëerd moeten zijn.

@@ -1,8 +1,6 @@
-29 September 1996
-You Have To Give, And Give, And Give
-Krishna Puja
+29 září 1996
+Krishna Púdža
 Camp Vacamas NJ, New Jersey (United States)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Šrí Krišna púdža: Musíte dávat, dávat a dávat, 29/09/1996, (nekontrolováno), New York, USA
 

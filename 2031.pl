@@ -1,3 +1,6 @@
+10 kwietnia 1991
+Virata Pudźa
+Lake Road Ashram, Melbourne (Australia)
 Shri Virata Puja
 10.04.1991, Melbourne, Australia
 

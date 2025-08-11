@@ -1,3 +1,6 @@
+9 lutego 1975
+Mowa do Sahadźa Joginów
+Mumbai (Indie)
 1975-02-09, Meditation and Prayer, Mumbai
 
 Musicie się modlić do Boga i prosić o to czego chcecie.

@@ -1,3 +1,6 @@
+25 grudnia 2003
+Christmas Pudźa
+Ganapatipule (Indie)
 Puja do Chrystusa, 25.12.2003, Ganapatipule, Indie
 
 Dzisiaj jest wielki dzień, ponieważ będziemy celebrować narodziny Jezusa Chrystusa.

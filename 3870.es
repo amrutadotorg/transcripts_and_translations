@@ -1,3 +1,6 @@
+4 octubre 1987
+Rama Puja
+Les Avants (Switzerland)
 Shri Rama Puja, día de Dassera
 
 Suiza, Les Avants 4-10-1987

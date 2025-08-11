@@ -1,3 +1,6 @@
+20 października 1979
+Diwali Pudźa
+Dollis Hill Ashram, Londyn (Anglia)
 Diwali Puja, Dzisiaj jest dzień złożenia przysięgi, 20.10.1979 Dollis Hill ashram, Londyn, Anglia
 
 ...Czternastego dnia został on zabity przez Shadanana, Kartikeya, był synem Parvati i Shankara, który był bardzo potężnym przejawem Mocy Rudry, i jest zabójczą mocą Boga.

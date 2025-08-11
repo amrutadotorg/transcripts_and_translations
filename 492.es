@@ -1,3 +1,6 @@
+3 noviembre 2002
+Diwali Puja
+Lake Piru, Ventura County (United States)
 Diwali Puja. Lago Piru, Los Ángeles, Estados Unidos. 3 de noviembre de 2002.
 
 Os deseo un Diwali muy, muy feliz. Veros a todos aquí me hace sentir un gran gozo. Habéis aceptado Sahaja Yoga de una forma tan hermosa... Es algo vuestro, el Ser os pertenece, el Espíritu os pertenece. Pero “dedicarse” al Ser es difícil. Creo que, sencillamente, se están cumpliendo vuestros deseos. Y es por eso por lo que habéis recibido la Realización. Es algo que no se puede forzar, como muy bien habéis comprobado.

@@ -1,3 +1,6 @@
+20 agosto 2000
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Krishna Puja. Cabella Ligure, Italia. 20 de agosto de 2000.
 
 Hoy estamos aquí para adorar a Shri Krishna dentro de nosotros. Como sabéis, todos vosotros habéis sido buscadores antes de llegar a Sahaja Yoga. Fuisteis a distintos lugares, leísteis muchos libros e incluso algunos de vosotros os perdisteis. En esa búsqueda, quizá no sabíais lo que buscabais. Lo que buscabais era "conoceros a vosotros mismos". En todas las religiones se ha dicho: "Conócete a ti mismo". Esto es algo común para todos y aparece en absolutamente todas las religiones, porque sin conocerse a sí mismo, no se conocerá a Dios, no se conocerá la espiritualidad. Por tanto, el primer paso es conocerse a uno mismo. Y en este aspecto, han intentado jugar con vosotros, os han hecho todo tipo de trucos y os han engañado. Pero todo esto ha terminado. Ahora habéis llegado a Sahaja Yoga y habéis obtenido la Realización del Ser.

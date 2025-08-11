@@ -1,3 +1,7 @@
+17 octubre 1982
+Navaratri Puja
+Temple of All Faiths, Hampstead (England)
+
 Primer día de Navaratri, Hampstead, Inglaterra 1982-10-17
 
 Es un gran hecho el que hoy estemos celebrando la adoración de la Virgen en Inglaterra. Como sabéis, de acuerdo con Sahaja Yoga, Inglaterra es el corazón dónde reside el Espíritu de Shiva. Y la Virgen debe ser respetada, venerada y adorada en Inglaterra. Es un gran honor, creo, para todos los sahaja yogis. Ahora hay que pensar ¿por qué se le da tanta importancia a una Virgen? ¿Por qué se respeta tanto a una Virgen? ¿Cuáles son los poderes de una Virgen? Que Ella pudiera engendrar un hijo de tal magnitud como lo fue Cristo, que Ella pudiera crear a Sri Ganesha de Su propio cuerpo, que Ella pudiera proteger la fuerza inocente y dinámica de Sus hijos que no tienen ego, que no han conocido lo que es el ego. Así que este gran poder y fuerza residen en una persona que tiene muchas 'guru punyas' [virtudes de gurú], que ha hecho muchas cosas buenas en vidas anteriores, que siempre ha comprendido que la virginidad es un poder superior a cualquier otro poder y que salvaría la Virginidad y la Castidad con todo su esfuerzo y esmero. Como sabéis dentro de nuestro cuerpo Ella reside como Kundalini, Significa que es la Virgen, Ella es inmaculada, el deseo de convertirse en Espíritu no tiene mancha, "nirmala". No hay mancha.

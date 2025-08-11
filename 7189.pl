@@ -1,3 +1,6 @@
+16 lipca 2001
+Program Publiczny
+Holland Park School, Londyn (Anglia)
 Program Publiczny, Londyn, Anglia, 16 lipca 2001.
 
 Bardzo się cieszę, że mogę was tu wszystkich widzieć.

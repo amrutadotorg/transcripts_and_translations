@@ -1,3 +1,6 @@
+23 września 1983
+Wywiad
+Los Angeles (Stany Zjednoczone)
 Wywiad w Telewizji, 23.09.1983, Los Angeles, USA
 
 Właśnie dołącza do mnie Shri Mataji, znana na całym świecie jako święta. 

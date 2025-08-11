@@ -1,3 +1,6 @@
+15 mei 1982
+Lalita Puja
+Gillian's House, Brighton (England)
 Shri Mataji Nirmala Devi
 
 Puja lezing – deel I en II

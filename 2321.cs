@@ -1,3 +1,6 @@
+1 září 1991
+Krishna Púdža
+Campus, Cabella Ligure (Itálie)
 Šrí Krišna púdža: Jogéšvára - technika hry, 01/09/1991, Cabella Ligure (Italy)
 
 Dnes jsme se rozhodli uctít Jógešvaru.

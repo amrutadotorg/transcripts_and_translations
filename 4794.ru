@@ -1,3 +1,6 @@
+11 декабря 1988
+Adi Shakti Puja
+Residence of Madhukar Dhumal, Rahuri (Индия)
 Ади Шакти Пуджа, Непривязанность.
 
 Рахури (Индия), 11 декабря 1988 года.

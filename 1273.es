@@ -1,3 +1,6 @@
+22 agosto 1982
+Ganesha Puja
+House of Charles and Magda Mathys, Troinex (Switzerland)
 Shri Ganesha Puja. Troinex, Ginebra, Suiza. 22 de agosto de 1982.
 
 Primero me gustaría hablaros del significado del Puja. Hay dos aspectos. Un aspecto es que vosotros tenéis vuestras propias deidades en vuestro interior, y estas han de ser despertadas. Las deidades son los diferentes aspectos de un único Dios. Así que, por un lado tenemos a las deidades, que son los aspectos de Dios y que están siempre despiertas. Por otro lado vosotros tenéis a vuestras propias deidades, que a veces están despiertas, a veces medio despiertas, a veces dormidas y a veces enfermas.

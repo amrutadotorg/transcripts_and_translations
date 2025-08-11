@@ -1,3 +1,6 @@
+4 augustus 1991
+Buddha Puja
+Brielpoort Deinze, Deinze (Belgium)
 Shri Mataji Nirmala Devi
 
 Shri Boeddha Puja

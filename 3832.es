@@ -1,3 +1,6 @@
+20 agosto 1988
+Vishnumaya Puja
+Shudy Camps Park, Shudy Camps (England)
 Shri Vishnumaya: "Curar el Vishuddhi Izquierdo", Inglaterra, 20-08-1988
 
 Lo que menos se esperaba es que tuviéramos un puja aquí o que tuviéramos algún programa de este tipo.

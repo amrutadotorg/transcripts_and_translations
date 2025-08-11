@@ -1,3 +1,6 @@
+23 julio 1989
+Guru Puja
+Lago di Braies (Italy)
 Guru Puja. Lago di Braies, Italia. 23 de julio de 1989.
 
 Hoy hemos tenido que emplear un poco más de tiempo en llegar al escenario, que es donde realmente podemos adorar al Guru. Cuando adoramos a nuestro Guru tenemos que saber que, en realidad, estamos intentando despertar el Principio del Guru dentro de nosotros. No solamente estáis aquí para adorar a vuestro Guru, podéis adorarlo muchas veces; puede ser que las vibraciones fluyan, puede que os llenéis de ellas, os sintáis elevados y nutridos. Pero este alimento tiene que retenerse en nosotros; así que, recordad que siempre que estéis adorando cualquier principio fuera, estáis intentando adorar vuestro propio principio dentro de vosotros. Como sabéis, dentro de nosotros reside el Principio del Guru. Es muy interesante fijarse en el "Principio del Guru" bellamente dibujado alrededor del Nabhi chakra. Nunca vemos ningún chakra conectado con el Principio del Guru. Veis el Nabhi y alrededor está el Bhavasagara.

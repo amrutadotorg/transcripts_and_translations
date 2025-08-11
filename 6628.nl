@@ -1,3 +1,6 @@
+5 mei 1980
+Sahasrara Puja
+Dollis Hill Ashram, London (England)
 Sahasrara Puja - Oprechtheid is de sleutel tot je succes - Dollis Hill Ashram, Londen - 5 mei 1980
 
 We kunnen zeggen dat op 5 mei 1970 voor de eerste keer de collectieve Spirit van God zich opende.

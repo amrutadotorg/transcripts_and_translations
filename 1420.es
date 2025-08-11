@@ -1,3 +1,6 @@
+8 agosto 1989
+Ganesha Puja
+Les Diablerets (Switzerland)
 Shri Ganesha Puja. Les Diablerets, Suiza. 8 de agosto de 1989.
 
 Hoy hemos venido aquí para adorarme como Shri Ganesha. Hemos estado cantando en alabanza a Shri Ganesha antes de cada Puja. Y tenemos un gran respeto por Shri Ganesha porque hemos descubierto que hasta que Shri Ganesha, que es el símbolo de nuestra inocencia, no se despierte dentro de nosotros no podemos entrar en el Reino de Dios; e incluso para quedarse ahí y para gozar de las bendiciones de Shri Ganesha tenemos que tener nuestra inocencia floreciendo completamente.

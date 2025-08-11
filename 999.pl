@@ -1,3 +1,6 @@
+9 lipca 1982
+Program Publiczny
+Doctor Johnson House, Birmingham (Anglia)
 Program publiczny, "Zamieszanie: Subtelne Niewolnictwo". Birmingham (UK), 9 Lipiec 1982.
 
 Trzeba zdać sobie sprawę, że współczesne czasy są czasami zagubienia. Nie wiecie czego chcecie. Nie wiecie, o co chcecie poprosić. Nie wiecie czy to, co robicie jest dobre czy złe. Zamęt jest potrzebny. Bez niego nie ma desperacji. Jeżeli nie jesteśmy zdesperowani, nie poszukujemy. Ale zamęt widać tylko wtedy, kiedy osiąga się pewien obszar świadomości albo inaczej mówiąc stopień świadomości.

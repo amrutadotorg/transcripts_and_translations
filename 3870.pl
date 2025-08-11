@@ -1,3 +1,6 @@
+4 października 1987
+Rama Pudźa
+Les Avants (Szwajcaria)
 Shri Rama Puja
 
 Dziś, w Dniu Dassera, w Szwajcarii celebrujemy koronację Shri Ramy. Wiele rzeczy wydarzyło się w Dniu Dassera. Najważniejszą było to, że tego dnia Shri Rama został koronowany na króla. Tego dnia także zabił Ravanę. Wielu może zapytać: "Jak to możliwe, że zabił Ravanę i został koronowany tego samego dnia?" W tamtych czasach mieliśmy w Indiach ponaddźwiękowe samoloty, to jest fakt – i ten samolot nazywał się Pushpak, co oznacza kwiat. Nazywano go Pushpak i rozwijał niesamowitą prędkość. Tak więc po zabiciu Ravany, On przybył do Ayodhyi ze swoją żoną i tego dnia został koronowany. Dziewiątego dnia czcił Boginię, żeby zyskać siłę, Shakti, dla swojej broni, a dziesiątego dnia zabił Ravanę. Zatem możecie sobie wyobrazić, jak bardzo zaawansowani byli tamtejsi ludzie w czasach Shri Ramy i Jego królestwa. Powód był taki, że król był inkarnacją, był także królem łaskawym, jakiego opisywał Sokrates.

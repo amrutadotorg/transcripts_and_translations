@@ -1,3 +1,7 @@
+11 lutego 1983
+Shiva Tattva Within Us
+Mahaśiwaratri Pudźa
+Universal Sahaj Temple, Nowe Delhi (Indie)
 Mahashivaratri Puja, 1983.02.11, New Delhi, India
 (wersja II poprawiona, czerwiec 2015)
 

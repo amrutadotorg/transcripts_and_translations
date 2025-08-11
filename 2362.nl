@@ -1,3 +1,6 @@
+21 september 1986
+Mahalakshmi Puja
+Oude Stadsfeestzaal, Mechelen (Belgium)
 Shri Mahalakshmi Puja, België 1986
 
 Mechelen, België

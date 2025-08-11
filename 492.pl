@@ -1,3 +1,6 @@
+3 listopada 2002
+Diwali Pudźa
+Lake Piru, Ventura County (Stany Zjednoczone)
 Diwali Pudźa. Lake Piru, Los Angeles, (USA) - 3 listopada 2002.
 
 Składam wam najlepsze życzenia z okazji Diwali.

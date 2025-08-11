@@ -1,3 +1,6 @@
+4 agosto 1991
+Buddha Puja
+Brielpoort Deinze, Deinze (Belgium)
 Shri Buda Puja: "Debéis superar los deseos". Deinze, Bélgica. 4 de agosto de 1991.
 
 Hoy nos hemos reunido aquí para hacer un Puja a Buda. Como sabéis Buda era el hijo de un rey, y un día se quedó perplejo al ver a un hombre pobre, muy delgado e infeliz caminando por la calle y se sintió muy triste. Luego vio a una persona muy enferma a punto de morir y a continuación vio a un hombre muerto que era llevado al campo crematorio. Todo esto le desconcertó mucho y empezó a pensar sobre ello y a buscar la razón de todos estos acontecimientos, en la vida del ser humano. ¿Por qué se vuelven tan miserables o enfermos, y por qué mueren tan miserablemente? En su búsqueda encontró una razón para todo esto. Recorrió el mundo entero, leyó todos los Upanishads, fue a muchos gurus, a muchos lugares de tradición espiritual, como Benarés; no hubo lugar al que no fuese y, finalmente, se sentó bajo un árbol "banyan", allí, su Kundalini fue despertada por la Adi Shakti y obtuvo su Realización. Entonces comprendió que la razón de todo esto es el deseo.

@@ -1,3 +1,6 @@
+1 ноября 1982
+Talk to Sahaja Yogis
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Пуджа ко дню рождения Гуру Нанака
 
  

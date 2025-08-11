@@ -1,3 +1,6 @@
+15 mayo 1982
+Lalita Puja
+Gillian's House, Brighton (England)
 Shri Lalita Puja. Hove, Brighton (UK), 15 May 1982.
 
 Me siento una Madre muy orgullosa al ver a tantos sahaja yoguis.

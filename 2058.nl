@@ -1,3 +1,6 @@
+23 september 1990
+Navaratri Puja
+Geneva (Switzerland)
 Navratri Puja Arzier, Genève, Zwitserland 23 september 1990
 
 EnTVD Unknown NlTVD2009-1126

@@ -1,3 +1,6 @@
+21 marca 1985
+Urodzinowa Pudźa
+Mumbai (Indie)
 Puja Urodzinowa, Bombaj, Indie, 21.03.1985
 
 Dzisiaj jest Dzień Gauri. Gauri jest tą, która jako dziewica stworzyła Shri Ganeshę. I wy tak samo dostaliście waszą Realizację. W taki sam sposób!

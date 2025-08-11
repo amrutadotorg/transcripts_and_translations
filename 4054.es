@@ -1,3 +1,6 @@
+26 abril 1993
+Pallas Athena Puja
+Athens, Sahaja Yoga Center in Athens (Greece)
 Shri Pallas Atenea Puja. Atenas, Grecia. 26 de abril de 1993.
 
 Hoy es un gran día para mí al ver aquí a tantos sahaja yoguis de este país, Grecia. La primera vez que vine a Grecia le dije a mi esposo que este país estaba lleno de vibraciones y que había habido muchas almas evolucionadas en este país. Quizá la gente ha perdido su herencia de riqueza espiritual, pero las vibraciones están en la atmósfera y un día, Sahaja Yoga prosperará aquí en gran medida.

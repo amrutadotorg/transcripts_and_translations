@@ -1,3 +1,6 @@
+10 april 1991
+Virata Puja
+Lake Road Ashram, Melbourne (Australia)
 Shri Virata Puja, Melbourne, Australië, 10 april 1991
 
 Engelse transcriptie: ISDP verified

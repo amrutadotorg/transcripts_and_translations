@@ -1,3 +1,6 @@
+17 mei 1980
+Talk to Sahaja Yogis
+Old Alresford Place, Alresford (England)
 Ochtend seminari, Old Alresford (Engeland), 17 Mei 1980.
 
 Nederlandse vertaling versie datum 2022-0816

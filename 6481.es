@@ -1,3 +1,6 @@
+18 mayo 1993
+Fatima Puja
+Istanbul, Mövenpick Hotel Istanbul (Turkey)
 Shri Fátima Puja. Estambul, Turquía. 18 de mayo de 1993.
 
 (Espero que podáis oírme bien. ¿Me oís? Venid más adelante).

@@ -1,3 +1,6 @@
+21 marzo 2001
+Birthday Puja
+New Delhi (India)
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2001.
 
 Hoy todos habéis decidido celebrar mi setenta y ocho cumpleaños. Habéis colocado preciosos globos, como los que se ponen en los cumpleaños de los niños, con manos muy amorosas. Como os comenté ayer, tenéis que ahondar en vuestro Ser. Intentad averiguar también, cuánto podéis amar a los demás, de la misma forma en la que yo os amo. A través de la introspección, será mucho más fácil averiguar cuánto amáis a los demás y cuánto os importan las otras personas. Si esto sucede, muchos problemas de Sahaja Yoga se solucionarán muy rápido.

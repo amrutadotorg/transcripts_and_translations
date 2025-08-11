@@ -1,3 +1,6 @@
+6 mayo 1990
+Sahasrara Puja
+Fiuggi (Italy)
 Sahasrara Puja. Fiuggi, Italia. 6 de mayo de 1990.
 
 Todos estos años he estado esperando el día de hoy, el vigésimo primer Sahasrara. Es un momento de cambio muy importante, como sabéis, ya que cada veintiún días se cambia de horóscopo en nuestros calendarios. Así que, ahora un nuevo cambio está por venir y ya se anuncia su llegada. Un nuevo entendimiento, una consciencia de una dimensión muy nueva.

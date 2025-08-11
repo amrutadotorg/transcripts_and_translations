@@ -1,3 +1,6 @@
+23 septiembre 1984
+Navaratri Puja
+Hampstead Town Hall Centre, Hampstead (England)
 Navaratri Puja, Londres, Hampstead (Inglaterra), 23 de Septiembre de1984.
 
 Hoy es un gran día para todos nosotros, ¿podéis oírme allí?

@@ -1,3 +1,6 @@
+29 listopada 1981
+Marriage
+Temple of All Faiths, Hampstead (Anglia)
 "Małżeństwo jest po to, by dawać radość", 29.11.1981, Temple of all Faiths, Hampstead, Wielka Brytania
 
 Małżeństwo jest pomyślnym wydarzeniem to jest najbardziej pomyślne wydarzenie w życiu istot ludzkich.

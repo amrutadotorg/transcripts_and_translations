@@ -1,3 +1,6 @@
+9 мая 2004
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Кабелла (Италия),
 9 мая 2004
 

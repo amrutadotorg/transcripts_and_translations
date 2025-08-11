@@ -1,3 +1,6 @@
+29 julio 2001
+Krishna Puja
+Nirmal Nagari, Canajoharie (United States)
 Shri Krishna Puja. Canajoharie, Estados Unidos. 29 de julio de 2001.
 
 Hoy nos hemos reunido aquí para adorar a Shri Krishna, que fue el Virata, y que luchó contra todas las formas del mal sin entrar en el campo de batalla.

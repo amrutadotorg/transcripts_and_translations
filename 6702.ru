@@ -1,3 +1,6 @@
+10 ноября 1980
+Public Program
+Caxton Hall, London (England)
 Вечный дух
 
 11 Октября 1980

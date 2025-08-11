@@ -1,8 +1,6 @@
-2 October 1983
-Prepare Yourself For Puja
+2 октября 1983
 Ganesha Puja
 Kennolyn Camps, Santa Cruz (United States)
-Talk Language: English | Transcript (English) – VERIFIED
 
 Шри Ганеша пуджа: Подготовьте себя для пуджи
 

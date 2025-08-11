@@ -1,3 +1,6 @@
+7 września 1986
+Ganeśa Pudźa
+YMCA - Camp Marston, San Diego (Stany Zjednoczone)
 Shri Ganesha Puja, "Ustanowienie Zasady Shri Ganeshy". San Diego (USA), 7 września 1986.
 
 Dzisiaj, na ziemi Shri Krishny świętujemy urodziny Shri Ganeshy. To coś bardzo niespotykanego i o wielkim znaczeniu, że powinniście świętować urodziny syna Shri Krishny na Jego własnej ziemi. Wiecie, że Shri Ganesha inkarnował się na tej Ziemi jako Mahavishnu i On był synem Radhy, który inkarnował się jako Pan Jezus Chrystus. Zatem świętując dzisiaj te narodziny poznajecie największą prawdę, iż Pan Jezus Chrystus był synem Shri Krishny.

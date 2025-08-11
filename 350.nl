@@ -1,3 +1,6 @@
+5 mei 2002
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Sahasrara Puja

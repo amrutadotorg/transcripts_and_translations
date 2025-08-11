@@ -1,3 +1,6 @@
+18 agosto 1991
+Public Program
+Štvanice, Prague (Czech Republic)
 2o programa público en Praga. República Checa. 18 de agosto de 1991.
 
 [Hindi]

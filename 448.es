@@ -1,3 +1,6 @@
+25 octubre 1998
+Diwali Puja
+Novi Ligure (Italy)
 Diwali Puja. Novi Ligure, Italia. 25 de octubre de 1998.
 
 Me alegra muchísimo veros a todos aquí, para celebrar el Diwali Puja. Se suponía que lo íbamos a celebrar en Portugal pero, al final, nos hemos reunido aquí. Este es un Puja muy corto pero muy significativo. El primer día del Diwali se compra algo para la familia. Quizá algún utensilio para la cocina o alguna joya para la esposa o algo parecido; porque es el día del ama de casa y hay que celebrarlo como un homenaje a las amas de casa.

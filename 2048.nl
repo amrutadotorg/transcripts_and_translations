@@ -1,3 +1,6 @@
+26 september 1982
+Publieke programma's
+Vienna (Austria)
 Shri Mataji Nirmala Devi
 
 Eerste publiek programma

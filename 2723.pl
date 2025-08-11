@@ -1,3 +1,6 @@
+13 kwietnia 2002
+Gudi Padwa Pudźa
+Palam Vihar, Gurgaon (Indie)
 Gudi Padwa Puja, Palam Vihar, Gurgaon (India), 13 April 2002. (Hindi)
 
 [Translation from Hindi to English]

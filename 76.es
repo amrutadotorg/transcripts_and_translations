@@ -1,3 +1,6 @@
+1 noviembre 1981
+Diwali Puja
+Chelsham Road Ashram, London (England)
 Diwali Puja, Chelsham Road Ashram, Londres (Inglaterra), 1981-11-01
 
 .....y de los tres procesos a través de los cuales pasamos.

@@ -1,3 +1,6 @@
+23 září 1990
+Navaratri Púdža
+Geneva (Switzerland)
 Navarátri púdža: Božstva vás sledují, 23/09/1990, (nekontrolováno), Arzier, Švýcarsko
 
 Podle kalendáře je tento rok deset dní Navaratri, ne devět.

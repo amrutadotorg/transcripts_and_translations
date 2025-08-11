@@ -1,3 +1,6 @@
+8 dubna 2007
+Easter Púdža
+House in Pratishthan, Pune (India)
 Velikonoční púdža: Buďte mírumilovní, 8/4/2007, Pratištán, Indie
 
 Říkám, že dnešek je velmi důležitý. Je to nový začátek pro vás pro všechny. Pokuste se pochopit, že jste zatím pracovali velmi tvrdě. A chtěli jste toho udělat mnohem víc, než kolik jste zatím byli schopni. Bylo to vaše přání a vypracuje se to. Rozhodně se to vypracuje. Pokud bude vaše přání silné, věci se vypracují a budete mít velkou možnost pomoci lidem. Tak jako jste pomohli sobě a máte z toho radost. Je lepší, pokud se rozhodnete pomoci druhým, je to důležité. Všichni byste měli být požehnáni. Můžete to udělat. Vaše vůdcovství je v tom, že to musíte dát ostatním. Většina z vás to získala, - pro sebe, ale musíte to dát ostatním. Umožněte také ostatním získat jejich duchovnost. Vím, že velmi mnoho z vás získalo svou realizaci a jste do ní ponořeni a jste všichni velmi šťastní a radostní. To je první známka toho, že jste realizovaní, že máte realizaci. S touto realizací můžete dát realizaci druhým.

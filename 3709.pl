@@ -1,3 +1,6 @@
+9 lipca 1989
+Kryszna Pudźa
+La Belle Étoile, La Rochette (Francja)
 Melun (Francja), 9 lipca 1989.
 
 Jestem naprawdę zachwycona, że na tę Pudżę we Francji mamy tak wielu gości, a także francuskich Sahadźa Joginów. To pokazuje kolektywność. Kolektywność, która przyciąga was wszystkich z różnych miejsc i że staracie się nią cieszyć. Ale fundament kolektywności podstawa kolektywności jest bardzo głęboka. I jedynie głębsze zrozumienie jest wam w stanie powiedzieć, że podstawą kolektywności jest miłość pełna odwiązania. Miłość jest jedynym sposobem. Nie można mieć kolektywu, dopóki nie będziecie mieć odwiązanej miłości. Francuzi byli dobrzy w tak wielu rodzajach miłości, o której mówili. I pisali książki za książkami, powieści za powieściami i stworzyli wiele romantycznych i nieromantycznych i wszelkiego rodzaju nastrojów, by mówić o miłości. Ale czysta miłość, jak rozumiemy w Sahadźa Jodze, ma być teraz wyrażana między sobą przez Sahadźa Joginów. W końcu wszyscy jesteśmy ludźmi stworzonymi przez jednego Boga.

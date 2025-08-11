@@ -1,3 +1,7 @@
+14 marzo 1994
+Mahashivaratri Puja
+New Delhi (India) | Translation (English to Spanish) - Reviewed
+
 Es un gran placer ver que se ha reunido gente de todo el mundo para adorar a Shiva. En realidad, deberíamos decir que es a Sadashiva a quien vamos a adorar hoy. Ya conocéis la diferencia entre Sadashiva y Shri Shiva. Sadashiva es Dios Todopoderoso y es el testigo de la obra de la Madre Primordial.
 
 La relación entre Sadashiva y la Madre Primordial, Adi Shakti, es como la de la Luna y la luz de la Luna o la del Sol y la luz del Sol. No podemos comprender una relación así en el ser humano, en los matrimonios humanos o en las relaciones humanas. Así pues, cualquier cosa que la Adi Shakti crea, que es el deseo de Sadashiva, está siendo contemplada por Él. Y cuando observa esta creación, la está contemplando con desapego toda ella y en todo detalle. Él observa como testigo todo el universo y también observa la Madre Tierra, toda la creación realizada por la Adi Shakti. Su poder es el de ser testigo y el poder de la Adi Shakti es el poder omnipresente del amor.

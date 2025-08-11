@@ -1,3 +1,6 @@
+14 stycznia 1986
+Makar Sankranti Pudźa
+Rahuri (Indie)
 Sankranti Puja (English/Mrathi). Rahuri, Maharashtra (India), 14 January 1986.
 
 Dzisiejszy dzień jest dla mnie smutny, ponieważ się rozstajemy. Może nie będę mogła spotkać się z wami w Bombaju. Może niektórzy z was nie zobaczą Mnie przez rok, a chciałabym dać wam drobną radę dotyczącą waszego wewnętrznego wzrostu.

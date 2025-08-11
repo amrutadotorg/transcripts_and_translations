@@ -1,3 +1,6 @@
+23 abril 1989
+Hanumana Puja
+Butlins Grand Hotel, Margate (England)
 Shri Hanumana Puja. Margate, Reino Unido. 23 de abril de 1989.
 
 Hoy es un día lleno de gozo; parece que toda la atmósfera emite este gozo, como si todos los ángeles estuvieran cantando. Lo más especial de Hanumana es que Él era un ángel. Los ángeles nacen como ángeles, son ángeles, no son seres humanos. Nacen con las cualidades de los ángeles. Pero ahora, vosotros que nacisteis como seres humanos, os habéis convertido en ángeles; este es el gran logro de Sahaja Yoga.

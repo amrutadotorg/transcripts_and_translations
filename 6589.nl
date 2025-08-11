@@ -1,3 +1,6 @@
+18 augustus 1991
+Publieke programma's
+Štvanice, Prague (Czech Republic)
 Tweede publiek programma Praag, Tsjechische Republiek 18 augustus 1991
 
 ETVD Unknown NL Vertaling Unknown Versië: DVD 107S ISDP – 100713

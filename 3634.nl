@@ -1,3 +1,6 @@
+15 september 1996
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja, Respecteer de onschuld, Cabella, Italië 15/09/1996
 
 Vandaag zullen we Shri Ganesha vereren. Ik voel dat het vandaag daarvoor een heel geschikte moment is, omdat, vooral in de Europese en Amerikaanse landen, de onschuld aangevallen wordt. Er is geen respect voor de onschuld, de onschuld heeft geen waarde meer.

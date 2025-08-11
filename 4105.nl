@@ -1,3 +1,6 @@
+17 oktober 1999
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri puja - Cabella Ligure (Italië) - 17 oktober 1999.
 
 NlTVD2020-0921

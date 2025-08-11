@@ -1,3 +1,6 @@
+24 december 1982
+Christmas Puja
+Pune (India)
 Christmas Puja - De aandacht moet heilig zijn - Pune, India - 24/12/1982.
 
 Nl TVD 2020-1127

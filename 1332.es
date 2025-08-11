@@ -1,3 +1,6 @@
+24 julio 1983
+Guru Puja
+Lodge Hill Centre, Pulborough (England)
 Guru Puja, "Awakening the Principle of Guru". Lodge Hill (UK), 24 July 1983.
 
 Hoy nos hemos reunido aquí para hacer un Puja al Guru.

@@ -1,3 +1,6 @@
+1 Σεπτεμβρίου 1985
+Vishnumaya Puja
+Southlands College, London (Αγγλία)
 Shri Vishnumaya Puja. Wimbledon, London (UK), 1 September 1985.
 
 Μητέρα, υπήρχε τόσο πολύ μπλοκάρισμα στην καρδιά αυτό το εικοσιτετράωρο Ο σκοπός είναι να ανοίξετε τις καρδιές σας.

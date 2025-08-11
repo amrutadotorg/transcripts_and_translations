@@ -1,3 +1,6 @@
+8 augustus 1989
+Ganesha Puja
+Les Diablerets (Switzerland)
 Onschuld - Moederlijke liefde – Vâtsalya - Les Diablerets, Zwitserland - 8 augustus 1989
 
 En TVD 2015-1009 NlTVD 2020-1127

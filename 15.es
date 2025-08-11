@@ -1,3 +1,6 @@
+10 noviembre 1996
+Diwali Puja
+Sintra (Portugal)
 Diwali Puja. Sintra, Portugal. 10 de noviembre de 1996.
 
 Hoy vamos a adorar a Mahalakshmi. En este país se la venera mucho como María. Hay un swayambú de María, que habréis visto, y se dice que hubo una aparición. Al principio no lo creí, pero después de sentir las vibraciones vi que era verdad, que realmente tuvo lugar una aparición de María. También habréis visto aquella fotografía en la que ella aparece frente a mí.

@@ -1,3 +1,6 @@
+1 listopadu 1983
+Veřejné Programy
+Hampstead Town Hall Centre, Hampstead (Anglie)
 Veřejný program: Jaký je účel našeho života?, 01/11/1983, Hampstead Hall, Londýn, Anglie
 
 Úvodní slovo (Dr. Reeves)

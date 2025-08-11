@@ -1,3 +1,6 @@
+30 grudnia 1979
+Mowa do Sahadźa Joginów
+CKP Hall, Mumbai (Indie)
 Znaczenie Miłości – Rady na wszystkie Czakry, 30.12.1979 Bombaj, Indie
 
 Mówi się, że Bóg jest miłością. Słyszeliśmy to wiele razy i wielu ludzi wyjaśniło na swój sposób, czym jest miłość. Ale poczuć tę miłość to najlepszy sposób, żeby ją zrozumieć. Nawet jeśli wyjaśnicie lub opiszecie ze wszystkimi szczegółami, chociaż jest to opisane we wszystkich szczegółach, nie można cieszyć się miłością, nie doświadczając jej. To doświadczenie przychodzi do nas, ponieważ sam Bóg umieścił w nas mechanizm do absorbowania tej miłości i do jej przejawiania. To jest bardzo delikatny mechanizm w nas, niezwykle delikatny. Ten mechanizm jest umieszczony w naszym sercu, i przez naszą niewiedzę, tak wiele razy, psujemy ten mechanizm lub go zaburzamy, a czasem nawet całkowicie niszczymy.

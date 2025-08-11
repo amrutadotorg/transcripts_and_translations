@@ -1,3 +1,6 @@
+2 abril 1976
+Talk to Sahaja Yogis
+New Delhi (India)
 Tener una buena lengua, Delhi, India 02-04-1976
 
 Os estaba contando lo difícil que es ser Madre y Guru porque son papeles muy contradictorios.

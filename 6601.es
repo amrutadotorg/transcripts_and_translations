@@ -1,4 +1,6 @@
-Charla a los sahaja yoguis. Brisbane, Australia. 4 de abril de 1991.
+5 abril 1991
+Talk to Sahaja Yogis
+Brisbane (Australia)Charla a los sahaja yoguis. Brisbane, Australia. 4 de abril de 1991.
 
 Yogui: “Siento mucho que solamente un medio de comunicación de Brisbane estuviese interesado”.
 

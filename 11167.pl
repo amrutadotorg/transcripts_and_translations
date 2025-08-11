@@ -1,3 +1,6 @@
+25 grudnia 1982
+Christmas Pudźa
+Pune (Indie)
 Dziś świętujemy narodziny Chrystusa, które były bardzo dużym wydarzeniem w sferze ludzkiej świadomości.
 
 Jak wiecie, kiedy Chrystus rodzi się w czakrze Agnya, wchłania ego i superego, czyli uwarunkowanie w nas i nasze ego. Tak wielkie wydarzenie miało miejsce około 2000 lat temu. A obecnie nadszedł czas, abyśmy użyli, wykorzystali ten wielki Adwent na tej ziemi. Aby zrozumieć Chrystusa przede wszystkim musimy wiedzieć, że był On niczym innym jak Omkarą. Został stworzony z samych wibracji i dlatego zmartwychwstał. Z powodu swojej natury był odwiązany. Zatem my również mamy zrozumieć że najpierw musimy odwiązać się od naszych myśli a to, jak wiecie, można osiągnąć, jeśli umiecie przebaczać innym. Ale jest jeszcze inne bardzo subtelne przywiązanie, które ludzie mają, że ci, którzy urodzili się w religii chrześcijańskiej, myślą, że Chrystus jest ich własnością i że mają Go na własność. Wręcz przeciwnie, jest dokładnie na odwrót, On nie ma z nimi nic wspólnego i jest przeciwko nim. Jak powiedział Chrystus "będziecie Mnie wołać ‘Chryste, Chryste’, a ja was nie rozpoznam".

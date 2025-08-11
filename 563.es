@@ -1,3 +1,6 @@
+3 febrero 1983
+Public Program
+New Delhi (India)
 Agnya chakra, la puerta al cielo
 
 Delhi, India.    -    3 Febrero 1983

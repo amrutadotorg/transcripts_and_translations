@@ -1,3 +1,6 @@
+10 noviembre 1991
+Diwali Puja
+Campus, Cabella Ligure (Italy)
 Diwali Puja. Cabella Ligure, Italia. 11 de noviembre de 1991.
 
 Lo siento, tenía que decir algo antes de entrar aquí, pero está bien que haya pasado esto porque ahora os voy a comentar algunas cosas importantes de la vida. Sobre todo, tengo que decir esto para las mujeres. Me he dado cuenta -por supuesto, pues yo también soy mujer- de que las mujeres tienen ciertos poderes con el agua, con llorar, con las lágrimas, creyendo que son muy miserables y haciendo a todos miserables. Este es su poder. Me he dado cuenta de esto. Quiero decir que esta es la peor canción que podríais cantar para cualquier ocasión, no importa cuál. Pero a alguien le ha venido a la cabeza, lo cual es muy negativo. Y no solo eso, sino que muestra a una persona que nunca es feliz y que no quiere que nadie sea feliz.

@@ -1,3 +1,6 @@
+12 julio 1998
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja
 
 Cabella Ligure, 12-o7-1998

@@ -1,3 +1,6 @@
+4 februari 1983
+Publieke programma's
+NDMC Park, New Delhi (India)
 Toespraak tot Sahaja yogi’s - De Sahasrara - New Delhi, India - 04/02/1983
 
 Translation not verified. Dear yogi, register as volunteer to do so.

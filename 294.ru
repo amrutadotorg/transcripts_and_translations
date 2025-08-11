@@ -1,3 +1,6 @@
+18 июня 1988
+Talk to Sahaja Yogis
+Shudy Camps Park, Shudy Camps (England)
 Семинар. Интроспекция и медитация
 
 Шуди Кампс (Великобритания), 18 июня 1988

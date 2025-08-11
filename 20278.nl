@@ -1,4 +1,6 @@
-Short Interview on TV, Athens, Greece, 1993-04-27
+27 april 1993
+Interview
+Athens (Greece)Short Interview on TV, Athens, Greece, 1993-04-27
 
 Sahaja Yoga betekent: "Saha" betekent "met", "ja" betekent "geboren met". Het is dus een recht, dat ieder mens heeft om verbonden - dat is yoga - te zijn met de goddelijke kracht. En het is binnenin jezelf "Sahaj", met je geboren, spontaan. Leg ons uit wat Kundalini is? Kundalini is, zoals ik je vertelde, de reflectie van de oorspronkelijke moeder in ons. En ze is individueel de moeder van iedereen. Ze verlangt ernaar om je je wedergeboorte te geven. Als ze in je heiligbeen ontwaakt is, stijgt ze omhoog en doorkruist zes centra, en doorboort je gebied van je fontanel en bereikt een punt waar je verbonden wordt met de allesdoordringende kracht. Het is als - je kunt zeggen dat het is als een kabel die je aan moet sluiten op het net. Dus, voordat je aangesloten bent op je net, weet je niet wat je bent! Wanneer je verbonden bent, begin je te ontdekken dat je de Spirit bent.
 

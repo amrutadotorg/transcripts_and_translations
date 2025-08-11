@@ -1,3 +1,6 @@
+25 diciembre 1996
+Christmas Puja
+Ganapatipule (India)
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 1996.
 
 Hoy estamos celebrando el nacimiento de Jesucristo. El nacimiento de Jesucristo es muy simbólico por la manera en la que sucedió ya que, incluso la persona más pobre entre los pobres no habría nacido en un establo como lo hizo Él. Y se le puso en una cama hecha con hierba seca. Vino a esta tierra para mostrar a la gente que, a una encarnación o a un alma muy evolucionada, no le preocupa la comodidad del cuerpo.

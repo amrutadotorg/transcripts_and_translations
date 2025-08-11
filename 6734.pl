@@ -1,3 +1,6 @@
+27 stycznia 1980
+Mowa do Sahadźa Joginów
+Bordi (Indie)
 MOCE JAKIMI OBDARZENI SĄ SAHAJA YOGINI, 27.01.1980, Bordi (Indie)
 
 Przede wszystkim musimy wiedzieć, jakie otrzymaliśmy moce, a także powinniśmy wiedzieć, jak podtrzymywać te moce oraz jak łatwo możemy uzyskać jeszcze więcej mocy.

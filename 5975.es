@@ -1,3 +1,6 @@
+7 septiembre 1980
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)
 Como saber que hemos alcanzado 07-09-1980
 
 ...vibraciones de las fotografías, son muy importantes.

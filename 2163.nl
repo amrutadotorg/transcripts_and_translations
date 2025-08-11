@@ -1,3 +1,6 @@
+8 juli 2001
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja - Geniet van je eigen Zelf - Cabella, Italië - 08/07/2001
 
 Nederlanse vertaling versie datum, 2022-0718

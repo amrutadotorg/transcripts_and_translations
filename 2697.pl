@@ -1,3 +1,6 @@
+17 października 2007
+Navaratri Pudźa
+Sydney (Australia)
 Navaratri 6-ty Dzień, O Alkoholu, 17.10.2007, Sydney, Australia, (wersja 2)
 
 O! Bardzo piękne. Kto to zrobił? Ty zrobiłeś? Bardzo dobre, bardzo piękne, absolutnie świetne. Całość. Jak ona się nazywa? Sue Williams. Bardzo dziękuję, przepięknie wykonane. Czy moglibyście przesunąć się trochę dalej?

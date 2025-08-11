@@ -1,8 +1,6 @@
-23 June 2002
-Use Your Right Side For Giving Realization
-Adi Shakti Puja
-Campus, Cabella Ligure (Italy)
-Talk Language: English | Transcript (English) - VERIFIED
+23 јуни 2002
+Ади Шакти Puja
+Cabella Ligure, Campus (Italy)
 
 Шри Ади Шакти Пуџа 23 јуни, 2002 г.
 

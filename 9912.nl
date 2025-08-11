@@ -1,3 +1,6 @@
+22 september 1982
+Devi Puja
+Patricia Deene’s House, Gent (Belgium)
 Devi Puja, bij Patricia Deene thuis, Gent (België) 22-09-1982
 
 Dutch translation version date 2022-0110

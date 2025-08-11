@@ -1,3 +1,6 @@
+3 Αυγούστου 1986
+Bhoomi Devi Puja
+Shudy Camps Park, Shudy Camps (Αγγλία)
 Shri Bhumi Dhara Puja. Shudy Camps (UK), 3 August 1986.
 
 Σήμερα μαζευτήκαμε εδώ για να κάνουμε την Πούτζα της Μητέρας Γης.

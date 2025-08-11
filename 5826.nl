@@ -1,3 +1,6 @@
+20 oktober 1979
+Diwali Puja
+Dollis Hill Ashram, London (England)
 Diwali Puja: Today Is The Day To Take An Oath, Dollis Hill Ashram, London (England), 20-10-1979
 
 Op de 14de dag werd hij gedood door Shadanana, Kartekeya, de zoon van Parvati en Shankar, die een zeer krachtige expressie was van de Rudra Shakti, wat betekent dat hij de dodende kracht van God is.

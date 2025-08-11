@@ -1,3 +1,6 @@
+28 augustus 1983
+Krishna Puja
+Tannay Ashram, Tannay (Switzerland)
 Shri Mataji Nirmala Devi
 
 Shri Krishna Puja

@@ -1,3 +1,6 @@
+25 října 1992
+Diwali Púdža
+Sala Olimpia, Timisoara (Romania)
 Divali púdža 25/10/1992 (nekontrolováno), Temisoara, Rumunsko
 
 Myslím, že všichni rozumí rusky.

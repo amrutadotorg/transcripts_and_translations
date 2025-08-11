@@ -1,3 +1,6 @@
+11 februari 1983
+Mahashivaratri Puja
+Universal Sahaj Temple, New Delhi (India)
 Shri Mataji Nirmala Devi
 
 Mahashivaratri Puja

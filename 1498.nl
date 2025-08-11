@@ -1,3 +1,6 @@
+3 juni 2001
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 “Het Werk van Adi Shakti” - Shri Adi Shakti Puja - Cabella Ligure (Italy) - 3 Juni 2001.
 
 NlTVD 2022-0607

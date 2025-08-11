@@ -1,3 +1,6 @@
+9 sierpnia 1987
+Vishnumaya Pudźa
+YWCA Camp, Pawling (Stany Zjednoczone)
 Shri Vishnumaya Puja, 09.08.1987 Pawling, New York, USA
 
 Dzisiaj zebraliśmy się tutaj, aby celebrować Puję do Vishnumayi.

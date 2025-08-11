@@ -1,3 +1,6 @@
+21 grudnia 1986
+Dewi Pudźa
+Chalmala, Alibag (Indie)
 Puja Powitalna w Chalamali
 
 21.12.1986, Alibag (Indie)

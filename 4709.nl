@@ -1,3 +1,6 @@
+22 juni 1984
+Publieke programma's
+South Bank University, London (England)
 Public Program, De ervaring van de waarheid. South Bank Polytechnic, London (Engeland), 22 Juni 1984.
 
 Nederlandse vertaling versie datum 2022-0928

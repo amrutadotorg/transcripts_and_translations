@@ -1,3 +1,6 @@
+27 stycznia 1977
+Mowa do Sahadźa Joginów
+Bordi (Indie)
 Uwaga i Radość (2-gi dzień trzydniowego seminarium) 27.01.1977, Bordi (Indie)
 
 ...zbyt duża chwiejność oraz jak ustabilizować uwagę. Jakość uwagi zmienia się w zależności od stanu waszej ewolucji, np. w zwierzętach...

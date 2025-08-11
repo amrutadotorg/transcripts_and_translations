@@ -1,3 +1,6 @@
+11 febrero 1983
+Mahashivaratri Puja
+Universal Sahaj Temple, New Delhi (India)
 Mahashivaratri Puja. Sahaja Yoga Temple, Delhi, India. 11 de febrero de 1983.
 
 Me alegro de que os hayáis podido acomodar todos en este lugar tan pequeño. Cuando hay amor y comprensión, un pequeño lugar puede acoger a muchos corazones. Pero cuando no tenemos un gran corazón, consigamos lo que consigamos nunca es suficiente. Hoy vamos a adorar al Shiva Tattwa en nuestro interior, al Principio de Shiva. Es muy importante para todos los sahaja yoguis, porque Shiva es la "Meta suprema" que tenemos que alcanzar. Shiva está representado en nuestro Espíritu, de modo que, convertirse en Shiva es el objetivo final que tenemos que alcanzar.

@@ -1,3 +1,6 @@
+22 septiembre 2001
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 22 de septiembre de 2001.
 
 Hoy nos hemos reunido aquí para adorar a Shri Ganesha, el Dios de la Inocencia. Él es el océano de inocencia. Y a pesar de ser un niño tan pequeño, puede luchar contra el mundo entero y destruir toda la negatividad. Esa es la señal de la inocencia.

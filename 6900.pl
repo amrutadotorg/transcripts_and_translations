@@ -1,3 +1,6 @@
+17 grudnia 1985
+Dewi Pudźa
+Dr Sanghvi's House, Nashik (Indie)
 Pudża w ogrodzie dr Sanghve, Nasik, stan Maharasztra (Indie) 17 grudnia 1985
 
 Nasik, skoro przybyliście tu... [do kogoś:] Myślę, że powinniście teraz przestać. Od pół godziny to robią. Nie powinniście robić żadnych hałasów.

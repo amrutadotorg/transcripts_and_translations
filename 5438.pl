@@ -1,3 +1,6 @@
+27 stycznia 1980
+Mowa do Sahadźa Joginów
+Bordi (Indie)
 Transformacja, Rady na Seminarium w Bordi – wykład poranny, 27.01.1980, Bordi Shibir, India
 
 Wszyscy czuli się bardzo miło, kiedy tu przybyli, byli szczęśliwi i czuli, że ich wibracje były w porządku. Ale tak nie było. Więc bądźcie czujni, proście siebie nawzajem o sprawdzenie, bądźcie w tym pokorni. Musicie dalej sprawdzać. Dopóki siebie nie sprawdzicie, skąd będziesz wiedzieć z jakiego powodu ciągle łapiecie blokady? Poproście innych, aby was sprawdzili i bądźcie pokorni, bardzo pokorni w tym względzie. Nie bierzcie tego za oczywiste, ponieważ dopóki siebie nie zmienimy, Sahaja Yoga nie ma dla was żadnego znaczenia.

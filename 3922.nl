@@ -1,3 +1,6 @@
+19 juni 1989
+Mahakali Puja
+San Diego (United States)
 Shri Mahakali Puja, "Spirituele groei" - San Diego (USA) - 19 juni 1989
 
 NlTVD 2019-0604

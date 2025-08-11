@@ -1,3 +1,6 @@
+8 апреля 1987
+Evening Program Guru Puja
+St. Martin's Lane Ashram, London (England)
 1987-0408 Вечерняя беседа с сахаджа йогами
 
 Лондон, Англия,

@@ -1,3 +1,6 @@
+31 augustus 1990
+Hanumana Puja
+Schwetzingen Palace, Schwetzingen (Germany)
 Shri Mataji Nirmala Devi
 
 Shri Hanuman Puja

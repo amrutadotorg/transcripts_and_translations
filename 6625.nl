@@ -1,3 +1,7 @@
+17 mei 1980
+Talk to Sahaja Yogis
+Old Alresford Place, Alresford (England)
+
 Zie jezelf onder ogen om te worden.
 
 Old Arlesford Place, Arlesford, Engeland, 17 mei 1980

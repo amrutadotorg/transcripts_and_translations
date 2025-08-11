@@ -1,3 +1,6 @@
+28 augustus 1994
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Shri Krishna Puja

@@ -1,3 +1,6 @@
+28 maart 1991
+Mahavira Puja
+Perth (Australia)
 Shri Mahavira Jayanti Puja - Gidgegannup, Perth, Australië - 28 maart 1991
 
 NlTVD2012-0914

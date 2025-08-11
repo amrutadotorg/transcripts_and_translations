@@ -1,3 +1,6 @@
+6 abril 1991
+Bhavasagara Puja
+Brisbane (Australia)
 Bhavasagara Puja. Brisbane, Australia. 6 de abril de 1991.
 
 Esta es la primera vez que tenemos un puja en Brisbane y estoy muy feliz de que tantos hayáis podido venir hasta aquí, desde varios lugares.

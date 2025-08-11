@@ -1,3 +1,6 @@
+20 февраля 1977
+Talk to Sahaja Yogis
+New Delhi (Индия)
 Творение
 
 Нью Дели, Индия

@@ -1,3 +1,6 @@
+4 mei 1985
+Sahasrara Puja
+Laxenburg (Austria)
 Dag voor Sahasrara Puja, Wenen, 4 Mei 1985 Oostenrijk
 
 Het vestigen van Nirvikalpa

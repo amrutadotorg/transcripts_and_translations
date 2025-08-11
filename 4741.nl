@@ -1,3 +1,7 @@
+6 februari 1985
+Talk to Sahaja Yogis
+Bordi (India)
+
 Bordi, India, 6 februari 1985
 
 Nederlandse vertaling versie datum: 2022-0718

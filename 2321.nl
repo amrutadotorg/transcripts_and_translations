@@ -1,3 +1,7 @@
+1 september 1991
+Krishna Puja
+Campus, Cabella Ligure (Italy)
+
 1991-09-01 Shri Krishna puja: Yogeshwara - De techniek van het spel, Cabella, Italië
 
 Dutch translation version date 2021-1122

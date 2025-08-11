@@ -1,3 +1,6 @@
+10 декабря 1979
+Public Program
+Caxton Hall, London (England)
 Лондон, Англия
 10 декабря 1979
 

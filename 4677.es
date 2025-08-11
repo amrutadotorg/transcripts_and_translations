@@ -1,3 +1,6 @@
+1 noviembre 1982
+Talk to Sahaja Yogis
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Cumpleaños de Guru Nanak: "Todos los sahaja yoguis tienen que convertirse en Gurú". Nirmala Palace, Nightingale Lane Ashram, Londres, Reino Unido. 1 de noviembre de 1982.
 
 Esta fecha coincide con el día de la famosa luna llena llamada "Sharada Indu", ése también es el nombre de la Diosa, "Sharada Indu". La Luna en esta estación del otoño.

@@ -1,3 +1,6 @@
+4 julio 1992
+Vishnumaya Puja
+Ashram Everbeek, Everbeek (Belgium)
 Shri Vishnumaya Puja. Everbeek Ashram, Bélgica. 4 de julio de 1992.
 
 Hoy es un día muy apropiado para hacer el Puja a Vishnumaya porque Ella ha entrado en esta casa [Hubo una tormenta y entró un relámpago en la casa] y tenemos que adorarla.

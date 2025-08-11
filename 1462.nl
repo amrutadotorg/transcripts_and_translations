@@ -1,3 +1,6 @@
+1 september 1985
+Vishnumaya Puja
+Southlands College, London (England)
 Shri Mataji Nirmala Devi
 
 Shri Vishnumaya Puja

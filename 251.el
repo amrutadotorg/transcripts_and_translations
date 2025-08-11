@@ -1,3 +1,6 @@
+11 Απριλίου 1993
+Easter Puja
+Magliano Sabina Ashram, Magliano Sabina (Italy)
 Easter Puja. Magliano Sabina, Rome (Italy), 11 April 1993.
 
 Συγκεντρωθήκαμε όλοι εδώ σήμερα στην κορυφή αυτού του όμορφου βουνού, για να γιορτάσουμε την ανάσταση του Χριστού.

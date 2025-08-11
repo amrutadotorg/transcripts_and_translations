@@ -1,3 +1,6 @@
+25 december 1992
+Christmas Puja
+Ganapatipule (India)
 Kerst Puja, Alfa en Omega Ganapatipule Indië 1992-12-25
 
 ETVD : Unknown NL Vertaling Unknown Versië: 2017-0512

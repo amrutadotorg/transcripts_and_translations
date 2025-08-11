@@ -1,3 +1,6 @@
+8 april 2007
+Easter Puja
+House in Pratishthan, Pune (India)
 HH Shri Mataji, Easter Puja. Pratishthan, Pune (India), 8 April 2007.
 
 Vandaag is een zeer belangrijke dag.

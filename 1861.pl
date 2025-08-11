@@ -1,3 +1,6 @@
+20 czerwca 1999
+Adi Śakti Pudźa
+Nirmal Nagari, Canajoharie (Stany Zjednoczone)
 Adi Shakti Puja: Sahaja Yogini muszą transformować innych, 20.06.1999 Canajoharie, USA
 
 To wielka przyjemność widzieć was wszystkich zebranych tutaj, w miejscu tak odległym od szalonego tłumu. To jest takie piękne miejsce, które ma wibracje. (Oni nie słyszą.) Czy teraz mnie słyszycie? W porządku. Teraz wszystko jest w porządku. Wybrałam to miejsce nieoczekiwanie z bardzo grubej amerykańskiej gazety. Wibracje po prostu wystrzeliły a Ja powiedziałam: "Co to jest, skąd to przychodzi?" I było tam małe ogłoszenie, a Ja powiedziałam: "To jest miejsce, do którego musimy się udać. To miejsce ma tak wiele wibracji nawet w ogłoszeniu".

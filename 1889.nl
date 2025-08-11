@@ -1,3 +1,6 @@
+12 juli 1998
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja. Cabella Ligure (Italië), 12 Juli 1998.
 
 NL transl. A-M V  TVD:2017-0125

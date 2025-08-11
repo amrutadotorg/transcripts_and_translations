@@ -1,3 +1,6 @@
+30 agosto 1992
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 30 de agosto de 1992.
 
 La última vez me pedisteis el Gurupada y deberíais saber que la esencia del Guru es Shri Ganesha, la inocencia. Debéis conocer la historia de una esposa muy devota, la esposa de un sati llena de fe, su nombre era Anasuya; era tan religiosa y tan dedicada que decían que las esposas de todos los dioses, Brahma, Vishnu, Mahesha, estaban celosas de ella. Así que les dijeron a sus maridos: "Debes ir y probar si realmente ella es una mujer casta o no". Todos ellos descendieron a la tierra como "saddhus" vestidos de "sanyasis". Ella les dijo que quería servirles, darles algo. Ellos dijeron: "¡No, queremos comida!" Ella dijo: "De acuerdo. ¡Venid y sentaos!" Cocinó para ellos, y ellos le dijeron: "No, no tomaremos la comida a menos que te quites toda la ropa". Ella dijo: "¿Ah, sí?" Dijeron que sí. Entonces los convirtió en niños muy, muy pequeños, tres niños pequeños y entonces se quedó desnuda. Porque la inocencia no entiende de esto. Entonces la inocencia de los tres se unió y obtuvieron su Gurupada. Así es cómo se creó el Adi Guru.

@@ -1,8 +1,7 @@
-24 June 2007
+24 Ιουνίου 2007
 You Have To Become Fragrant
 Adi Shakti Puja
 Campus, Cabella Ligure (Italy)
-Talk Language: English | Transcript (English) - Draft
 
 Adi Shakti Puja, Cabella Ligure, 24 June 2007.
 

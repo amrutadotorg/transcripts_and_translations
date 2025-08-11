@@ -1,3 +1,6 @@
+24 июня 2007
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Кабелла, Италия
 24 июня 2007
 

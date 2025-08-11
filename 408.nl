@@ -1,3 +1,6 @@
+22 april 1984
+Easter Puja
+Temple of All Faiths, Hampstead (England)
 Shri Mataji Nirmala Devi
 
 Paas Puja

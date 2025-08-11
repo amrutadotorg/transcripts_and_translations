@@ -1,3 +1,6 @@
+29 září 1994
+Interview
+Los Angeles (United States)
 Audrey Hope - Skutečné ženy 3.část
 
 Metamoderní éra

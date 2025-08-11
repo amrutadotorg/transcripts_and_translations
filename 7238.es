@@ -1,3 +1,6 @@
+22 febrero 1982
+Mahashivaratri Puja
+New Delhi (India)
 Mahashivaratri Puja, 20-02-1982
 
 ...puesto que Shiva es eterno podríais decir ¿cómo puede ser el cumpleaños de Shiva?, porque es eterno, está todo el tiempo ahí.

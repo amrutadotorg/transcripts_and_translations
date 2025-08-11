@@ -1,3 +1,6 @@
+4 mayo 1986
+Sahasrara Puja
+Alpe Motta (Italy)
 Charla después del Sahasrara puja
 
 Alpe Motta, Italia 4-5-1986

@@ -1,3 +1,6 @@
+14 Μαΐου 1982
+Public Program
+Brighton Pavilion, Brighton (Αγγλία)
 Public Program. Brighton (UK), 14 May 1982.
 
 Θα πρότεινα να τους αφήσουμε να κάνουν ερωτήσεις σήμερα.

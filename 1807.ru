@@ -1,3 +1,6 @@
+31 августа 1990
+Hanumana Puja
+Schwetzingen Palace, Schwetzingen (Germany)
 Пуджа Шри Хануману
 
 Франкфурт (Германия), 31 августа 1990

@@ -1,3 +1,6 @@
+21 marzo 2003
+Birthday Puja
+Nirmal Dham, New Delhi (India)
 Puja de Cumpleaños. Delhi, India. 21 de marzo de 2003.
 
 [Charla en hindi]

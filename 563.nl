@@ -1,3 +1,6 @@
+3 februari 1983
+Publieke programma's
+New Delhi (India)
 Agnya Chakra, de deur van de hemel  - New Delhi (India) - 3/02/1983
 
 Vandaag gaan we de Agnya chakra begrijpen. Agnya Chakra bevindt zich op de kruising van het 'optisch chiasme'. De zenuwen die de ogen bedienen gaan achterwaarts in de tegenovergestelde richting en waar ze kruisen, is het energiecentrum gevestigd. Het heeft een voortdurende verbinding met andere centra door de 'medulla oblongata'. Dit centrum heeft twee bloemblaadjes. En dit energiecentrum werkt aan een kant door de ogen en aan de achterkant van het hoofd waar er een uitstulping is. Dat is het fysieke aspect van dit centrum.

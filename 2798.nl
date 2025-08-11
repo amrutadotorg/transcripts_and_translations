@@ -1,3 +1,6 @@
+25 februari 2001
+Mahashivaratri Puja
+Pune (India)
 “Destructive Power Of Shri Mahadeva,” Mahashivaratri Puja, Pune (India), 25 February 2001.
 
 Vandaag zijn we hier om Mahashivaratri te vieren.

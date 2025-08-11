@@ -1,3 +1,6 @@
+30 augustus 1992
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella (Italië), 30 Augustus 1992.
 
 En Transcript Version Date 2015-1105

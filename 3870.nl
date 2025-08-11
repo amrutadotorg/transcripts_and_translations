@@ -1,3 +1,6 @@
+4 oktober 1987
+Rama Puja
+Les Avants (Switzerland)
 Shri Rama Puja, Les Avants – Zwitserland 4 oktober 1987
 
 Nl Vertaling Versie 2017-04-09

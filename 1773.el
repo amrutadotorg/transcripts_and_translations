@@ -1,3 +1,6 @@
+4 Αυγούστου 1985
+Ganesha Puja
+Brighton Friends Meeting House, Brighton (Αγγλία)
 Shri Ganesha Puja. Brighton (UK), 4 August 1985.
 
 Συγκεντρωθήκαμε σήμερα εδώ, αυτήν την τόσο ευοίωνη ημέρα για να λατρέψουμε τον Σρι Γκανέσα.

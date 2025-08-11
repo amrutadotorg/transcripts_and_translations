@@ -1,3 +1,6 @@
+28 sierpnia 1994
+Kryszna Pudźa
+Kampus, Cabella Ligure (Włochy)
 Shri Krishna Puja. Cabella Ligure (Włochy), 28 Sierpień 1994.
 
 Dzisiaj zebraliśmy się tu, aby uczcić Shri Krishnę. Jak wiecie, Shri Krishna jest inkarnacją Vishnu. A Vishnu jest tym, który ochrania ten wszechświat. Wtedy, kiedy ten cały świat został stworzony, koniecznym było również stworzenie obrońcy, ponieważ bez obrońcy ten świat zostałby całkowicie zniszczony, bo ludzie są tacy, że mogliby zrobić wszystko z tym światem. Ale Vishnu jest tym, który ochrania. On chroni i jest jedynym, który naprawdę się inkarnuje.

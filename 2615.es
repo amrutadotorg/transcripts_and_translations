@@ -1,3 +1,6 @@
+25 diciembre 2001
+Christmas Puja
+Ganapatipule (India)
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 2001.
 
 Es muy agradable ver que han venido tantos sahaja yoguis para celebrar el Puja de Navidad.

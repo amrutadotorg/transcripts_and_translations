@@ -1,3 +1,6 @@
+6 mei 1989
+Sahasrara Puja
+Sorrento (Italy)
 Sahasrara Puja, Spring in the oceaan van liefde, Sorrento, Italië 05/05/1989
 
 NlTVD2019-0414

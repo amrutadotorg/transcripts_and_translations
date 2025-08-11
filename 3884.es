@@ -1,3 +1,6 @@
+9 agosto 1987
+Vishnumaya Puja
+YWCA Camp, Pawling (United States)
 Shri Vishnumaya Puja. Nueva York, Estados Unidos. 9 de agosto de 1987.
 
 Hoy nos hemos reunido aquí para hacer el puja a Vishnumaya. Vishnumaya también es creada a través de los esfuerzos humanos. Como podéis ver, cuando las nubes chocan unas con otras, se crea la electricidad. Primero hay que crear las nubes. El Sol actúa sobre el océano. Observad cuántos chakras entran en juego. El océano es el Vacío y el Sol actúa sobre el océano. También la Luna actúa sobre el océano y así es cómo se originan las nubes.

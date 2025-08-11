@@ -1,3 +1,6 @@
+3 agosto 1986
+Bhoomi Devi Puja
+Shudy Camps Park, Shudy Camps (England)
 Shri Bhumi Dhara Puja. Shuddy Camps, Reino Unido. 3 de agosto de 1986.
 
 Hoy nos hemos reunido aquí para hacer el Puja a la Madre Tierra. Le llamamos Bhumi Puja, Shri Dhara Puja. Ella es llamada Dhara. Como sabéis dha significa soporte. Radha, es aquella que sostiene la energía. Y Dhara es aquella donde Ella misma es el sustento, nos sostiene, vivimos sobre Ella. Como sabéis, la Madre Tierra está girando a una velocidad tremenda y sin su gravedad no existiríamos aquí. Además de esto, soporta una gran presión de la atmósfera. Ella comprende, piensa, coordina y crea. Esto solo podéis comprenderlo cuando sois un alma realizada. Habéis visto cómo absorbe vuestra negatividad cuando estáis sobre Ella con los pies desnudos, y le pedís con respeto que absorba vuestra negatividad; con una luz frente a vosotros, frente a mi fotografía. Me conoce, porque Ella es mi Madre. Podemos decir que es vuestra abuela, por eso os nutre y os cuida.

@@ -1,3 +1,6 @@
+8 junio 1988
+Ekadasha Rudra Puja
+Moedling (Austria)
 Shri Ekadasha Rudra Puja. Moedling, Austria. 8 de junio de 1988.
 
 Hoy es un día muy importante en la historia de la espiritualidad. La encarnación de Ekadasha Rudra fue profetizada por todos los profetas. Se profetizó que Ekadasha Rudra vendría y destruiría toda la negatividad y todas las actividades en contra de Dios.

@@ -1,3 +1,6 @@
+6 августа 1985
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)
 Приоритеты должны быть изменены
 
 Лондон

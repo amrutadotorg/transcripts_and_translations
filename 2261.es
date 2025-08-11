@@ -1,3 +1,6 @@
+29 junio 1985
+Guru Puja
+Château de Chamarande, Chamarande (France)
 Guru Puja, tienes que respetar a tu Guru
 
 Francia, Chamarande 29-3-1985

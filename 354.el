@@ -1,3 +1,6 @@
+9 Μαΐου 2004
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja. Cabella Ligure (Italy), 9 May 2004.
 
 Σήμερα είναι μια πολύ σπουδαία μέρα για τις ζωές των Σαχάτζα Γιόγκις.

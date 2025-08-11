@@ -1,3 +1,6 @@
+18 diciembre 1978
+Public Program
+Caxton Hall, London (England)
 Agnya Chakra 18-12-1978
 
 Hoy estamos hablando del sexto chakra, llamado Agnya Chakra. El "gnya", la palabra "gnya" significa saber, "gnya" es saber. Y "A" significa el todo. Agnya chakra también tiene otro significado. A-gnya, agnya significa ‘obediencia’ u ‘ordenar’. Puede significar ambas cosas. Si le ordenas a alguien es un agnya y el que obedece la orden es un agnyakari. El que hace el agnya. Este sexto chakra se creó en el ser humano cuando empezó a pensar. El pensamiento es la lengua expresada. Si no tenemos una lengua no podemos pensar.

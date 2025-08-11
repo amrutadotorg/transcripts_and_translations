@@ -1,3 +1,6 @@
+6 grudnia 1991
+Raja Rajeshwari Pudźa
+Madras (Indie)
 Shri Raja Rajeshwari Puja, 06.12.1991, Madras, Indie
 
 Dzisiaj będziemy mieli Puję do Shri Ganeszy a następnie do Raja Rajeshwari.

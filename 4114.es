@@ -1,3 +1,6 @@
+5 octubre 1997
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja: "Vuestras cualidades probarán la verdad de Sahaja Yoga". Cabella Ligure, Italia. 5 de octubre de 1997
 
 Hoy es el sexto día del Navaratri. Ha habido muchas encarnaciones de la Diosa por diferentes propósitos. Cuando los grandes santos que adoraban a la Madre hicieron introspección, descubrieron lo que Ella había hecho por nosotros. El otro día os dije que el dharma es la valencia innata de los seres humanos. Y existen diez valencias. Esto ya está establecido en nuestro interior, pero nosotros nos desviamos y nos apartamos del dharma y entonces aparecen todos los problemas, ya que abandonar el dharma no es una cualidad humana. Pero la misma Diosa ya ha hecho muchas cosas por nosotros en nuestro interior, aunque nosotros no somos conscientes de ello. Por ejemplo se dice: “Ya Devi sarva bhuteshu”, en referencia a todos seres que Ella ha creado, que son principalmente los seres humanos. ¿Cómo son? ¿Qué existe en el interior de los seres humanos?

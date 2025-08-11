@@ -1,3 +1,6 @@
+4 mei 1986
+Sahasrara Puja
+Alpe Motta (Italy)
 Bewustzijn en evolutie Alpe Motta, Italië, 4 mei 1986
 
 Vandaag is een bijzondere dag voor ons omdat het de zestiende Sahasrara Dag is. Dat je in zestien tellen of zestien maten een hoger punt in het gedicht bereikt, zodat het volledig is. Shri Krishna is een volledige incarnatie omdat Hij zestien bloemblaadjes heeft. Die volledigheid wordt "purna" genoemd. Dus nu gaan we over naar een andere dimensie. De eerste is degene waar je zelfrealisatie kreeg.

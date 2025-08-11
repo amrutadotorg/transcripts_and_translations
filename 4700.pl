@@ -1,3 +1,6 @@
+17 września 1983
+Ekadasha Rudra Pudźa
+Judy Gaddy's Apartment, New York (Stany Zjednoczone)
 Shri Ekadasha Rudra Puja, 17.09.1983 , New York, USA
 
 Dzisiaj jest dzień, który zgodnie z kalendarzem Indyjskim nazywany jest Parivartini Ekadashi. Dzisiaj jest jedenasty dzień księżyca, jedenasty dzień Ekadeshi. Również w Sahaja Yodze wiecie o Ekadasha Rudrze, która znajduje się tutaj, która ostatecznie zniszczy wszystko, co jest już niepożądane. To jest Ekadasha tutaj.

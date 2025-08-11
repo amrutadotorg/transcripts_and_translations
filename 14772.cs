@@ -1,3 +1,5 @@
+30 prosince 1985
+Ganapatipule (India)
 Projev Dr. Rustoma, 30/12/1985, (Nekontrolováno), Ganapatipule, Indie
 
 (Projev začíná v 16 min)

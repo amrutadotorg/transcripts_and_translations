@@ -1,3 +1,6 @@
+19 julio 1992
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja, Cabella, Italia, 1992-07-19
 
 Ayer me preguntasteis por el estatus de un guru.

@@ -1,3 +1,6 @@
+21 octubre 2001
+Navaratri Puja
+Sportcamp, Loutraki (Greece)
 Navaratri Puja. Delfi, Grecia. 21 de octubre de 2001.
 
 [Madre dio esta charla en un profundo estado meditativo, y a veces Sus palabras casi no podían entenderse]

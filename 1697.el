@@ -1,3 +1,6 @@
+21 Μαρτίου 1990
+Birthday Puja
+Curzon Hall, Sydney (Australia)
 Puja for the 67° Birthday, Sydney (Australia), 21 March 1990.
 
 Τι μεγάλος ενθουσιασμός σε όλον τον κόσμο!

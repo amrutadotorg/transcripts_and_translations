@@ -1,3 +1,6 @@
+31 мая 1983
+Public Program
+Hampstead Town Hall Centre, Hampstead (England)
 Хампстед, Англия
 31 мая 1983
 

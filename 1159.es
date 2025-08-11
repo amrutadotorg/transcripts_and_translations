@@ -1,3 +1,7 @@
+28 marzo 1991
+Mahavira Puja
+Perth (Australia)
+
 Mahavira Puja
 Perth (Australia), 28 de Marzo 1991.
 Hoy vamos a celebrar el cumpleaños de Mahavira. Mahavira es la encarnación de Bhairavanath o -como lo llamáis vosotros- San Miguel. Ya conocéis a estos dos santos: uno es Gabriel, que es Hanumana, y el otro San Miguel. Uno está situado en el Pingala Nadi y el otro, San Miguel, en el lda Nadi. Así pues, Mahavira tuvo que pasar por una larga búsqueda. Por supuesto Él era un ángel, pero vino como ser humano y tuvo que descubrir el camino del lado izquierdo y su funcionamiento. El lado izquierdo es muy complicado, mucho más complicado que el lado derecho. En el lado izquierdo también tenemos siete nadis, que están situados uno a continuación del otro. Se han descrito en diferentes libros y se les ha dado diferentes nombres. Como ya sabéis, estos siete nadis que están en el lado izquierdo se encargan de nuestro pasado. Por ejemplo, podemos decir que cada momento se convierte en pasado.

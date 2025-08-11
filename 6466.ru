@@ -1,3 +1,6 @@
+15 октября 1993
+Public Program
+Philadelphia (United States)
 Публичная программа,
 
 Филадельфия, США,

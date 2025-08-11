@@ -1,3 +1,6 @@
+13 febrero 1984
+Devi Puja
+Bordi (India)
 Qué se espera de los sahaja yoguis y dónde estamos
 
 Bordi 13 - 2 - 84

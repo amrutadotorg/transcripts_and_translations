@@ -1,3 +1,6 @@
+4 maja 1985
+Sahasrara Pudźa
+Laxenburg (Austria)
 "Musicie osiągnąć i ustabilizować stan Nirvikalpa"
 
 To bardzo miłe widzieć, że tak wielu Sahaja yoginów przybyło, aby świętować Dzień Sahasrary. Bez przebicia Sahasrary, nie moglibyśmy uzyskać masowego wzrostu. Ale Sahasrara, którą jest mózg, strasznie się skomplikowała na Zachodzie. I nerwy są bardzo poskręcane, jeden z drugim. Utrzymanie otwartej Sahasrary powinno być bardzo proste, gdyby tylko zachodni rozum mógł pojąć waszą Matkę i być Jej świadomy. Skoro wasza Matka jest Boginią Sahasrary, jedyną drogą, aby móc utrzymać Sahasrarę otwartą musi być całkowite poddanie się.

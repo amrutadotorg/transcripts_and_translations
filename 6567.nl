@@ -1,3 +1,6 @@
+29 december 1991
+Lakshmi Puja
+Chalmala, Alibag (India)
 Shri Lakshmi Puja - Alibag, India - 29 december 1991
 
 Nederlandse vertaling versie datum 2023-0305

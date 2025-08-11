@@ -1,3 +1,6 @@
+17 junio 1989
+Mahakali Puja
+Ambleside ashram in West Vancouver, Vancouver (Canada)
 Shri Mahakali Puja, Vancouver (Canadá). 17 de junio de 1989.
 
 Hoy nos hemos reunido aquí, en la ciudad de Vancouver, para rezar por Canadá y por el pueblo canadiense. Tenéis que saber que hay muchas fuerzas negativas actuando y es necesario realizar un puja al Poder de Mahakali. Así que, hoy, pensé: ‘Tengamos un puja a Mahakali’. De manera que, un puja a Mahakali es como si hicieras un Puja a la Devi. Lo primero que vino a esta tierra fue el Poder de Mahakali. La Adi Shakti vino como Mahakali y creó Shri Ganesha. Luego ascendió como Mahasaraswati, y con ese Poder creó todo el universo; así creó este mundo, de una manera muy hermosa, con una gran organización y un gran orden; y en esta situación nacieron los seres humanos, ya que la temperatura y todo lo demás se hizo de forma que fuera agradable para los seres humanos.

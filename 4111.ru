@@ -1,3 +1,6 @@
+27 сентября 1998
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Наваратри пуджа
 
 Кабелла (Италия), 27 сентября 1998

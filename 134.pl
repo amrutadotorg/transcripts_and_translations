@@ -1,3 +1,6 @@
+31 maja 1985
+Dewi Pudźa
+San Diego (Stany Zjednoczone)
 Devi Puja. San Diego, California (USA), 31 maja 1985.
 
 Niech Bóg was błogosławi. Proszę usiądźcie. (Nagrywacie?) Jak miło być w aszramie w San Diego. To jest takie piękne miejsce, tak bardzo wyraża miłość Boga, sposób, w jaki Boskość chce wam pomóc na każdym kroku. Jeśli chcecie mieć aszram, jeśli chcecie mieć odpowiednie miejsce, chcecie dobrze opiekować się waszymi dziećmi, chcecie wykonywać pracę Boga, wszystko jest pod opieką, wszystko musi zostać wypracowane. Gdyby nie zostało wypracowane wtedy jak będziecie wykonywać waszą pracę?

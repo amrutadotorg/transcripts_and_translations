@@ -1,3 +1,6 @@
+6 agosto 1982
+Talk to Sahaja Yogis
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Charla a yoguis: "La importancia de la dedicación y de la devoción". Nightingale Lane Ashram, Londres, Reino Unido. 6 de agosto de 1982.
 
 El otro día os hablé de la importancia de la dedicación en Sahaja Yoga y de la devoción que deberíamos tener. Realmente, cuando nos encontramos cerca de una montaña, no podemos verla al completo y por eso no nos damos cuenta de la mole que hay tan cerca de nosotros ni de la grandeza que tenemos enfrente. Esta es una de las ilusiones que sufren aquellos que, mentalmente, no se dan cuenta de lo que les puede ocurrir, de dónde están, qué han encontrado, qué es la Realización del Ser, cuál es su magnitud, hasta dónde tienen que ir, por qué han sido elegidos, cuál es el propósito de su vida, cuánto han ascendido, cuánto pueden comprender. Todas estas cosas están más allá de su compresión y se sienten aturdidos. De hecho, uno no sabe lo que le ha sucedido cuando consigue su Realización. Por ello la compresión de todo esto solo es posible si podéis entender cómo dedicaros y cómo entregaros. Si queréis analizar algo sobre la base de vuestra racionalidad os aturdiréis también. Está mucho más allá de vosotros, es fantástico, es demasiado. Está realmente más allá de vosotros.

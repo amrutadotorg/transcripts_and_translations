@@ -1,3 +1,6 @@
+7 Δεκεμβρίου 1991
+Public Program
+Madras (India)
 Public Program. Madras (India), 7 December 1991.
 
 Υποκλίνομαι σε όλους τους αναζητητές της αλήθειας.

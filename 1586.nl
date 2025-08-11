@@ -1,3 +1,6 @@
+23 april 1989
+Hanumana Puja
+Butlins Grand Hotel, Margate (England)
 SHRI HANUMANA PUJA - Margate - U.K. - 23 april 1989
 
 Vandaag is zo vreugdevol en de ganse atmosfeer borrelt ervan over. Het is alsof de engelen zingen en de specialiteit van Shri Hanumana was dat hij een engel was. Engelen worden geboren als engelen. Het zijn engelen, het zijn geen mensen. Ze worden geboren met engelachtige kwaliteiten. Maar nu zijn jullie allen van mensen tot engelen geworden. Dat is een zeer grote prestatie van Sahaja Yoga. De kwaliteiten waarmee de engelen geboren worden, zijn te zien vanaf hun prille jeugd.

@@ -1,8 +1,7 @@
-8 July 1990
+8 lipca 1990
 Detachment, Silence, Faith
-Guru Puja
-Île Piot, Avignon (France)
-Talk Language: English | Transcript (English) - Reviewed
+Guru Pudźa
+Camping Parc des Libertés, Avignon (Francja)
 
 W Sahaja Yodze Puja do Guru ma zupełnie inne znaczenie niż puja u innych guru. Kiedy czcicie Guru, czcicie również Guru w sobie. To nie ma miejsca w innych systemach guru - uczeń, ponieważ w was, Guru, Mistrz został obudzony. Tak więc, jeśli czcicie waszego Guru,
 wówczas ten Guru w was także jest czczony. Szanujecie go, wychwalacie, budzicie go i manifestujecie. Musimy sobie zdać z tego sprawę, w Sahaja Yodze, jeśli jesteście Sahaja Yoginami.

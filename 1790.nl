@@ -1,3 +1,6 @@
+1 maart 1983
+Ganesha Puja
+Perth (Australia)
 Shri Ganesha Puja. Perth (Australia), 1 Maart 1983.
 
 Nederlandse vertaling versie datum 2022-0928

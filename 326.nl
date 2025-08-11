@@ -1,3 +1,7 @@
+7 mei 2000
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
+
 Sahasrara Puja, Cabella Ligure, 7 mei 2000.
 
 Bereik de Sahaja status

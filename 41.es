@@ -1,3 +1,6 @@
+25 octubre 1992
+Diwali Puja
+Sala Olimpia, Timisoara (Romania)
 Diwali Puja. Temisoara, Rumanía. 25 de octubre de 1992.
 
 Hoy vamos a celebrar el Diwali Puja. Creo que todos deberíais aprender inglés, es una lengua muy simple, y sería mucho mejor. Podéis aprender inglés escuchando mis cintas de casete. Aunque, desde luego, el lenguaje del Amor es universal, pero el problema es que no tiene palabras. Me siento llena de emoción, es un encuentro tan hermoso, con gente de todas partes del mundo, unidos por un amor tan puro. Los rusos, afortunadamente, ya han llegado; han tenido que pasar por un poco de "tapasya".

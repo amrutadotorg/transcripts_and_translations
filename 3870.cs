@@ -1,3 +1,6 @@
+4 října 1987
+Rama Púdža
+Les Avants (Switzerland)
 Šrí Ráma púdža: Den Dassera, 04/10/1987, Les Avants, Švýcarsko
 
 Dnes ve Švýcarsku oslavujeme korunovaci Šrí Rámy na den Dassera.

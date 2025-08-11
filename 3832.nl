@@ -1,3 +1,6 @@
+20 augustus 1988
+Vishnumaya Puja
+Shudy Camps Park, Shudy Camps (England)
 Shri Vishnumaya Puja - Bliksem als aankondiging - Shudy Camps, UK. - 20 augustus 1988
 
 Translation not verified. Dear yogi, register as volunteer to do so.

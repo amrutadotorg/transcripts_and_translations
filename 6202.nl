@@ -1,3 +1,6 @@
+14 juli 2001
+Publieke programma's
+Royal Albert Hall, London (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma

@@ -1,3 +1,6 @@
+16 października 1987
+Mahakali Pudźa
+Zamek Blutenburg, Monachium (Niemcy)
 Shri Mahakali Puja – Kultura Ducha, 16.10.1987 Monachium, Zamek Blutenberg, Niemcy
 
 Powiedziano Mi, że mamy bardzo piękne miejsce na tę puję i byłam zdumiona, jak wszystko tak pięknie pracuje dla was wszystkich.

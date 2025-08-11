@@ -1,3 +1,6 @@
+13 května 1982
+Veřejné Programy
+Christchurch House, Brighton (Anglie)
 První tři minuty jsou bez zvuku.
 
 Veřejný program: Rady na levou stranu - problematika podvědomí, 13/05/ 1982, Brighton, Velká Británie

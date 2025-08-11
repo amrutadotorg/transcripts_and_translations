@@ -1,3 +1,6 @@
+1 října 1983
+Interview
+Kennolyn Camps, Santa Cruz (United States)
 Rozhovor pro rádio Kazu, 01/10/1983, (nekontrolováno), Santa Cruz, USA
 
 Barbara: Než začneme, ráda bych se vám zde představila. Jmenuji se Barbara Schulerová a vedu rozhlasový pořad na stanici z Monterrey, který se jmenuje Discovery, obvykle ve středu od 13:00 do 14:30, a nyní bude ve čtvrtek od 11:30 do 13:00. A je mi ctí být zde a natočit pro své posluchače rozhovor. Takže pro posluchače bych ráda řekla, že jsme v Kennolyn Campgrounds v Santa Cruz a toto je rozhovor s Její Svatostí Šrí Mátadží. Matko, o Sahadža józe, o vaší filozofii bylo řečeno mnoho věcí, ale o tom, kdo jste jako člověk, toho bylo řečeno velmi málo. A napadlo mě, že by bylo dobré začít několika otázkami o tom, kdo jste, kdo jste byla jako dítě, jací lidé vás ovlivnili, co vás přivedlo na místo, kde jste dnes jako zářící bytost, která sedí před námi?

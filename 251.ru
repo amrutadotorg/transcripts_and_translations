@@ -1,3 +1,6 @@
+11 апреля 1993
+Easter Puja
+Magliano Sabina Ashram, Magliano Sabina (Italy)
 Пасхальная пуджа
 
 Рим (Италия), 11 апреля 1993

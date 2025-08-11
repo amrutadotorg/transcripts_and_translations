@@ -1,3 +1,6 @@
+22 února 1991
+Talk to Sahaja Yogis
+Ashram of Pichini, Rome (Itálie)
 Projev k jogínům: Božská láska, 22/2/1991, Řím, ášram Pichini, Itálie (nekontrolováno)
 
 (Projev začíná v 19.minutě)

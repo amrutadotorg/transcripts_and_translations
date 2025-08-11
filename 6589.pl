@@ -1,3 +1,6 @@
+18 sierpnia 1991
+Program Publiczny
+Štvanice, Prague (Czech Republic)
 Publiczny Program. Praga (Czechy), 18 sierpnia 1991.
 
 Drugi Program Publiczny w Pradze, w Czechach 18 sierpnia 1991 Yogin pyta o możliwość robienia zdjęć podczas wykładu Shri Mataji. Ale kiedy mówię, nie powinno się ich robić. Zaśpiewajcie jeszcze jedną piosenkę, krótszą. Kłaniam się wszystkim poszukiwaczom prawdy. Tak jak wam wczoraj powiedziałam, prawda jest tym czym jest. Nie można na jej temat teoretyzować ani odczuć jej na tym ludzkim poziomie świadomości W tym celu musicie się stać subtelniejszą istotą, którą nazywamy Duchem. Dzisiaj opowiem wam o naturze Ducha. Duch jest odbiciem Ojca, Boga Wszechmogącego. Jego siedziba znajduje się nad kością ciemieniową, ale On odbija się w naszym sercu; podczas gdy Kundalini jest odbiciem Ducha Świętego, Pierwotnej Matki.

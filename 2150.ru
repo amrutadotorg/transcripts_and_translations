@@ -1,7 +1,6 @@
-27 December 1985
+27 декабря 1985
 Devi Puja
-Brahmapuri (India)
-Talk Language: English, Marathi | Transcript (English) - Draft | Translation (Marathi to English) - Draft
+Brahmapuri (Индия)
 
 Devi Puja. India Tour, Brahmapuri (India), 27 December 1985.
 

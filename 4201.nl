@@ -1,3 +1,6 @@
+26 februari 1995
+Mahashivaratri Puja
+Castle Mountain Camp, Wisemans Ferry (Australia)
 Shivaratri Puja. Castle Mountain Camps, Wiseman's Ferry, Newcastle, NSW Australia. 26 Februari 1995.
 
 TVD Nl: 2017-0125

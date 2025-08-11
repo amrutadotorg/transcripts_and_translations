@@ -1,3 +1,6 @@
+28 sierpnia 1983
+Kryszna Pudźa
+Tannay Ashram, Tannay (Szwajcaria)
 Shri Krishna Puja, Genewa (Szwajcaria), 28 Sierpnia 1983.
 
 Dzisiaj tutaj, na tej świętej ziemi celebrujemy urodziny Shri Krishny.

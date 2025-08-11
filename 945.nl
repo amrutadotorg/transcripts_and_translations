@@ -1,3 +1,6 @@
+26 mei 1983
+Buddha Puja
+Brighton Ashram, Brighton (England)
 Shri Buddha Puja - Brighton, Engeland - 26 mei 1983
 
 Deze keer was er geen regen zie je, we gingen naar de zee in Melbourne. Ik zei dat het fijn zou zijn naar Melbourne te gaan en we gingen naar de zee, ik maakte er een Ganesha en zij een Shiva en ze vereerden de ... Dus, en zij maakten ook een ... een Kundalini en dan hebben ze gebeden. En het regende, regende en regende, het goot zie je, het kwam bij bakken naar beneden, bij bakken, het was ... Ik heb nooit eerder zo'n regen gezien, het goot bij bakken. En in één dag, viel er in Sydney vier inches regen, kun je dat geloven? En de puja vond binnen plaats en buiten ... regen Op mijn verjaardag! Bakken en bakken water. En er was een droogte, weet je, ze waren zo bang.

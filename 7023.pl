@@ -1,3 +1,6 @@
+6 sierpnia 1988
+Kryszna Pudźa
+Como (Włochy)
 Shri Krishna Puja, Stan Świadka, 06.08.1988 Garlate, Como Włochy
 
 Dzisiaj zebraliśmy się tutaj, aby czcić Shri Krishnę.

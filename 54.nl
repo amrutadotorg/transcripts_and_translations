@@ -1,3 +1,6 @@
+10 november 1991
+Diwali Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Diwali Puja

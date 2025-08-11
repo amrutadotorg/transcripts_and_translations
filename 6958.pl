@@ -1,3 +1,6 @@
+23 sierpnia 1986
+Mowa do Sahadźa Joginów
+Plaffeien, Hostellerie am Schwarzsee (Szwajcaria)
 Wykład o Shri Krishnie (Przed Obiadem), 23.08.1986 Hostellerie am Schwarzsee, Friburg, Plaffeien (Szwajcaria)
 
 Zdecydowaliśmy, że Puja odbędzie się po kolacji, gdyż Shri Krishna urodził się w nocy, około północy, podczas gdy Ja urodziłam się o godzinie dwunastej w południe, tak samo jak Shri Rama.

@@ -1,3 +1,6 @@
+31 maja 1983
+Program Publiczny
+Hampstead Town Hall Centre, Hampstead (Anglia)
 “Postępowanie wbrew woli Bożej”, Program Publiczny, Hampstead, Londyn (Anglia), 31 Maja 1983.
 
 Na samym wstępie chciałabym przeprosić za tak duże spóźnienie dzisiaj, ale zdałam sobie sprawę, że kiedy coś jest bardzo ważne z punktu widzenia Boga, wszystkie negatywne siły opracowują swoje plany, jak opóźniać, jak ustawiać przeszkody, jak stwarzać utrudnienia, jak zmieniać bieg rzeczy.

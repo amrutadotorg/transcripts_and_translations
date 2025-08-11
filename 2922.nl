@@ -1,3 +1,6 @@
+19 december 1982
+Mahakali Puja
+Lonavala (India)
 Shri Mahakali Puja, Lonawala, Maharashtra (India), 19 December 1982.
 
 Nederlandse vertaling versie datum; 2024-0426

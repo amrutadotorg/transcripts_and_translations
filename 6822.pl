@@ -1,3 +1,6 @@
+1 lutego 1982
+Durga Pudźa
+Rahuri (Indie)
 Shri Durga Puja – 8-my Dzień Navaratri (Ashtami) 01.02.1982 Rahuri, Indie
 
 Dzisiaj jest wyjątkowy dzień. Jest to połączenie dwóch wydarzeń. Adi mai English maday bolte pan Marathi boliye [Najpierw będę mówić po angielsku, potem w Marathi].

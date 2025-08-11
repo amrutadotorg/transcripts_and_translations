@@ -1,3 +1,6 @@
+21 maart 2000
+Birthday Puja
+New Delhi (India)
 Shri Mataji Nirmala Devi
 
 Birthday Puja

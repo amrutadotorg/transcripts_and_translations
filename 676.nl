@@ -1,3 +1,6 @@
+6 augustus 1982
+Talk to Sahaja Yogis
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Het belang van toewijding en devotie. Nightingale Lane Ashram, London (United Kingdom), 6 Augustus 1982.
 
 Nederlands translation version date 2022-0106 DP, TL

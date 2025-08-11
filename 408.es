@@ -1,3 +1,6 @@
+22 abril 1984
+Easter Puja
+Temple of All Faiths, Hampstead (England)
 Puja de Pascuas, "El Perdón",Temple of All Faiths, Hampstead (Inglaterra) 22-04-1984
 
 Hoy estamos celebrando la resurrección de Cristo. Con ello también tenemos que celebrar la resurrección de los seres humanos, de los sahaja yoguis que han resucitado como almas realizadas. Tenemos que entender que entramos en una nueva consciencia. Cristo no necesitó entrar en ninguna nueva consciencia. Tuvo que venir de nuevo para mostrar a este mundo que vosotros sois la vida eterna, que lleváis una vida espiritual que nunca perece. Tenéis que ascender a ese nuevo reino que es el reino de Dios Todopoderoso, que vosotros llamáis el Reino de Dios. Él se lo dijo muy claramente a Nicodemo: "Tenéis que nacer otra vez", y cuando este le preguntó: "¿Tengo que volver de nuevo al vientre de mi madre para nacer otra vez?" Él lo dijo tan claramente. Está muy claro. Aquellos que no quieran ver pueden seguir ciegos pero Él lo dijo muy, muy claramente "No, eso quiere decir que cualquier cosa que nace de la carne es carne, pero cualquier cosa que nace del Espíritu es el Espíritu". Nada podría estar más claro que eso: se tiene que nacer del Espíritu.

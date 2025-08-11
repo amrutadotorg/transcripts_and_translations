@@ -1,3 +1,6 @@
+20 augustus 2000
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Krishna Puja - Beslis spontaan - Cabella, Italië - 20 Augustus 2000
 
 Vandaag zijn wij hier samengekomen om Shri Krishna in ons te vereren. Zoals je wel weet, waren jullie allen zoekers voor je bij Sahaja Yoga kwamen. Je ging naar verschillende plaatsen, je las een hele hoop boeken en sommigen liepen verloren. Terwijl je aan het zoeken was, besefte je misschien niet wat je aan het zoeken was. Wat je zocht was : jezelf kennen. In alle religies wordt gezegd : Ken jezelf. Het is algemeen, ze zeggen het allemaal.

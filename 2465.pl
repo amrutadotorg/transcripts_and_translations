@@ -1,3 +1,6 @@
+4 lipca 2004
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
 Guru Puja, Cabella Ligure (Włochy), 4 Lipca 2004.
 
 To dla Mnie ogromna przyjemność, największa radość, widzieć tak wielu Sahaja yoginów na Guru Pujy. To daje dużo satysfakcji myśleć, że tak wielu, że tak wielu z was jest uczniami.

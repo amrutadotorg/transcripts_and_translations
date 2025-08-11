@@ -1,3 +1,6 @@
+21 juli 1993
+Ganesha Puja
+Berlin (Germany)
 Shri Ganesha Puja - De bron van wijsheid - Berlijn, Duitsland - 21 juli 1993
 
 NlTVD 2019-0520

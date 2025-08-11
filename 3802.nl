@@ -1,3 +1,6 @@
+16 september 1984
+Ekadasha Rudra Puja
+Como (Italy)
 Shri Ekadasha Rudra Puja. Faggeto Lario, Como (Italië), 16 September 1984.
 
 ETVD Unknown. NL Vertaling Versië: 2017-0517

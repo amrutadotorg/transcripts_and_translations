@@ -1,3 +1,6 @@
+6 mei 1987
+Talk to Sahaja Yogis
+Burwood Ashram, Sydney (Australia)
 De noodzaak om dieper te gaan - De essentie van elementen. Burwood, Sydney (Australië), 6 Mei 1987.
 
 NlTVD2020-0828

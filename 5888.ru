@@ -1,3 +1,6 @@
+30 июня 1980
+Public Program
+Caxton Hall, London (England)
 Что происходит в других Локах
 
 Лондон, Англия

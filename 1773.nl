@@ -1,3 +1,6 @@
+4 augustus 1985
+Ganesha Puja
+Brighton Friends Meeting House, Brighton (England)
 Shri Mataji Nirmala Devi
 
 Shri Ganesha Puja

@@ -1,3 +1,6 @@
+16 septiembre 2000
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja
 
 Cabella Ligure, 16-9-2000

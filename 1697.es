@@ -1,3 +1,6 @@
+21 marzo 1990
+Birthday Puja
+Curzon Hall, Sydney (Australia)
 Puja de Cumpleaños. Sídney, Australia. 21 de marzo de 1990.
 
 Tal entusiasmo en el mundo entero. Creo que todo Sídney se ha inundado de flores. Habéis dicho cosas tan bonitas..., las tarjetas, las cartas y los hermosos poemas; los niños cantan tan bien... Las palabras no logran expresar tal sentimiento de júbilo y sincera felicidad.

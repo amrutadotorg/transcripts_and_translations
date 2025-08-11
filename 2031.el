@@ -1,8 +1,6 @@
-10 April 1991
-Appreciation Should Be Practiced And Informal Talk
+10 Απριλίου 1991
 Virata Puja
 Lake Road Ashram, Melbourne (Australia)
-Talk Language: English | Transcript (English) - VERIFIED
 
 Virata Puja. Melbourne (Australia), 10 April 1991
 

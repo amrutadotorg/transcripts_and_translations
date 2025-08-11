@@ -1,3 +1,6 @@
+13 mayo 1982
+Public Program
+Christchurch House, Brighton (England)
 Programa público: "El lado izquierdo, problemas del subconsciente", 13 de mayo de 1982.
 
 [Los tres primeros minutos no hay sonido]

@@ -1,8 +1,6 @@
-12 July 1987
-Sankhya & Yoga
-Guru Puja
-Shudy Camps Park, Shudy Camps (England)
-Talk Language: English | Transcript (English) - Draft
+12 července 1987
+Guru Púdža
+Shudy Camps Park, Shudy Camps (Anglie)
 
 Guru púdža: Sánkhja a jóga, 12/07/1987,(nekontrolováno), Shudy Camps, Anglie
 

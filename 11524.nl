@@ -1,3 +1,6 @@
+7 februari 1985
+Devi Puja
+Bordi (India)
 De cultuur van de universele religie
 
 Puja toespraak, Bordi, India, 7 februari 1985

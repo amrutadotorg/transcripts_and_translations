@@ -1,3 +1,6 @@
+10 stycznia 1988
+Makar Sankranti Pudźa
+Mumbai (Indie)
 Shri Surya Puja (Makar Sankrant) “Oś Ziemi a Oś Człowieka", Bombaj, Indie 10 Stycznia, 1988
 
 Jest to dla Mnie wyjątkowa okazja by ponownie spotkać się z wami w Bombaju, gdy wszyscy wyjeżdżacie z tego kraju. Puja, która dzisiaj się odbędzie, jest wyjątkowa, ponieważ obchodzimy ją ku czci słońca i nazywa się Makar Sankrant. 'Makar' oznacza zwrotnik Koziorożca, bo 'Makar' to Koziorożec.

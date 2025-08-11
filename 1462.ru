@@ -1,3 +1,6 @@
+1 сентября 1985
+Vishnumaya Puja
+Southlands College, London (England)
 Пуджа Шри Вишнумайе
 
 Уимблдон (Великобритания), 1 сентября 1985

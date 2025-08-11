@@ -1,3 +1,6 @@
+14 septiembre 2002
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 14 de septiembre de 2002.
 
 Hoy nos hemos reunido aquí para adorar a Shri Ganesha. Shri Ganesha es la Deidad de la inocencia. Cuando somos niños, Shri Ganesha actúa y somos muy inocentes. Es algo tan poderoso que gracias a ella, los niños sobreviven a muchas situaciones. Los amamos porque son inocentes. Gozamos de ellos porque son inocentes.

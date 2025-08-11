@@ -1,3 +1,6 @@
+19 diciembre 1982
+Mahakali Puja
+Lonavala (India)
 Shri Mahakali Puja: "El deseo". Lonawala, Pune, India. 19 de diciembre de 1982.
 
 Doy la bienvenida a este gran país del yoga y a todos los sahaja yoguis. Hoy, antes de nada, debemos establecer en nosotros el deseo de ser buscadores y de alcanzar nuestro crecimiento total y nuestra madurez. El puja de hoy es para todo el universo. El universo entero debería iluminarse con este deseo. Vuestro deseo debería ser tan intenso que emitiera las puras vibraciones de Mahakali Shakti, que es el puro deseo de alcanzar el Espíritu. Ese es el verdadero deseo. Todos los demás deseos son como espejismos.

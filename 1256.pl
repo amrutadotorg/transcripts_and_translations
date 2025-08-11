@@ -1,3 +1,6 @@
+11 lipca 1982
+Program Publiczny
+Guildhall Theatre, Derby (Anglia)
 Publiczny Program, Derby (UK), 11 lipca 1982.
 
 Cieszę się, że Dr Warren mógł wam objaśnić te czakry, o których opowiedziałam wam wczoraj, ponieważ w czasie jednego krótkiego wykładu nie można omówić tych wszystkich punktów. A jeśli otrzymacie swoją Realizację i będziecie czynić postępy, wtedy możecie słuchać Moich kaset, których są setki, i możecie zrozumieć, że ta wiedza jest rozległa jak ocean. Tak jak wam wczoraj mówiłam, że gdy otrzymujecie oświecenie, stajecie się wiedzą. To bardzo niejasne stwierdzenie; ludzie nie rozumieją co to oznacza "stać się wiedzą". Pewnego dnia jakiś dżentelmen przyszedł do Mnie i powiedział: "Mój guru już dał mi wiedzę". Zapytałam: "W jaki sposób?" "Ponieważ powiedział mi: "Dałem ci wiedzę". Powiedziałam: "Ale nadal, jak to jest, że jest to wiedza? Na jakiej podstawie wierzysz, że on dał ci wiedzę?" On odpowiedział: "Nie Matko, on dotknął mojego czoła i zobaczyłem światło". Odpowiedziałam: "Ale wciąż, tak czy inaczej możesz widzieć światło. Jak to jest, że otrzymałeś wiedzę?"

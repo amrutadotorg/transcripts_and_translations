@@ -1,3 +1,6 @@
+1 december 1980
+Publieke programma's
+Caxton Hall, London (England)
 "Je bent deel van het Goddelijke Wezen". Caxton Hall, London (UK), 1 December 1980.
 
 NlTVD2020-1220

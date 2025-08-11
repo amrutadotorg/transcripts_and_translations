@@ -1,3 +1,6 @@
+18 februari 1984
+Chandrama Puja
+Vaitarna (India)
 Shri Chandrama Puja, Vaitarna (Indië), 18 Februari 1984
 
 EnTVD 2016-0218 NlTVD2020-0309

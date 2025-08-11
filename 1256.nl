@@ -1,3 +1,6 @@
+11 juli 1982
+Publieke programma's
+Guildhall Theatre, Derby (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma
@@ -331,7 +334,7 @@ Laten we het nu doen. Richt nu je handen naar mij, alsjeblieft. Doe allemaal jul
 
 [16]  subplexus: bijknoop van een hoofdzenuwknoop of zenuwplexus in het ruggenmerg
 
-[17]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
+[17]  Omkara: letterteken in het Sanskriet dat de Om of Aum klank voorstelt (). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
 
 [18]  brahmarandra: top van het hoofd; plaats waar de Kundalini het fontanelgebied doorboort; zetel van de Hart chakra op het hoofd
 

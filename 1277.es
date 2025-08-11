@@ -1,3 +1,6 @@
+26 septiembre 1982
+Durga Puja
+Vienna (Austria)
 Shri Durga Puja. Viena, Austria. 26 de septiembre de 1982.
 
 Deberíais haceros todos un bandhan. Es mejor antes del Puja. Hoy es la primera vez que hacemos este puja en este país, en Austria. Este es un país histórico que ha sufrido diferentes sacudidas para aprender muchas lecciones en la vida. Pero los seres humanos son de tal manera que no relacionan las calamidades con sus errores. Por eso continúan repitiendo los mismos errores una y otra vez.

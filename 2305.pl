@@ -1,3 +1,6 @@
+10 października 1993
+Virata Pudźa
+YMCA Camp Whittle, Fawnskin (Stany Zjednoczone)
 Shri Virata And Viratangana Puja, 10.10 1993 YMCA Camp Whittle, Fawnskin (USA)
 
 Dzisiaj będziemy celebrowali Puję Virata i Viratangana. Ameryka Północna i Ameryka Południowa są, jak wiecie, centrum Vishuddhi Shri Krishny. I bardzo ważne jest to, aby również wiedzieć, że cała komunikacja, wszystkie relacje z całym Stworzeniem, muszą zostać ustanowione poprzez to centrum Vishuddhi.

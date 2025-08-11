@@ -1,3 +1,6 @@
+29 juli 2001
+Krishna Puja
+Nirmal Nagari, Canajoharie (United States)
 Shri Krishna Puja - De drie paden - Canajoharie, USA - 29 juli 2001
 
 Translation not verified. Dear yogi, register as volunteer to do so.

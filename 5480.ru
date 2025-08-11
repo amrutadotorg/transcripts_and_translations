@@ -1,3 +1,6 @@
+21 ноября 1977
+Public Program
+Caxton Hall, London (England)
 Метаморфозы тантризма
 
 21 ноября 1977,

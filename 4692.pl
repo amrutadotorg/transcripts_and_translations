@@ -1,3 +1,6 @@
+21 sierpnia 1983
+Bhoomi Devi Pudźa
+Surbiton Ashram, Surbiton (Anglia)
 Matka Ziemia i Puja do Mahalakshmi, Musimy zrozumieć wartość Matki Ziemi, 21.08.1983 Surbiton Ashram, Anglia
 
 Dziś musimy dowiedzieć się o połączeniu Sahaja Yogi z Matką Ziemią. Bardzo ważne jest to, że musimy zrozumieć wartość Matki Ziemi. Ona była bardzo dobra dla was wszystkich, wchłaniała wasze wibracje. Poza tym dała wam także wszystko to, co widzicie wokół. Dlatego dzisiaj musimy zrozumieć związek i symboliczne wyrażenie Matki Ziemi w nas samych.

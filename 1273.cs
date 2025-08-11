@@ -1,3 +1,6 @@
+22 srpna 1982
+Ganesha Púdža
+House of Charles and Magda Mathys, Troinex (Switzerland)
 Šrí Ganéša púdža: Nevinnost a radost, 22/08/1982 (nekontrolováno), Troinex, Švýcarsko,
 
 Tak dobře.

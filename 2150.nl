@@ -1,3 +1,6 @@
+27 december 1985
+Devi Puja
+Brahmapuri (India)
 Shri Mataji Nirmala Devi
 
 Puja in Brahmapuri

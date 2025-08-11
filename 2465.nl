@@ -1,3 +1,6 @@
+4 juli 2004
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Shri Guru Puja - Cabella Ligure, Italië - 4 juli 2004
 
 Nederlands: eindversie 16/07/2010

@@ -1,8 +1,6 @@
-15 August 1982
-God Of Yoga
-Krishna Puja
-Chelsham Road Ashram, London (England)
-Talk Language: English | Transcript (English) – VERIFIED
+15 srpna 1982
+Krishna Púdža
+Chelsham Road Ashram, Londýn (Anglie)
 
 Šrí Jogéšvara púdža: Bůh jógy, 15/08/1982, (nekontrolováno), Londýn, Anglie
 

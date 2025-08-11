@@ -1,3 +1,6 @@
+11 февраля 1983
+Mahashivaratri Puja
+Universal Sahaj Temple, New Delhi (Индия)
 Пуджа Шиваратри
 
 Дели (Индия), 11 февраля 1983

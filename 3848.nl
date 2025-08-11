@@ -1,3 +1,6 @@
+6 januari 1986
+Mahalakshmi Puja
+Sangli (India)
 Shri Mataji Nirmala Devi
 
 Shri Mahalakshmi Puja

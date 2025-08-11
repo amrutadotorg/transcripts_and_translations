@@ -1,3 +1,6 @@
+5 mei 1985
+Sahasrara Puja
+Laxenburg (Austria)
 Sahasrara Puja - Wenen, Oostenrijk - 5 mei 1985
 
 Vandaag zijn we bijeengekomen in deze prachtige ruimte, die door de keizerin van Oostenrijk tot stand is gebracht, om de Sahasrara Puja uit te voeren. Alleen als we het domein van de Sahasrara binnengaan, zijn we gerechtigd om de Sahasrara Puja te doen. Hiervoor sprak nooit iemand over de Sahasrara en deed ook niemand een Sahasrara Puja. Het is jullie voorrecht om in het domein van de Sahasrara te vertoeven en om deze puja ten uitvoer te kunnen brengen. Dat is jullie recht. Jullie zijn hiervoor uitverkoren. Het is een heel bevoorrechte positie voor jullie om de Sahasrara van de Virata binnen te treden en om je in het brein te bevinden als cellen van die Sahasrara.

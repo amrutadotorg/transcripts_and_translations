@@ -1,3 +1,6 @@
+23 septiembre 1990
+Navaratri Puja
+Geneva (Switzerland)
 Navaratri Puja, "The deities are watching you". Arzier, Geneva (Switzerland), 23 September 1990.
 
 De acuerdo con el calendario, este año hay diez días en el Navaratri, no nueve.

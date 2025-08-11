@@ -1,3 +1,6 @@
+12 października 2003
+Navaratri Pudźa
+Nevele Grande Resort Hotel, Ellenville (Stany Zjednoczone)
 Navaratri Puja, Birthday of Shri Gauri, Ellenville, New York (USA), 12 October 2003.
 
 Dziś świętujemy Pudźę Shri Gauri.

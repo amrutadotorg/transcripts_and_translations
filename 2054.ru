@@ -1,3 +1,6 @@
+2 апреля 1976
+Talk to Sahaja Yogis
+New Delhi (Индия)
 Дели, Индия
 2 апреля 1976
 

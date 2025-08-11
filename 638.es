@@ -1,3 +1,7 @@
+16 febrero 1991
+Mahashivaratri Puja
+Chianciano Terme (Italy)
+
 Mahashivaratri Puja. Chinciano Terme, Italia. 16 de febrero de 1991.
 
 Hoy nos hemos reunido aquí para adorar a Sadashiva, que se refleja en nuestro interior como Shiva. El Espíritu se refleja en nuestro corazón y, como sabemos, el sentido de nuestra vida es conseguir el estado del Espíritu.

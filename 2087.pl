@@ -1,3 +1,6 @@
+20 kwietnia 1985
+Mowa do Sahadźa Joginów
+University of Birmingham, Birmingham (Anglia)
 Mahamaya Shakti. Seminarium Birmingham (UK), 20 kwietnia 1985.
 
 Wiedziałam, że Anglicy byli najbardziej inteligentnymi ludźmi, ale muszę powiedzieć, że mają też bardzo bystrą i czystą inteligencję, aby docierać do właściwych wniosków.

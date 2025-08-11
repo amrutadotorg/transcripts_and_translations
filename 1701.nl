@@ -1,3 +1,6 @@
+25 september 1999
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja, Gana’s en Ganapati, Cabella, Italië 25/09/1999
 
 Translation not verified. Dear yogi, register as volunteer to do so.

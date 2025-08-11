@@ -1,3 +1,6 @@
+4 mayo 1985
+Sahasrara Puja
+Laxenburg (Austria)
 Charla antes del Sahasrara Puja: "Tenéis que estar en Nirvikalpa". Viena, Austria. 4 de mayo de 1985.
 
 Es muy gratificante ver que tantos sahaja yoguis han venido para celebrar el día del Sahasrara. Sin abrir el Sahasrara no podríamos haber alcanzado el ascenso en masa. Pero en Occidente el Sahasrara, que es el cerebro, ha entrado en muchas complicaciones y los nervios están muy retorcidos unos sobre otros.

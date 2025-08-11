@@ -1,3 +1,6 @@
+28 августа 1994
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Пуджа Шри Кришне
 
 Кабелла (Италия), 28 августа 1994

@@ -1,3 +1,6 @@
+18 mei 1993
+Fatima Puja
+Mövenpick Hotel Istanbul, Istanbul (Turkey)
 Shri Fatima Puja - Istanboel, Turkije - 18 mei 1993
 
 Het is in orde. Ik hoop dat jullie me kunnen horen van zo ver weg, lukt dat? Kom anders een beetje naar voren. Vandaag is een zeer vreugdevolle gelegenheid, nu we hier allen in Turkije zijn om de puja van Fatima te vieren. Jullie weten over haar dat zij de dochter was van Mohammed Sahib, dat ze getrouwd was met Ali en dat ze twee kinderen had, Hassan en Hussein, die later in Karbala werden vermoord door fanatici die zichzelf destijds Soennieten noemden. Dit alles gebeurde doordat er fanatisme heerste, en fanatisme laat mensen in de waan dat zij ten allen tijde gelijk hebben, en dat ze het volste recht hebben om kwaad te zijn, en om de andere partij te overreden en te overtuigen - of een andere persoon. En dit fanatisme ontstond al lang geleden, het is geen nieuwigheid. Het is nu overduidelijk dat ons grootste probleem in deze wereld fanatisme is. Fatima verloor haar twee kinderen, en zij was de belichaming van Gruha Lakshmi. Zij verblijft in onze linker Nabhi, dus alle ziektes die in verband staan met de milt en alle problemen die in verband staan met je linker Nabhi kunnen alleen rechtgezet worden door Fatima. Je moet dus zorgen dat Fatima in ontwaakte staat blijft in jezelf.

@@ -1,3 +1,6 @@
+13 juli 1986
+Kartikeya Puja
+Grosshartpenning (Germany)
 Shri Mataji Nirmala Devi
 
 Shri Kartikeya Puja

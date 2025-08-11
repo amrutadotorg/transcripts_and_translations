@@ -1,3 +1,6 @@
+26 mayo 1983
+Buddha Puja
+Brighton Ashram, Brighton (England)
 Cumpleaños de Shri Buda
 
 Inglaterra, Brighton, 26-5-1983

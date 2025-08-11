@@ -1,3 +1,6 @@
+28 мая 1979
+Talk to Sahaja Yogis
+Dollis Hill Ashram, London (England)
 Врата Христа для достижения Шри Матаджи
 
 Доллис Хилл Ашрам, Англия

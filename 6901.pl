@@ -1,3 +1,6 @@
+27 października 1985
+Mowa do Sahadźa Joginów
+New Jersey (Stany Zjednoczone)
 Mowa do joginów: "Ego i jego skutki" 27.10.1985 New Jersey, USA
 
 ... wam o kulturze Sahaj, dobrze? Kultura Sahaj, wyjaśnię wam, czym jest kultura Sahaj, w której musicie wzrastać. Gdzie jest Judy, ona jest tam, wejdź, wejdź, pozwól im usiąść.

@@ -1,3 +1,6 @@
+5 mei 1991
+Sahasrara Puja
+Ischia (Italy)
 Sahasrara Puja - Erken je eigen goddelijkheid- Ischia.  Italië 05/05/1991
 
 Translation not verified. Dear yogi, register as volunteer to do so.

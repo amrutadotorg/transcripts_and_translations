@@ -1,3 +1,6 @@
+6 kwietnia 1991
+Bhavasagara Pudźa
+Brisbane (Australia)
 Pudża Bhavasagara
 06.04.1991, Brisbane, Australia
 

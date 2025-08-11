@@ -1,3 +1,6 @@
+13 september 2003
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja, Cabella Ligure, 13 September 2003.
 
 Nederlandse vertaling versie datum 2022-0811

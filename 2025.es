@@ -1,3 +1,6 @@
+9 diciembre 1991
+Mahakali Puja
+Keshavs shilpa, Bengaluru (India)
 Shri Mahakali Puja. Bangalore, India. 9 de diciembre de 1991.
 
 Ahora habéis venido todos a Bangalore y ayer estuvisteis en Mysore, que fue gobernado por Mahishasura. Por esta razón no comisteis allí, lo que os contrarió. Pero es mejor no comer en sitios así, ¿no?

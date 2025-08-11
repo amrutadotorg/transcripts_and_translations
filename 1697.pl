@@ -1,3 +1,6 @@
+21 marca 1990
+Urodzinowa Pudźa
+Curzon Hall, Sydney (Australia)
 Puja urodzinowa, Sydney (Australia), 21 Marca 1990.
 
 Co za entuzjazm na całym świecie! Myślę, że całe Sydney, zostało ogołocone ze wszystkich kwiatów. Chciałoby się powiedzieć tyle miłych słów, te wszystkie kartki i listy, te piękne wiersze i dzieci, które ślicznie śpiewają. Brakuje słów by wyrazić uczucie takiej radości i tak szczerze odczuwanego szczęścia.

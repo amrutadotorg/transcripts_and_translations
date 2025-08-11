@@ -1,3 +1,6 @@
+3 maart 1996
+Mahashivaratri Puja
+Bundilla Scout Camp, Sydney (Australia)
 Mahashivaratri Puja - Motiveer je aandacht - Sydney, Australië, 3 maart 1996
 
 Vandaag doen we een puja voor Shiva, Shri Shiva. Zoals je weet, is Shiva de reflectie van Sadashiva in ons.  lk heb het al meer over die reflectie gehad. Sadashiva is God Almachtig, die toekijkt op het spel van Adi Shakti. Hij is de Vader die toekijkt op ieder onderdeel van zijn schepping... of van haar schepping.  Hij steunt Adi Shakti met zijn totale kracht. Hij twijfelt niet aan het vermogen van de Adi Shakti. Maar als hij merkt dat de mensen die het spel van de Adi Shakti spelen, proberen haar werk te hinderen of te beschadigen, wordt hij kwaad en vernietigt hij al deze mensen... en misschien wel de hele wereld.  Enerzijds is hij wraakzuchtig, maar anderzijds is hij ook de oceaan van mededogen en vreugde. De reden waarom wij onze zelfrealisatie krijgen, is dat hij in ons aanwezig is als reflectie. Onze Spirit wordt verlicht en wij worden een deel van deze oceaan van vreugde.

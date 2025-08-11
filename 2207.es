@@ -1,3 +1,6 @@
+4 julio 1993
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja. Cabella Ligure, Italia. 4 de julio de 1993.
 
 Hoy vamos a celebrar el Guru Puja. Se supone que soy vuestro Guru; pero a veces siento que la idea que existe sobre cómo debería ser un Guru, es muy diferente de la mía. Normalmente un guru es una persona muy, muy estricta, sin ninguna paciencia, incluso en lo que se refiere a la música.

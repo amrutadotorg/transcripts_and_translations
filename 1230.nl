@@ -1,3 +1,6 @@
+27 september 1980
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)
 Letargie is zeer anti-God - Chelsham Road Ashram, Londen (VK) - 27 september 1980
 
 NlTVD 2019-0509

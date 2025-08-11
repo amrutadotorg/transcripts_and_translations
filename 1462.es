@@ -1,3 +1,6 @@
+1 septiembre 1985
+Vishnumaya Puja
+Southlands College, London (England)
 Shri Vishnumaya Puja. Wimbledon, London (UK), 1 September 1985.
 
 El puja de hoy a Vishnumaya, que fue la hermana de Shri Krishna, no estaba previsto entre los pujas internacionales que hacemos.

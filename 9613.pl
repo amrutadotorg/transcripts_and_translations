@@ -1,3 +1,6 @@
+17 maja 1981
+Mowa do Sahadźa Joginów
+Chelsham Road Aszram, Londyn (Anglia)
 Moc Kundalini, Mowa do Sahaja Yoginów 17.05.1981, Chelsham Road Ashram, Londyn (Anglia)
 
 Dzisiaj powiem wam o Kundalini, o tym, że Kundalini jest czystym pragnieniem wewnątrz nas, która manifestuje się, czy jest obudzona, aby dać nam naszą Samo-Realizację. Co oznacza, że pragnienie jest spełnione tylko wtedy, kiedy otrzymacie swoją Samo-Realizację, inaczej to się nie przejawi – to jest po prostu uśpione; To wciąż pozostaje szczątkowe. To stworzyło cały Wszechświat, ale dopóki nie otrzymacie Samo-Realizacji, dopóki nie staniecie się jednym ze swoim Duchem, nie osiągnęliście manifestacji tej Mocy, co spowoduje, że będziecie biegali, biegali i biegali rozmyślając, że nie osiągnęliście jeszcze lub nie odnaleźliście sensu [swojego życia]. To będzie tam cały czas w uśpieniu, ale dając wam poczucie pustki.

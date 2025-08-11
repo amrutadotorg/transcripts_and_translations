@@ -1,3 +1,6 @@
+4 августа 1991
+Buddha Puja
+Brielpoort Deinze, Deinze (Belgium)
 Пуджа Шри Будде
 
 Дейнзе (Бельгия), 4 августа 1991

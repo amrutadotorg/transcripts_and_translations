@@ -1,3 +1,6 @@
+22 sierpnia 1982
+Ganeśa Pudźa
+House of Charles and Magda Mathys, Troinex (Szwajcaria)
 Shri Ganesha Puja. Geneva (Switzerland), 22 Augut 1982.
 
 Czy jest ktoś, kto może tłumaczyć? Dorosła osoba. Możesz tutaj usiąść.

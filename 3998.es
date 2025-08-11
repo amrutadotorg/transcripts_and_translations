@@ -1,3 +1,6 @@
+12 septiembre 1990
+Mahakali Puja
+Centre Culturel Thierry Le Luron, Le Raincy (France)
 Mahakali Puja
 
 Francia, París, 12-9-1990

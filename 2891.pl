@@ -1,3 +1,6 @@
+8 czerwca 1988
+Ekadasha Rudra Pudźa
+Moedling (Austria)
 Ekadasha Rudra Puja, (Eka Desha Avatara – oryginalny tytuł kasety audio), 08.06.1988, Wiedeń
 
 Dzisiaj jest bardzo ważny dzień w historii duchowości. Inkarnacja Ekadasha Rudra była zapowiadana przez wszystkich proroków, że przyjdzie Inkarnacja Ekadasha Rudra i zniszczy całą negatywność, całą działalność przeciwko Bogu. Zasada Ekadeshy jest wbudowana w Void, bo kiedy święci chcieli przekroczyć Ocean Iluzji, poprzez swoją medytację, przeszkadzano im, byli torturowani i mordowani przez negatywne siły.

@@ -1,3 +1,6 @@
+27 diciembre 1985
+Devi Puja
+Brahmapuri (India)
 Puja en Brahmapuri, India, 27 de diciembre de 1985
 
 Ayer un chico se levantó y me preguntó: "Siendo esto Yoga Bhumi, un país tan sagrado, ¿por qué todos los descubrimientos científicos se producen en Occidente?" Una pregunta muy buena, debo decirlo. Le contesté: "Ese es el conocimiento del árbol, como ya os he dicho. Es el conocimiento del árbol". Lo que han conseguido es llegar al final del árbol y ahora quieren el conocimiento de las raíces. Por eso están aquí. Por tanto, para conocer las raíces, antes de nada debemos tener humildad. Hasta ahora no sabíamos nada de este conocimiento ni lo que había en el Reino de Dios. Como dijo Krishna, este árbol crece hacia abajo y las raíces están en el cerebro, claramente. Se trata pues, de ascender para llegar a las raíces. Aquí hay una diferencia. La Kundalini tiene que subir para ir a las raíces y para entrar en ellas, lo que hemos de hacer es conocer este proceso.

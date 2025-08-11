@@ -1,3 +1,6 @@
+10 september 1995
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure (Italy), 10 September 1995.
 
 Ik weet niet wat te zeggen, met alle Ganapati’s die rond mij zitten en jullie, alle gana’s die voor mij zitten.

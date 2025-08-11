@@ -1,3 +1,6 @@
+8 abril 2007
+Easter Puja
+House in Pratishthan, Pune (India)
 Puja de Pascua. Prathistan, Pune, India. 8 de abril de 2007.
 
 Hoy es un día muy importante. Supone un nuevo comienzo para todos vosotros. Tratad de entender que habéis trabajado muy duro hasta ahora y que queríais hacer mucho más de lo que habríais sido capaces de hacer. Ese era vuestro deseo y se cumplirá, definitivamente se hará realidad. Si vuestro deseo es fuerte las cosas funcionarán y tendréis la gran oportunidad de ayudar a la gente, al igual que vosotros tuvisteis ayuda y os sentisteis felices por ello.

@@ -1,3 +1,6 @@
+13 abril 2002
+Gudi Padwa Puja
+Palam Vihar, Gurgaon (India)
 Gudi Padwa
 
 Palam Vihar, Gurgaon, India, 13-4-2002

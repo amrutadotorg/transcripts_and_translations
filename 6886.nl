@@ -1,3 +1,6 @@
+26 juli 1984
+Talk to Sahaja Yogis
+Brighton (England)
 Shri Mataji spreekt met dokters, Brighton (UK), 26 Juli 1984.
 
 Nederlandse vertaling versie datum: 2024-0426

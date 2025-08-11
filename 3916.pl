@@ -1,3 +1,6 @@
+6 sierpnia 1989
+Bhairavnath Pudźa
+Garlate (Włochy)
 Shri Bhairavanath puja, 6.08.1989, Garlate, Mediolan, Włochy
 
 Zebraliśmy się tutaj dziś, by spełnić puję do Shri Bhairavnatha. Myślę, że nie zrozumieliśmy ważności Bhairavnatha, który biega w górę i w dół po Ida Nadi. Ida Nadi jest kanałem Chandramy, księżyca. Tak więc, jest to kanał, który ma nas schłodzić. Zatem zadaniem Bhairavnathji jest schłodzić nas.

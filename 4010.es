@@ -1,3 +1,6 @@
+8 abril 1991
+Kundalini Puja
+Auckland, Parnell (New Zealand)
 Shri Gauri Puja. Auckland, Nueva Zelanda. 8 de abril de 1991.
 
 Gauri es la Madre de Shri Ganesha. Ella creó a Shri Ganesha para proteger su castidad mientras se daba un baño. Del mismo modo, Kundalini es Gauri y tenemos a Shri Ganesha que se asienta en el Muladhara chakra. Así pues, el Muladhara es la residencia de Gauri, de Kundalini, y Shri Ganesha es quién la protege.

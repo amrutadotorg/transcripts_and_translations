@@ -1,3 +1,6 @@
+8 июля 1979
+Guru Puja
+Dollis Hill Ashram, London (England)
 Пуджа Гуру. Самодисциплина
 
 Лондон, Англия

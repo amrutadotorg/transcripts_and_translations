@@ -1,3 +1,6 @@
+23 września 1990
+Navaratri Pudźa
+Geneva (Szwajcaria)
 Navaratri Puja, "The deities are watching you". Arzier, Geneva (Switzerland), 23 September 1990.
 
 Według kalendarza, w tym roku nie ma dziewięciu a jest dziesięć dni Navaratri.

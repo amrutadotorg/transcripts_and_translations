@@ -1,3 +1,6 @@
+16 marca 1997
+Mahaśiwaratri Pudźa
+Nowe Delhi (Indie)
 Shivaratri Puja, Delhi, Indie, 16 marca 1997
 
 Najpierw będę mówić w języku hindi, a potem po angielsku.

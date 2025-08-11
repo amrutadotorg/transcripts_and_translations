@@ -1,3 +1,6 @@
+29 июня 1985
+Guru Puja
+Château de Chamarande, Chamarande (France)
 Пуджа Гуру
 
 Париж, Франция, 29 июня 1985

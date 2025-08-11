@@ -1,3 +1,6 @@
+12 julio 1987
+Guru Puja
+Shudy Camps Park, Shudy Camps (England)
 Guru Puja. Shuddy Camps, Reino Unido. 13 de julio de 1987.
 
 Hoy es un gran día porque estáis aquí, en el reino del corazón del Universo, para adorar al Guru; si podéis hacer esto en vuestro corazón no tendréis que hacer nada más. Hoy también siento que tengo que hablaros de Sahaja Yoga y su valor en relación con otros yogas que fueron aceptados en tiempos antiguos en todo el mundo.

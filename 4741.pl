@@ -1,3 +1,6 @@
+6 lutego 1985
+Mowa do Sahadźa Joginów
+Bordi (Indie)
 Nowa Era – Poświęcenie, Wolność, Wzrost Człowieka, 06.02.1985, Bordi, Indie
 
 Jestem niezmiernie szczęśliwa widząc was wszystkich tutaj. Nie wiem, co powiedzieć z Mojej strony. Słowa giną, nic nie znaczą. Tak wielu z was dąży do osiągnięcia tego stanu pełnego szczęścia, błogości i spokoju. To jest to, co mogę wam dać. Matka jest tylko wtedy szczęśliwa, gdy może dać swoim dzieciom wszystko to, co ma. Jej zmartwienie, cały jej niepokój, to wszystko jest tylko po to, by osiągnąć ten cel - podarować wszystko to, co ona posiada. Nie wiem, jak mam dziękować wam wszystkim, że przeszliście przez to wszystko, aby dostać się do tego skarbu, który drzemie wewnątrz was. "Sahaj" to jedyne słowo, które pozostało w Mojej świadomości, kiedy rozpoczęłam manifestować otwarcie Sahasrary. Dotychczas było to łatwe do zrozumienia dla wszystkich. Ale zauważyliście, że mamy dzisiaj inny styl yogi, w którym najpierw otrzymujecie oświecenie, a potem macie możliwość sprawowania opieki nad wami samymi.

@@ -1,3 +1,6 @@
+8 Απριλίου 2007
+Easter Puja
+House in Pratishthan, Pune (India)
 Easter puja. Pratishthan, Pune (India), 8 April 2007.
 
 Σήμερα είναι μια πολύ σημαντική μέρα, Λέω ότι η σημερινή μέρα είναι πολύ σημαντική.

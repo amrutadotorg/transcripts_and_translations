@@ -1,3 +1,6 @@
+26 julio 1984
+Public Program
+Hove Town Hall, Hove (England)
 Programa público 26-7-1984
 
 Me inclino ante todos los buscadores de la verdad.

@@ -1,3 +1,6 @@
+24 июня 1999
+Public Program
+Washington D.C. (United States)
 Вашингтон, США
 
 1999-0624

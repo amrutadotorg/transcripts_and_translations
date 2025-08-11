@@ -1,3 +1,6 @@
+20 апреля 1985
+Talk to Sahaja Yogis
+University of Birmingham, Birmingham (England)
 Улучшение Муладхары чакры
 
 Бирмингем, Англия

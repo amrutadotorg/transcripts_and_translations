@@ -1,3 +1,6 @@
+1 enero 1986
+Mahaganesha Puja
+Ganapatipule (India)
 Shri Mahaganesha Puja. Ganapatipule (India), 1 January 1986.
 
 Hoy nos hemos reunido aquí para ofrecer nuestro respeto a Shri Ganesha.

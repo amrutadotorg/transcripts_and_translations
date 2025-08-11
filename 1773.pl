@@ -1,3 +1,6 @@
+4 sierpnia 1985
+Ganeśa Pudźa
+Brighton Friends Meeting House, Brighton (Anglia)
 Shri Ganesha Puja. Brighton (UK), 4 August 1985.
 
 Shri Ganesha Puja 1985, Wykład na temat czystości, Brighton UK

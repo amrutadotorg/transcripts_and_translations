@@ -1,3 +1,6 @@
+16 februari 1991
+Mahashivaratri Puja
+Chianciano Terme (Italy)
 Maha Shivaratri Puja - Sadashiva - Chinciano, Italië - 16/02/91
 
 Translation not verified. Dear yogi, register as volunteer to do so.

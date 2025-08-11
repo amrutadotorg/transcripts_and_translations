@@ -1,3 +1,6 @@
+21 oktober 1990
+Diwali Puja
+Chioggia (Italy)
 Diwali Puja - Chioggia, Venetië (Italië) - 21 oktober 1990
 
 Het was zo'n verrassing jullie allemaal in die stoet te zien! Eigenlijk was ik maar aan het wachten en ik vroeg me af: “Waarom komen ze me niet halen voor de puja?” Het was een prachtige verrassing, heel vreugdevol. De vreugde danste in jullie ogen. Ik kon de lichtjes in jullie ogen zien, en dit is de ware Diwali. Diwali komt van twee woorden: 'dipa' en 'awali'. Zoals je weet betekent 'dipa' lichtjes, en 'awali' betekent rijen: rijen en rijen lichtjes. Naar het schijnt is dit een oeroude beeldvorming, en waar dan ook ter wereld, als ze iets te vieren hebben, gebruiken ze lichtjes. Lichtjes, omdat licht vreugde en geluk brengt. Om dus de duisternis van onwetendheid te overwinnen moeten we onszelf ook verlichten.

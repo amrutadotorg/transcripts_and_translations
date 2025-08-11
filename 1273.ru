@@ -1,3 +1,6 @@
+22 августа 1982
+Ganesha Puja
+House of Charles and Magda Mathys, Troinex (Switzerland)
 Пуджа Шри Ганеше
 
 Труанекс (Швейцария), 22 августа 1982

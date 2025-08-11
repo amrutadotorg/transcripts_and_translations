@@ -1,3 +1,6 @@
+5 oktober 1997
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja- Cabella di Ligure, Italië - 5 oktober 1997
 
 Vandaag is het de zesde dag van Navaratri.

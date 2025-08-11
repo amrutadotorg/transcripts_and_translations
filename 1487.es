@@ -1,3 +1,6 @@
+13 julio 1986
+Kartikeya Puja
+Grosshartpenning (Germany)
 Shri Kartikeya Puja. Grosshartpenning, Munich (Germany), 13 July 1986.
 
 Siento haber llegado tarde, no sabía que este programa sería en un lugar tan bonito como éste.

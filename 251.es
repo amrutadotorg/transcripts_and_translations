@@ -1,3 +1,6 @@
+11 abril 1993
+Easter Puja
+Magliano Sabina Ashram, Magliano Sabina (Italy)
 Puja de Pascua. Magliano Sabina, Roma, Italia. 11 de abril de 1993.
 
 Hoy nos hemos reunido aquí, en la cima de esta montaña, para celebrar la Resurrección de Cristo. Es muy significativo para los sahaja yoguis el comprender este acontecimiento de su resurrección. Con ella Él mostró que el Espíritu no muere. Él era el OMKARA, el LOGOS y el ESPÍRITU. Por eso podía caminar sobre el agua.

@@ -1,3 +1,6 @@
+4 lipca 1992
+Vishnumaya Pudźa
+Aszram Everbeek, Everbeek (Belgia)
 Shri Vishnumaya Puja, 04.07.1992 Ashram Everbeek, Belgia
 
 Dzisiaj jest wyjątkowa okazja, aby celebrować Vishnumaya Puję, ponieważ Ona weszła do tego domu, musimy ją czcić. Najpierw powinniśmy uświadomić sobie, kim jest Vishnumaya. Bardzo ważne jest, aby to wiedzieć, ponieważ w Devi Mahatmyam jest Ona opisana tylko jako inkarnacja Bogini, ‘Vishnumaye di shabdita’. Jest nazwana Vishnumayą. Ale przyjrzyjmy się, kim Ona jest, ostatecznie, kim jest ta Vishnumaya?

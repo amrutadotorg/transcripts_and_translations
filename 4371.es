@@ -1,3 +1,6 @@
+23 marzo 2002
+Birthday Felicitations
+New Delhi (India)
 Día de Felicitaciones. Delhi, India. 23 de marzo de 2002.
 
 Este acto de felicitación me resulta un poco embarazoso, porque desde que nací soy una persona extremadamente sencilla, siempre he sido así. No entiendo de dinero ni de odio, ni de codicia. Soy una persona muy sencilla en ese sentido. A pesar de eso, vosotros vinisteis y recibisteis la Realización. El logro es vuestro. Se han cumplido vuestros deseos.

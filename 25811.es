@@ -1,3 +1,6 @@
+1 julio 1977
+Guru Puja
+London (England)
 Guru Puja: Las promesas que tenéis que hacer, Londres, Inglaterra 01-07-1977
 
 Hoy es el día de adoración a vuestro guru, que es vuestra Madre. Cómo os he dicho, es un acontecimiento único que Madre en persona se haya convertido en vuestro Guru. Y también sabéis que ser un guru es una tarea muy difícil para una madre, porque su amor es tan desbordante que es muy difícil para ella imponer alguna disciplina a sus hijos. Ella no puede disciplinar su propio amor, ¿cómo va entonces a disciplinar a sus propios hijos? Al ser así, la responsabilidad de los discípulos es mucho mayor. Si el guru es una persona que puede imponer disciplina de forma que no os sintáis dolidos, será muy capaz y podrá hacerlo. Pero para una madre, es muy, muy, muy difícil. Debo decirlo, el trabajo de ser el guru es muy difícil. Ella no sabe como equilibrar, y es extremadamente indulgente porque es la Madre. El guru, desde el principio, no perdona, mientras que la madre lo hará hasta el fin, hasta el final. Incluso si el hijo la ha abandonado, incluso si le ha pegado, incluso si quiere matarla, aún así le dirá: "Hijo mío, ¿te has hecho daño?".

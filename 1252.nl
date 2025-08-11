@@ -1,3 +1,6 @@
+10 juli 1982
+Publieke programma's
+Guildhall Theatre, Derby (England)
 Shri Mataji Nirmala Devi
 
 Publiek programma: Muladhara tot Void

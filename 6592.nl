@@ -1,3 +1,6 @@
+28 april 1991
+Hamsa Chakra Puja
+Queens Theatre, New York (United States)
 Nederlandse vertaling versie datum: 2023-0428
 
 Hamsa chakra Puja - Mentale activiteit - New-York, USA - 28/04/1991

@@ -1,3 +1,6 @@
+22 марта 1984
+Birthday Puja
+Juhu, Бомбей (Индия)
 Puja for the 61° Birthday (Be sweet, loving and peaceful), Juhu, Bombay (India), 22 March 1984.
 
 [Translation from Marathi]

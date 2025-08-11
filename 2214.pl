@@ -1,3 +1,6 @@
+24 lipca 1994
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
 Guru Puja, Dorośnijcie i Osiągnijcie Stan Guru
 
 24.07.1994 Cabella Ligure, Włochy

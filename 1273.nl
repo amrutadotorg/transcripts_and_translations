@@ -1,3 +1,6 @@
+22 augustus 1982
+Ganesha Puja
+House of Charles and Magda Mathys, Troinex (Switzerland)
 Shri Mataji Nirmala Devi
 
 Shri Ganesha Puja

@@ -1,3 +1,6 @@
+18 noviembre 1979
+Talk to Sahaja Yogis
+Dollis Hill Ashram, London (England)
 Charla a yoguis: "Como superar el ego y conocerse a sí mismo". Dollis Hill Ashram, 18 de noviembre de 1979.
 
 Sahaja Yoga es el gran suceso desencadenante por el que la creación de Dios va a llegar a su plenitud y a conocer su significado.

@@ -1,3 +1,6 @@
+7 diciembre 1991
+Public Program
+Madras (India)
 2o programa público en Madrás. India. 7 de diciembre de 1991.
 
 Me inclino ante todos los buscadores de la Verdad. Antes que nada, ayer os dije que la Verdad es lo que es. Si no hemos encontrado la verdad deberíamos ser humildes y sinceros sobre ello, porque la verdad es para nuestro bien, para el bien de nuestra ciudad, de nuestra sociedad, de nuestro país y de todo el universo.

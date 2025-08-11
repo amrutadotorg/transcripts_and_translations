@@ -1,3 +1,6 @@
+18 junio 1988
+Talk to Sahaja Yogis
+Shudy Camps Park, Shudy Camps (England)
 Seminario día 1, "Introspección y meditación", Shudy Camps, Inglaterra, 18-06-1988
 
 [La transcripción corresponde solo al video de 16 minutos]

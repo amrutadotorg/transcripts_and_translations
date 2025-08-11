@@ -1,3 +1,6 @@
+18 czerwca 1988
+Mowa do Sahadźa Joginów
+Shudy Camps Park, Shudy Camps (Anglia)
 Introspekcja i Medytacja
 18.06.1988 Seminarium , Shudy Camps, Wielka Brytania,
 

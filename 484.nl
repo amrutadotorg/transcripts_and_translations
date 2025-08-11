@@ -1,3 +1,6 @@
+6 november 1983
+Diwali Puja
+Temple of All Faiths, Hampstead (England)
 Diwali Puja - De idealen worden - Londen, UK. - 06/11/1983
 
 NlTVD 2019-1019

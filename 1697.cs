@@ -1,3 +1,7 @@
+21 března 1990
+Birthday Púdža
+Curzon Hall, Sydney (Australia)
+
 Narozeninová púdža: Upřímnost, 21/03/1990, Sydney (Australia)
 
 Tolik nadšení po celém světě!

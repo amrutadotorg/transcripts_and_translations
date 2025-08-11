@@ -1,4 +1,6 @@
-Seminario día 2, El rol de la mujer, 19-06-1988
+19 junio 1988
+Talk to Sahaja Yogis
+Shudy Camps Park, Shudy Camps (England)Seminario día 2, El rol de la mujer, 19-06-1988
 
 Ayer tuvimos una meditación muy buena y todos sentimos la brisa fresca del Espíritu Santo, y os dije que tenemos que entender que este es el momento más grande de la Historia, en el que habéis nacido y estáis haciendo el trabajo más elevado, que es el trabajo del Divino.
 

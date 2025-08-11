@@ -1,3 +1,6 @@
+10 lipca 1988
+Hamsa Czakra Pudźa
+Grafenaschau (Niemcy)
 Shri Hamsa Swamini Puja, 10.06.1988 Grafenaschau, Niemcy
 
 Dzisiaj postanowiliśmy mieć Hamsa Puję w Niemczech.

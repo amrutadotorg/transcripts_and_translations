@@ -1,3 +1,6 @@
+8 мая 1994
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Сахасрара Пуджа
 
 Кабелла (Италия), 8 мая 1994

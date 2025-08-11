@@ -1,3 +1,6 @@
+16 septiembre 1984
+Ekadasha Rudra Puja
+Como (Italy)
 Shri Ekadesha Rudra Puja, Faggeto Lario, Como, Italia 16 Septiembre 1984
 
 Hoy en día, estamos haciendo un tipo especial de Puja que se realiza en la gloria de Ekadesha Rudra. Rudra es el poder destructivo de Shiva, el Espíritu. Ahora, un poder que está en su naturaleza es el perdón. Él perdona porque somos seres humanos, cometemos errores, hemos hecho cosas equivocadas, nosotros somos tentados, nuestra atención está perturbada; por eso Él nos perdona. Él también nos perdona cuando estropeamos nuestra castidad, cuando hacemos cosas inmorales, cuando robamos y hacemos las cosas que están en contra de Dios, o cuando hablamos contra Él.

@@ -1,3 +1,6 @@
+2 września 1984
+Ganeśa Pudźa
+Hotel Riffelberg, Zermatt (Szwajcaria)
 Shri Ganesha Puja, Cztery Przysięgi, 02.09.1984 Hotel Riffelberg, Zermatt, Szwajcaria
 
 Moja radość nie zna granic, kiedy przybywamy złożyć hołd tej świętej Górze, której nadaliśmy imię "Gana-raj".

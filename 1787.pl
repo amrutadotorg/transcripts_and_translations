@@ -1,3 +1,6 @@
+11 września 1983
+Ganeśa Pudźa
+Tivoli (Włochy)
 Shri Ganesha Puja, 11.09.1983 Tivoli, Włochy
 
 Dziś obchodzimy urodziny Shri Ganeshy, ponieważ jest to bardzo ważna sprawa dla nas wszystkich, że powinniśmy świętować Jego urodziny, a wczoraj zrobiliśmy havan.

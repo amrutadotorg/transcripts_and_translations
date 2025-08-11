@@ -1,3 +1,6 @@
+22 abril 1990
+Easter Puja
+Burlington Hotel, Eastbourne (England)
 Puja de Pascua. Eastbourne, Reino Unido. 22 de abril de 1990.
 
 Hoy estamos aquí para celebrar la Resurrección de Cristo y también para agradecerle que nos diera un modelo ideal de vida de un santo, que debe trabajar por el bien del mundo entero.

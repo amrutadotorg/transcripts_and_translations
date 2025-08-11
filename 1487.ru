@@ -1,3 +1,6 @@
+13 июля 1986
+Kartikeya Puja
+Grosshartpenning (Germany)
 Пуджа Шри Картикее
 
 Мюнхен (Германия), 13 июля 1986

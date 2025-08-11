@@ -1,3 +1,6 @@
+5 mei 1979
+Sahasrara Puja
+Dollis Hill Ashram, London (England)
 Sahasrara Puja. Dollis Hill, Londen (UK), 5 Mei 1979.
 
 Nederlandse vertaling versie datum 2024-0426

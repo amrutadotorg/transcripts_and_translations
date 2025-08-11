@@ -1,3 +1,6 @@
+23 ноября 1984
+Christmas Puja
+Montague Hall, Hounslow (England)
 Пуджа Иисусу Христу
 
 Хаунслоу (Великобритания), 23 ноября 1984

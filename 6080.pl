@@ -1,3 +1,6 @@
+11 sierpnia 1990
+Mahasaraswati Pudźa
+Ashram in Lions Bay, Lions Bay (Canada)
 Shri Saraswati Puja. Vancouver (Kanada), 11 Sierpnia 1990. (wersja 2 – styczeń 2018, do korekt)
 
 Kiedy zapytano Mnie, jaką powinniśmy mieć Puję w Vancouver, Ja słyszałam o tym ashramie, który jest położony w bardzo pięknym otoczeniu. A ponieważ natura jest stworzona przez moce Saraswati, pomyślałam, że najlepiej byłoby mieć tutaj Puję Saraswati. Co innego, kiedy ludzie żyją blisko natury, stają się bardzo twórczy, ich delikatne uczucia są zachowane. Oni nigdy się nie śpieszą, nigdy także nie są, jak to można nazwać, za bardzo nowocześni, ponieważ przyroda ich wycisza.

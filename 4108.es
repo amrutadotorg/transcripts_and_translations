@@ -1,3 +1,6 @@
+8 octubre 2000
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja. Cabella Ligure, Italia. 8 de octubre de 2000.
 
 Hoy vamos a adorar a la Devi llamada Amba, y por muchos otros nombres. Ella es el Poder residual. Una vez que ha creado todo, se transforma en la Kundalini y se asienta en vuestro hueso sacro. Este es el Muladhara chakra. Pero realmente se expresa más en el lado izquierdo porque en ese momento es puramente el Amba. Este lado izquierdo es muy importante para todos los seres humanos. Para empezar, si no tuvierais lado izquierdo no os podríais equilibrar.

@@ -1,3 +1,6 @@
+3 března 1996
+Mahashivaratri Púdža
+Bundilla Scout Camp, Sydney (Australia)
 Mahášivaratri púdža: Motivujte svou pozornost, 3/3/1996, Bundilla Scout Camp, Sydney (Australia)
 
 Dnes budeme dělat púdžu k Šivovi, ke Šrí Šivovi.

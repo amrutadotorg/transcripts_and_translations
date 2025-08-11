@@ -1,3 +1,6 @@
+22 października 1979
+Program Publiczny
+Caxton Hall, Londyn (Anglia)
 Program Publiczny - Problem Ego,1979-1022 Caxton Hall, Londyn
 
 Myślałam, żeby wam dzisiaj powiedzieć o problemie z ego, bo myślę, że każdy czuje, iż to jest największy problem dla wszystkich; z tym problemem można zabrnąć za daleko i nie wiedzieć, co z tym robić.

@@ -1,3 +1,6 @@
+25 mei 1997
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Adi Shakti Puja

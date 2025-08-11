@@ -1,3 +1,6 @@
+23 juli 2000
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja, “Shraddha”. Cabella Ligure (Italië) 23 juli 2000.
 
 NlTvd 2020-0620

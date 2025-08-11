@@ -1,3 +1,6 @@
+2 april 1982
+Rama Puja
+Chelsham Road Ashram, London (England)
 Shri Rama’s verjaardag Chelsham Road, London, UK 2 april 1982
 
 ETVD 2016-0424 Vertaling Versie 2017-0319

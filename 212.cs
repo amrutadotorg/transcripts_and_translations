@@ -1,8 +1,6 @@
-8 May 1994
-Mahamaya Swarupa
-Sahasrara Puja
-Campus, Cabella Ligure (Italy)
-Talk Language: English | Transcript (English) - VERIFIED
+8 května 1994
+Sahasrara Púdža
+Campus, Cabella Ligure (Itálie)
 
 Sahasrára púdža: Mahamája Svarupa, 08/05/1994, (nekontrolováno), Cabella, Itálie
 

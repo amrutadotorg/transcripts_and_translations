@@ -1,3 +1,6 @@
+6 mei 1990
+Sahasrara Puja
+Fiuggi (Italy)
 Nederlands vertaling versie datum 2024-0426
 
 Sahasrara Puja. Fiuggi (Italië), 6 Mei 1990.

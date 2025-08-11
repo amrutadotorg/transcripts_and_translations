@@ -1,3 +1,6 @@
+15 stycznia 1984
+Ganeśa Pudźa
+Mumbai (Indie)
 Shri Ganesha Puja, Utrzymuj Swoje Granice, 15.01.1984 Bombaj, Indie
 
 To jest tak Sahaj dzisiaj, że dzień świętowania przypadł na urodziny Shri Ganeshy.

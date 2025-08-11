@@ -1,3 +1,6 @@
+14 stycznia 1987
+Makar Sankranti Pudźa
+Residence of Madhukar Dhumal, Rahuri (Indie)
 Pudża Sankranti
 14.01.1987, Rahuri, Indie
 Dzisiaj jest dzień, w którym świętujemy zmianę osi Słońca i to, że Ono przesuwa się w kierunku zwrotnika Raka. Zwrotnik Raka jest tym, który reprezentuje macierzyństwo, macierzyństwo Ziemi.

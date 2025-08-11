@@ -1,3 +1,6 @@
+24 junio 2007
+Adi Shakti Puja
+Campus, Cabella Ligure (Italy)
 Adi Shakti Puja. Cabella Ligure, Italia. 24 de junio de 2007.
 
 Es muy agradable volver a veros a todos aquí. Creo que este es el primer Puja que celebramos en este lugar y espero que todos estéis cómodos y os haya ido bien venir aquí. Hoy, verdaderamente, es un día muy grande. Es el Adi Shakti. Celebramos el Adi Shakti y cuál es su origen. Nunca hablé de ello. Esta es la primera vez que os digo que la Adi Shakti es la Madre Primordial; es el Poder, el Poder de Dios que quiso crear este mundo. Y Ella sola fue capaz de crear este mundo maravilloso.

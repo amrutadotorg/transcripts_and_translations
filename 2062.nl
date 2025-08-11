@@ -1,3 +1,6 @@
+3 augustus 1986
+Bhoomi Devi Puja
+Shudy Camps Park, Shudy Camps (England)
 Shri Mataji Nirmala Devi
 
 Shri Bhoomi Dhara Puja

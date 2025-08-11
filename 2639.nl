@@ -1,3 +1,6 @@
+23 november 1984
+Christmas Puja
+Montague Hall, Hounslow (England)
 Shri Mataji Nirmala Devi
 
 Kerst Puja
@@ -385,4 +388,4 @@ Dit moet worden gedaan door jongens die geen gevoelens rond het huwelijk hebben,
 
 [2] Spirit: de Atman, het Zelf, de diepste (goddelijke) essentie van ons wezen, die zuivere liefde, vreugde en bewustzijn is
 
-[3] Omkara of Omkara: letterteken in het Sanskriet dat de Aum of Om klank voorstelt (\). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.
+[3] Omkara of Omkara: letterteken in het Sanskriet dat de Aum of Om klank voorstelt (). Aum is de oerklank die ontstond bij de splitsing van Sadashiva en de Adi Shakti aan het begin van de schepping. De essentie van dit woord wordt uitgedrukt door Shri Ganesha in de Muladhara, de manifestatie is de Heer Jezus Christus in de Agnya.

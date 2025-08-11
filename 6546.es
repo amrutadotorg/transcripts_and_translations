@@ -1,3 +1,6 @@
+20 febrero 1992
+Mahalakshmi Puja
+Wamuran Ashram, Brisbane (Australia)
 Shri Mahalakshmi Puja. Brisbane, Australia. 20 de febrero de 1992.
 
 Hoy había pensado que hiciéramos el puja a Mahalakshmi. Será lo mejor, de este modo entenderemos lo que es Vishwa Nirmala Dharma. Como sabéis, el principio de Mahalakshmi reside en vuestro interior, en el centro. Una vez que os hartáis de la falsedad y la hipocresía de la gente, empezáis a buscar la Verdad en vuestro interior. De este modo nace una nueva categoría de personas, aquellos que son llamados buscadores o sadhakas. Son muy diferentes de los demás. No se preocupan por ningún beneficio material ni por ninguna posición o poder. Solo quieren buscar la verdad. De esta categoría sois vosotros, por esa razón habéis venido a Sahaja Yoga.

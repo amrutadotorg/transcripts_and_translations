@@ -1,3 +1,6 @@
+16 września 1984
+Ekadasha Rudra Pudźa
+Como (Włochy)
 Shri Ekadasha Rudra Puja, 16.09.1984, Faggeto Lario, Como, Włochy
 
 Dzisiaj spełniamy szczególny rodzaj puji, która jest celebrowana w chwale Ekadeshy Rudry.

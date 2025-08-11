@@ -1,3 +1,6 @@
+17 października 1999
+Navaratri Pudźa
+Kampus, Cabella Ligure (Włochy)
 8-my Dzień Navaratri - Moce Shri Mahakali, 17.10.1999, Cabella, Włochy
 
 Tej nocy zebraliśmy się tutaj, by zrobić Puję do Devi, którą możemy nazwać Tą, która jest Mahakali lub Durgą.

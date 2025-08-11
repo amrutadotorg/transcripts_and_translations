@@ -1,3 +1,6 @@
+1 augustus 1999
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru puja, Cabella Ligure (Italy), 1 Augustus 1999.
 
 Nederlandse vertaling versie datum 2024-0205

@@ -1,3 +1,6 @@
+10 lipca 1982
+Program Publiczny
+Guildhall Theatre, Derby (Anglia)
 Program Publiczny, Powinniśmy wiedzieć coś więcej, (od Mooladhary do Voidu) 10.07.1982, Derby, Wielka Brytania
 
 Dziękuję wszystkim Sahaja yoginom z Derbyshire i Birmingham za to, że dali Mi możliwość porozmawiać z miejscowymi poszukiwaczami. Mamy poszukiwaczy we współczesnych czasach to jest coś bardzo wyjątkowego. Nigdy nie mieliśmy ich wcześniej, przynajmniej nie tylu. Było wielu ludzi, którzy szukali pieniędzy, tak samo jak w obecnych czasach jest wielu takich, którzy przeszukują kraj za krajem w poszukiwaniu władzy. Ale było też wielu takich, co poszukiwali tych kilku pereł Boskiej błogości, tylko kilku. Powodem była świadomość, zbiorowa świadomość istot ludzkich, które prawdopodobnie nie zdawały sobie sprawy z możliwości, czy potrzeby poszukiwania.

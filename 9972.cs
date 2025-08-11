@@ -1,3 +1,6 @@
+11 října 1993
+Interview
+Los Angeles (United States)
 Audrey Hope - Skutečné ženy 1.& 2.část
 
 Jaká je šance na stabilní společnost    1.část

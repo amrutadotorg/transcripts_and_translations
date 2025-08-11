@@ -1,3 +1,6 @@
+21 diciembre 1986
+Devi Puja
+Chalmala, Alibag (India)
 Shri Mahadevi Puja: "Puja de bienvenida". Chalmala, Alibagh, India. 21 de diciembre de 1986.
 
 Me inclino ante todos los sahaja yoguis. En este hermoso lugar, en estos parajes, muchos de vosotros os estaréis preguntando por qué Dios ha creado estas cosas tan bellas. Porque teníais que venir a esta Tierra y disfrutar de la belleza. Esa es una de las razones. Y ahora Dios se siente repleto de gozo, satisfacción y de algo parecido a la culminación de su deseo. ¿Por qué Dios ha creado este hermoso Universo?, ha sido una pregunta formulada durante miles de años.

@@ -1,3 +1,6 @@
+21 abril 2002
+Easter Puja
+Kilya Hotel Kilyos, Kilyos (Turkey)
 Puja de Pascua. Estambul, Turquía. 21 de abril de 2002.
 
 Hoy nos hemos reunido aquí para adorar a Jesucristo y a su Madre. Es una gran coincidencia que la Madre de Cristo viniera a Turquía. ¿No es sorprendente que viniera aquí después de la crucifixión de Cristo y se quedara? Me pregunto si Él se reunió con Ella más tarde. Aunque dicen que fue a Cachemira y que Ella también estuvo allí. Es muy posible que, en su camino, llegaran hasta allí.

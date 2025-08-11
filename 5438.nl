@@ -1,3 +1,6 @@
+27 januari 1980
+Talk to Sahaja Yogis
+Bordi (India)
 Transformatie - Advies ‘s ochtends tijdens Bordi Seminar - 27 januari 1980
 
 En Tvd2017-0122 NL Tvd2020-1127

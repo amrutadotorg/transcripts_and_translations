@@ -1,7 +1,6 @@
-14 January 1981
+14 января 1981
 Makar Sankranti Puja
-Pune (India)
-Talk Language: English, Marathi | Transcript (English) - VERIFIED | Translation (Marathi to English) - NEEDED
+Pune (Индия)
 
 Мне очень жаль, что Я не cмогла говорить с вами на английском языке, – и Я говорила некоторое время.
 

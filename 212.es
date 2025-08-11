@@ -1,3 +1,6 @@
+8 mayo 1994
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja. Cabella Ligure, Italia. 8 de mayo de 1994.
 
 Hoy se da una combinación única pues es el día de la Madre en muchos países, y el día del Sahasrara para los sahaja yoguis. Creo que este es el día más importante en la historia de la evolución humana, porque todos los demás acontecimientos y encarnaciones y todos los logros en el nivel espiritual no han sido de mucha ayuda. Por el contrario, han desembocado en una especie de crisálida o burbuja sin salida, donde la gente se golpea contra las paredes, creando problemas a cuenta de algo que es muy auspicioso y hermosamente espiritual.

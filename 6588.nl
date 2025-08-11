@@ -1,3 +1,6 @@
+17 augustus 1991
+Publieke programma's
+Štvanice, Prague (Czech Republic)
 Shri Mataji Nirmala Devi
 
 1ste publiek programma

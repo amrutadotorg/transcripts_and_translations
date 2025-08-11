@@ -1,3 +1,6 @@
+26 mei 1980
+Talk to Sahaja Yogis
+Dollis Hill Ashram, London (England)
 Toespraak over aandacht, vragen over vreugde, en dromen
 
 Dollis Hill Engeland, 1980-0526

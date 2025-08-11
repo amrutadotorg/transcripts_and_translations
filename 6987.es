@@ -1,8 +1,6 @@
-25 October 1987
-Power Of Innocence, Meaning Of Nine Of The Lakshmis
+25 octubre 1987
 Diwali Puja
 Lecco (Italy)
-Talk Language: English | Transcript (English) – VERIFIED
 
 Primero, nos inclinamos ante Shri Ganesha porque Shri Ganesha es la fuente de inocencia dentro de nosotros.
 

@@ -1,3 +1,6 @@
+21 oktober 2001
+Navaratri Puja
+Sportcamp, Loutraki (Greece)
 NAVARATRI PUJA - Korinthië/Loutraki (Griekenland) - 21 oktober 2001
 
 Vandaag zijn we hier samengekomen om de Devi puja te volbrengen.

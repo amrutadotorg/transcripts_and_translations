@@ -1,3 +1,6 @@
+14 enero 1987
+Makar Sankranti Puja
+Residence of Madhukar Dhumal, Rahuri (India)
 Sankranti Puja, Rahuri, India January 14th, 1987
 
 Hoy es el día en el que celebramos el cambio del eje del Sol, que empieza a moverse hacia el Trópico de Cáncer.

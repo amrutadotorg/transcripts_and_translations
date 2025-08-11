@@ -1,3 +1,6 @@
+6 augustus 1988
+Krishna Puja
+Como (Italy)
 Shri Krishna Puja
 
 "Je bent een universeel wezen"

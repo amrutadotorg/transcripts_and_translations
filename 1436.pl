@@ -1,5 +1,5 @@
 6 czerwca 1993
-Adi Szakti Pudźa
+Adi Śakti Pudźa
 Kampus, Cabella Ligure (Włochy)
 
 Dzisiaj wszyscy po raz pierwszy będziemy Mnie czcić. Zawsze była to pudża dotycząca Mnie lub części Mnie. Teraz każdy musi wiedzieć bardzo wyraźnie, czym jest Adi Shakti. Jak mówimy, jest czystym pragnieniem Boga Wszechmogącego, Sadashivy. Ale czym jest czyste pragnienie Boga Wszechmogącego? Jeśli widzisz, twoje własne pragnienia, z czego one pochodzą? Nie z Boskiej Miłości ,ale z miłości cielesnej, z miłości materialnej, z miłości do władzy. Za wszystkimi tymi pragnieniami kryje się miłość. Jeśli czegoś nie kochasz, nie będziesz tego pragnął. Tak więc te przyziemne rodzaje miłości, dla których poświęcamy tak dużo czasu, bezużytecznie, w rzeczywistości nie dają satysfakcji ,ponieważ nie jest to prawdziwa miłość, którą masz, tylko zauroczenie na jakiś czas ,a potem po prostu masz tego dość i stąd przeskakujesz do kolejnej rzeczy, i do kolejnej, i znów do kolejnej. Tak więc Adi Shakti jest ucieleśnieniem Boskiej Miłości.

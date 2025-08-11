@@ -1,3 +1,6 @@
+6 april 1991
+Bhavasagara Puja
+Brisbane (Australia)
 Shri Mataji Nirmala Devi
 
 Bhavasagara Puja

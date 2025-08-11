@@ -1,3 +1,6 @@
+31 mei 1992
+Buddha Puja
+Shudy Camps Park, Shudy Camps (England)
 Shri Mataji Nirmala Devi
 
 Shri Boeddha Puja

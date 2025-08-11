@@ -1,3 +1,6 @@
+7 апреля 1982
+Talk to Sahaja Yogis
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Годовщина свадьбы Шри Матаджи
 
 Ашрам Найтингэйл лайн, Лондон (Великобритания), 7 апреля 1982

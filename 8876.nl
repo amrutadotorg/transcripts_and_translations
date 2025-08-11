@@ -1,3 +1,6 @@
+20 juli 2008
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
  

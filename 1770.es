@@ -1,3 +1,6 @@
+7 septiembre 1986
+Ganesha Puja
+YMCA – Camp Marston, San Diego (United States)
 Shri Ganesha Puja: "Estableciendo el principio de Shri Ganesha". San Diego, Estados Unidos. 7 de septiembre de 1986.
 
 En este día celebramos el cumpleaños de Shri Ganesha en la tierra de Shri Krishna. Celebrar el cumpleaños del hijo de Shri Krishna en la tierra de Shri Krishna, es un hecho sin precedentes y de una gran relevancia. Ya sabéis que Shri Ganesha encarnó en esta tierra como Mahavishnu; fue el hijo de Radha y encarnó como el Señor Jesucristo. Al celebrar su cumpleaños reconocéis la verdad más grande de todas y es que el Señor Jesucristo fue el hijo de Shri Krishna. En el Devi Mahatmyam podéis leer una historia referente a cómo este Hijo Primordial adoptó la forma de un huevo; dando lugar la mitad de este huevo a Shri Ganesha y la otra mitad a Mahavishnu.

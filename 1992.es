@@ -1,3 +1,6 @@
+6 diciembre 1991
+Raja Rajeshwari Puja
+Madras (India)
 Shri Raja Rajeshwari Puja. Madrás, India. 6 de diciembre de 1991.
 
 Hoy vamos a hacer el Puja a Shri Ganesha, seguido del Puja a Raja Rajeshwari. Hay muchos nombres que describen a la Diosa, especialmente Adi Sankaracharya la llamó Raja Rajeshwari, que significa que Ella es la Reina de todas las Reinas. A la Virgen María también la solían llamar de este modo, en Occidente. Como ya os dije anteriormente, estas ideas provienen de la religión pagana y no de la descripción de la Virgen María que hay en la Biblia. Esto muestra que ha habido muchos cambios en la transcripción de la Santa Biblia. También ha habido muchos cambios en la transcripción de las escrituras indias, incluso del Gita. De este modo comenzó el descarrilamiento en todas las religiones. Y los intelectuales se aprovecharon de ello, y empezaron a proyectar sus propias ideas, diciendo y describiendo cosas, que estaban totalmente en contra del Poder divino.

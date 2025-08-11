@@ -1,3 +1,6 @@
+4 августа 1985
+Ganesha Puja
+Brighton Friends Meeting House, Brighton (England)
 Пуджа Шри Ганеши
 
 Брайтон (Великобритания), 4 августа 1985

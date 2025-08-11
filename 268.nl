@@ -1,3 +1,6 @@
+31 maart 1991
+Easter Puja
+Bundilla Scout Camp, Sydney (Australia)
 Paas Puja - Sydney, Australië - 31 maart 1991
 
 Engelse transcriptie: ISDP verified

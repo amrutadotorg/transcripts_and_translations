@@ -1,3 +1,6 @@
+2 augustus 1981
+Talk to Sahaja Yogis
+Mill Ln Yetminster, Dorset (England)
 Toespraak tot Sahaja yogi’s - Open je hart - Dorset, UK - 02/08/1981
 
 NlTVD 2019-0903

@@ -1,3 +1,6 @@
+21 abril 1985
+Devi Puja
+University of Birmingham, Birmingham (England)
 Seminario: "Charla antes del Puja del día de la Madre, sobre los niños". Birmingham, Reino Unido. 21 de abril de 1985.
 
 Por favor estad sentados. ¿Gavin no ha venido? ¿Gavin no está aquí?

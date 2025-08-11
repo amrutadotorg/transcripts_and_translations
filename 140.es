@@ -1,3 +1,6 @@
+19 septiembre 1993
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 19 de septiembre de 1993.
 
 Hoy nos hemos reunido aquí para hacer el puja a Shri Ganesha. La primera deidad creada por la Adi Shakti fue Shri Ganesha, porque primero era necesario crear la deidad de los principios. La deidad de los principios en el sentido de que cualquier cosa creada, cualquier cosa que existe se le llama "bhava"; todo lo creado hasta el nivel humano, todo tenía que ser creado a través del mecanismo implantado la energía, de otro modo nada hubiera podido ser creado.

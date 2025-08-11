@@ -1,3 +1,6 @@
+28 julio 1991
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Shri Adi Guru Puja. Cabella Ligure (Italy), July 28th, 1991.
 
 Hoy estáis todos vosotros aquí para adorar a vuestro Guru.

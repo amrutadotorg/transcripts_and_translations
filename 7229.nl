@@ -1,3 +1,6 @@
+2 juni 1985
+Krishna Puja
+Englewood Ashram, New Jersey (United States)
 Shri Krishna Puja, Englewood, USA, 2 juni 1985
 
 NlTVD 2019-0619

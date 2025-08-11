@@ -1,3 +1,6 @@
+21 марта 1990
+Birthday Puja
+Curzon Hall, Sydney (Australia)
 Пуджа Дня Рождения
 
 Сидней (Австралия), 21 марта 1990

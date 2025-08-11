@@ -1,3 +1,6 @@
+6 sierpnia 1982
+Mowa do Sahadźa Joginów
+Nirmala Palace - Nightingale Lane Ashram, Londyn (Anglia)
 Znaczenie Poświęcenia i Oddania, 06.08.1982, Nirmala Palace, Nightingale Lane Aszram, Londyn (UK)
 
 Któregoś dnia mówiłam wam o wadze poświęcenia w Sahaja Yodze oraz oddaniu, które każdy powinien mieć. W rzeczywistości, kiedy jesteśmy blisko góry nie możemy zobaczyć wiele z niej, i dlatego nie uświadamiamy sobie rozmiaru jaki jest tak blisko nas, ogromu, który jest przed nami. Jest to jedna z iluzji, działająca na ludzi, którzy nie rozumieją mentalnie; po co są, gdzie oni są, co znaleźli, co to jest Samorealizacja, jaka jest jej wielkość, jak daleko muszą zajść, dlaczego są wybrani, co jest ich celem życia, do jakiego stopnia urośli, jak wiele mogą zrozumieć. Wszystkie te rzeczy są poza ich zasięgiem, i człowiek jest oszołomiony, nie wie co się z nim stało, gdy faktycznie dostał Realizację.

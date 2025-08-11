@@ -1,3 +1,6 @@
+25 października 1992
+Diwali Pudźa
+Sala Olimpia, Timisoara (Rumunia)
 Pudża Diwali
 25 października 1992 r. Timiszoara, Rumunia,
 

@@ -1,3 +1,6 @@
+25 febrero 2001
+Mahashivaratri Puja
+Pune (India)
 Mahashivaratri Puja. Delhi, India. 25 de febrero de 2001.
 
 Hoy estamos aquí para celebrar el Mahashivaratri. Es un privilegio muy grande para todos nosotros comprender a Shri Mahadeva. Hasta que se tiene la Realización, no se puede comprender la gran personalidad, el carácter y los poderes de Shri Mahadeva. A menos que seamos humildes, no es fácil concebir ni alcanzar las profundidades de su grandeza. Tenemos que ser muy humildes para llegar hasta los Pies de Loto de Shri Mahadeva. Como ya habéis visto, hay que atravesar incluso el Sahasrara para estar a los Pies de Loto de esta gran personalidad. Él está más allá; más allá de todas nuestras concepciones. Pero reside en nuestros corazones como el Espíritu, y se refleja muy bien cuando obtenéis la Realización.

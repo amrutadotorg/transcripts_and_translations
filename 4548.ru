@@ -1,3 +1,6 @@
+28 августа 1973
+Krishna Puja
+Bharatiya Vidya Bhavan, Бомбей (Индия)
 Бомбей, Индия
 28 августа 1973
 

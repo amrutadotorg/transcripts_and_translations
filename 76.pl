@@ -1,3 +1,6 @@
+1 listopada 1981
+Diwali Pudźa
+Chelsham Road Aszram, Londyn (Anglia)
 Diwali Puja
 01.11.1981 Chelsham Road Ashram, Londyn.
 

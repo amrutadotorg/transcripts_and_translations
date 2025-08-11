@@ -1,3 +1,6 @@
+3 november 2002
+Diwali Puja
+Lake Piru, Ventura County (United States)
 Diwali Puja - Het belang van meditatie - Los Angeles, USA - 3 November 2002
 
 Ik wens jullie een heel, heel gelukkige Diwali! Jullie allen hier te zien alleen al vervult me met zoveel vreugde dat jullie allen in Sahaja Yoga zijn gekomen op zo een mooie manier. Het is van jou, het Zelf is van jou, de Spirit is van jou. Maar het 'Zelf worden' is moeilijk. Het is enkel jouw verlangen, denk ik, dat vervuld wordt. En zo kreeg je je zelfrealisatie. Zoals je wel weet kan het niet afgedwongen worden. Het moet uitwerken enkel door jouw verlangen, enkel door jouw overgave. Het heeft geen nut er over te praten, trachten te overtuigen, wat uitwerkt is jouw verlangen, zo eenvoudig is het. De kracht van het verlangen in jou werkt het uit. Velen zijn ook niet hier die over de hele wereld hun realisatie kregen. Ik denk aan hen allemaal en jullie allemaal zouden aan hen moeten denken.

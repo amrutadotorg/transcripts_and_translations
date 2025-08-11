@@ -1,3 +1,6 @@
+10 julio 1982
+Public Program
+Guildhall Theatre, Derby (England)
 Programa público: "Del Muladhara al Vacío". Derby, Reino Unido. 10 de julio de 1982.
 
 Doy las gracias a todos los sahaja yoguis de Derbyshire y de Birmingham por darme la oportunidad de hablar a todos los buscadores de este lugar. El que haya buscadores en los tiempos modernos es algo único. Nunca tuvimos buscadores antes, o por lo menos, no tantos. Solía haber gente que buscaba dinero, como hay muchos buscándolo hoy día; otros que iban de país en país, en busca de poder. Y muy pocos eran los que buscaban la dicha, el verdadero gozo de Dios.

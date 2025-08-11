@@ -1,3 +1,6 @@
+4 mei 1986
+Sahasrara Puja
+Alpe Motta (Italy)
 Shri Mataji Nirmala Devi
 
 Toespraak tot de Sahaja yogi's

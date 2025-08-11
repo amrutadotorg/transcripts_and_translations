@@ -1,3 +1,6 @@
+31 Μαΐου 1985
+Devi Puja
+San Diego (United States)
 Devi Puja. San Diego, California (USA), 31 May 1985.
 
 Είναι μεγάλη χαρά που βρισκόμαστε στο άσραμ του Σαν Ντιέγκο.

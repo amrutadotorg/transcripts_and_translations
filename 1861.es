@@ -1,3 +1,6 @@
+20 junio 1999
+Adi Shakti Puja
+Nirmal Nagari, Canajoharie (United States)
 Shri Adi Shakti Puja. Canajoharie, USA. 20 junio 1999
 
 Es un gran placer para Mí veros a todos reunidos aquí, en este remoto lugar lejos del mundanal ruido. Es un sitio tan bonito y tiene vibraciones.

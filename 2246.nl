@@ -1,3 +1,6 @@
+23 juli 1989
+Guru Puja
+Lago di Braies (Italy)
 Shri Mataji Nirmala Devi
 
 Guru Puja

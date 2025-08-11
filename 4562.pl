@@ -1,3 +1,6 @@
+10 grudnia 1979
+Program Publiczny
+Caxton Hall, Londyn (Anglia)
 Boże Narodzenie i jego związek z Panem Jezusem, 10.12.1979 Caxton Hall, LONDYN (Anglia)
 
 Ten dzień jest po to, abyśmy pamiętali, że Chrystus urodził się na tej Ziemi jako istota ludzka. Przybył na tę Ziemię, a zadanie jakie przed nim stało polegało na oświeceniu ludzkiej świadomości, z poczuciem zrozumienia, lecz możemy powiedzieć, iż jest to urzeczywistnienie w świadomości istot ludzkich, że nie są tym ciałem, ale są Duchem.

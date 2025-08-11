@@ -1,3 +1,6 @@
+6 września 1986
+Evening Program Ganesha Puja
+YMCA - Camp Marston, San Diego (Stany Zjednoczone)
 Mowa przed Pują do Shri Ganeshy: Bądźcie Mądrymi Rybakami, 06.09.1986 California (San Diego), USA
 
 Usiądźcie proszę. Jak pięknie jest spotkać się z wami wszystkimi w tak naturalnym otoczeniu. W zgiełku miasta nie znajdziecie tego spokoju i jest on bardzo dobry dla wszystkich tych, którzy poszukują swojego duchowego wzrostu. Poprosiliście Mnie, żebym przybyła na tę Puję do Ganeshy. Pomyślałam, że najważniejsze jest, aby był ustanowiony Shri Ganesha, i bardzo się cieszę, że jest teraz tylu Amerykanów, którzy są Sahaja yoginami. Oczywiście, w porównaniu z liczbą mieszkańców Ameryki jest to bardzo niewielka ilość i musimy mieć o wiele więcej. Ale oni mają elementarne problemy i myślę, że jednym z nich jest problem ze Shri Ganeshą, i dlatego było to bardzo potrzebne, żebyśmy mieli tę Puję do Shri Ganeshy w Los Angeles, czy jak to miejsce się nazywa? San Diego, albo na tej górze, na której mam nadzieję uda nam się ustanowić tę esencję niewinności, która jest uśpiona.

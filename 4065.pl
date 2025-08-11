@@ -1,3 +1,6 @@
+13 lipca 1994
+Vishnu Pudźa
+La Plaine Saint-Denis, Saint-Denis (Francja)
 Shri Vishnu Puja
 1994.07.13, Paryż, Francja
 

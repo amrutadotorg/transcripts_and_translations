@@ -1,3 +1,6 @@
+20 июля 2008
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja, "How to Become a Guru", Cabella Ligure, Italy, 20 July 2008
 
 Сегодня – очень великий день для всех сахаджа йогов.

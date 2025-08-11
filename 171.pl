@@ -1,3 +1,6 @@
+8 września 1984
+Mahalakshmi Pudźa
+Monachium (Niemcy)
 Shri Mahalakshmi Puja, 08.09.1984, Monachium, Niemcy
 
 Dzisiaj jest wielki dzień pujy do Mahalakshmi.

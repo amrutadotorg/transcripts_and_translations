@@ -1,3 +1,6 @@
+17 Μαρτίου 1985
+Birthday Puja
+Kew Ashram, Melbourne (Australia)
 Birthday Puja. Melbourne (Australia), 17 March 1985.
 
 Είμαι πολύ χαρούμενη σήμερα που βλέπω όλους εσάς να γιορτάζετε τα γενέθλιά Μου, και να έχουμε την εθνική εορτή μας την ίδια ημέρα.

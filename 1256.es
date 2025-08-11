@@ -1,3 +1,6 @@
+11 julio 1982
+Public Program
+Guildhall Theatre, Derby (England)
 Programa público: "Del Anahata al Sahasrara, convirtiéndose en el Conocimiento". Derby, Reino Unido. 11 de julio de 1982.
 
 Me alegro de que el doctor Warren os haya podido explicar los chakras de los que os hablé ayer, porque en una sola conferencia no se pueden cubrir todos los temas. Si obtenéis la Realización y progresáis bien, podéis escuchar mis charlas, hay cientos de ellas, y entenderéis que el conocimiento es vasto como el océano.

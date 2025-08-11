@@ -1,4 +1,6 @@
-Toespraak tot Sahaja yogi's - De kracht van de kundalini - Londen, UK. - 17/05/1981
+17 mei 1981
+Talk to Sahaja Yogis
+Chelsham Road Ashram, London (England)Toespraak tot Sahaja yogi's - De kracht van de kundalini - Londen, UK. - 17/05/1981
 NlTVD 2020-1127
 
 Vandaag vertelde ik jullie over de Kundalini en dat Kundalini het zuivere verlangen binnen in ons is  dat zich manifesteert of gewekt wordt om ons onze zelfrealisatie te geven.  Het betekent dat het verlangen alleen dan is vervuld wanneer je je zelfrealisatie krijgt, anders manifesteert zij zich niet, dan slaapt zij alleen,  is zij latent. Zij heeft het geheel binnenin ons gecreëerd maar dan en alleen dan wanneer je zelfrealisatie krijgt, dan en alleen dan totdat je één wordt met je Spirit,  heb je de manifestatie van deze kracht niet bereikt, wat jullie door zal doen gaan met rennen en rennen en rennen met het idee dat je nog steeds je eigen betekenis niet bereikt of gevonden hebt. Zij zal er zijn, de hele tijd slapend, maar zij zal je ondertussen een gevoel van vervoering geven. Deze kracht moet dus snel ronddraaien om zich te manifesteren maar wanneer zij zich manifesteert...

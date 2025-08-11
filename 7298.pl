@@ -1,3 +1,6 @@
+26 czerwca 1989
+Ganeśa Pudźa
+Bogota, Brigitte's House (Colombia)
 Śri Jezus Pudźa, 26 czerwca 1989r., Bogota, Kolumbia
 
 Chciałabym wam opowiedzieć dziś o Chrystusie i chrześcijaństwie, ponieważ jest to bardzo ważne, ponieważ ten kraj jest bardzo katolicki i nawet jeśli jesteście protestantami albo katolikami, kościół nie wypełnił tego co Chrystus chciał, żeby oni robili, co możecie zobaczyć bardzo wyraźnie.

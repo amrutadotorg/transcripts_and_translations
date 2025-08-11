@@ -1,3 +1,6 @@
+4 agosto 1985
+Ganesha Puja
+Brighton Friends Meeting House, Brighton (England)
 Puja a Shri Ganesha: "Charla sobre la castidad". Brighton, Reino Unido. 4 de agosto de 1985.
 
 Hoy es una ocasión propicia y un día auspicioso para reunirnos aquí y adorar a Shri Ganesha. Shri Ganesha fue la primera Deidad creada para llenar el Universo entero de buen augurio, paz, dicha y espiritualidad. Él es el origen de todo. Es la fuente de toda espiritualidad. Todo lo demás surge a partir de este origen. Igual que cuando hay lluvia y viento sentimos el frescor del ambiente, cuando Shri Ganesha emite sus poderes podemos sentir todo eso dentro y fuera de nosotros. Pero desgraciadamente, especialmente en Occidente, la Deidad más importante y fundamental ha sido, no solo abandonada sino insultada y crucificada.

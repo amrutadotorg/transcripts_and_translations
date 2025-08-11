@@ -1,3 +1,6 @@
+9 мая 1999
+Sahasrara Puja
+Campus, Cabella Ligure (Italy)
 Sahasrara Puja, “Our Awareness has to become Paramchaitanya” Cabella Ligure, (Italy), 9 May 1999.
 
 Сегодня мы собрались здесь, чтобы провести Сахастрара-пуджу.

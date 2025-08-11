@@ -1,3 +1,6 @@
+23 noviembre 1984
+Christmas Puja
+Montague Hall, Hounslow (England)
 Pre-Christmas Talk and Farewell Puja. Montague Hall Hounslow (UK), 23 November 1984.
 
 Bueno, ayer fue un día muy bonito para todos nosotros y dije algo de un nivel diferente.

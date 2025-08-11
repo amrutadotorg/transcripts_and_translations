@@ -1,3 +1,6 @@
+10 enero 1988
+Makar Sankranti Puja
+Mumbai (India)
 Makar Sankranti – Shri Surya Puja. India Tour, Bombay (India), 10 January 1988.
 
 Creo que ésta es una ocasión muy especial para mí, poder reunirme de nuevo con vosotros en Bombay -cuando estáis a punto de abandonar el país- y hacer un Puja tan especial como el de hoy.

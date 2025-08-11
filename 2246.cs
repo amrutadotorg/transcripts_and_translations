@@ -1,3 +1,6 @@
+23 července 1989
+Guru Púdža
+Lago di Braies (Itálie)
 Guru púdža: Tvořivost, 23/07/1989, (nekontrolováno), Lago Di Braies, Itálie
 
 Dnes musíme strávit trochu více času než obvykle, abychom se dostali do stádia, v němž můžeme skutečně uctívat gurua.

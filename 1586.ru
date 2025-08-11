@@ -1,3 +1,6 @@
+23 апреля 1989
+Hanumana Puja
+Butlins Grand Hotel, Margate (England)
 Пуджа Шри Хануману
 
 Вы все Ангелы

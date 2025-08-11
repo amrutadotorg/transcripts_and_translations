@@ -1,3 +1,6 @@
+14 maja 1982
+Program Publiczny
+Brighton Pavilion, Brighton (Anglia)
 Publiczny Program. Brighton (UK), 13 Maja 1982.
 
 Proponuję, żeby dzisiaj najpierw, pozwolić im zadać pytania. Zostanę tu.... Jeśli macie jakieś pytania, zadajcie mi je najpierw. Żeby wasz umysł odpoczął. Chętnie postoję..., wtedy lepiej wszystkich widzę. Czy mam stać tutaj czy na podłodze?

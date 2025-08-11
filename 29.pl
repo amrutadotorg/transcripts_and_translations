@@ -1,3 +1,6 @@
+18 listopada 2001
+Diwali Pudźa
+Lake Piru, Ventura County (Stany Zjednoczone)
 Diwali Puja, Żołnierze Boskiej Miłości, 18.11.2001 Lake Piru, blisko Los Angeles, California, USA
 
 Dzisiaj jest bardzo, bardzo wspaniały dzień, w którym zło zostało stłumione.

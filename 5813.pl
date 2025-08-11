@@ -1,3 +1,6 @@
+29 września 1979
+Navaratri Pudźa
+Shree Sunderbhai Hall, Mumbai (Indie)
 8-my Dzień Navaratri (Ashtami) Ubóstwo, 29.09.1979, Shri Sunderbhai Hall, Bombaj, Indie
 
 Shri Vijay Merchant, pan Rakure, wszyscy Sahaja yogini, którzy przybyli tutaj, aby wyrazić swoją miłość do Mnie i do wszystkich innych ludzi, którzy poszukują prawdy.

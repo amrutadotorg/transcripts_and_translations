@@ -1,3 +1,6 @@
+11 dubna 1993
+Easter Púdža
+Magliano Sabina Ashram, Magliano Sabina (Itálie)
 Velikonoční púdža: Člověk musí mít víru v sebe sama 11/04/1993 Magliano Sabina, Řím, Itálie
 
 Dnes jsme se tu všichni sešli na vrcholu této krásné hory, abychom oslavili vzkříšení Krista.

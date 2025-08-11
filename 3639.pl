@@ -1,3 +1,6 @@
+21 lipca 1993
+Ganeśa Pudźa
+Berlin (Niemcy)
 Shri Ganesha Puja, 21.07.1993 Berlin, Niemcy
 
 Dzisiaj będziemy czcić Shri Ganeshę.

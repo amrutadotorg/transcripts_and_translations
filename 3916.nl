@@ -1,3 +1,6 @@
+6 augustus 1989
+Bhairavnath Puja
+Garlate (Italy)
 Shri Mataji Nirmala Devi
 
 Shri Bhairavanath Puja

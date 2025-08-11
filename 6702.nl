@@ -1,3 +1,6 @@
+10 november 1980
+Publieke programma's
+Caxton Hall, London (England)
 Nederlandse vertaling versie datum: 2023-0321
 
 Caxton Hall, Londen, UK

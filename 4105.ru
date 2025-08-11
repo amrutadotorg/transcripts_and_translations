@@ -1,3 +1,6 @@
+17 октября 1999
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 8 День Наваратри, Силы Шри Махакали
 
 Кабелла, Италия

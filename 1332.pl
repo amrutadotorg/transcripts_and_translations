@@ -1,3 +1,6 @@
+24 lipca 1983
+Guru Pudźa
+Lodge Hill Centre, Pulborough (Anglia)
 Guru Puja, "Guru Puja: Obudzenie Zasady Guru". Lodge Hill (UK), 24 Lipca 1983.
 
 Dzisiaj wszyscy zebraliście się tutaj, aby celebrować Guru Pudżę.

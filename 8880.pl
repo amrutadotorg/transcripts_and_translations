@@ -1,3 +1,6 @@
+13 maja 1982
+Program Publiczny
+Christchurch House, Brighton (Anglia)
 Lewa Strona – Problemy Podświadomości. 13 Maja, 1982, Christchurch Hove, Brighton, Anglia.
 
 Pierwsze 3 minuty są bez dźwięku. Dobre uwarunkowania. W pewnym sensie, możecie mieć zarówno dobre jak i złe nawyki. Jeśli nawyki hamują albo utrudniają wasz wzrost, to mogą także pomóc wam w ustabilizowaniu się. Uwarunkowanie pojawia się u was z materii, z którą mamy do czynienia na co dzień. Kiedy istota ludzka widzi materię, atakuje ją i chce wykorzystać tę materię do swojego celu. Zmienia formy materii dla swojego celu. Zaczyna przyzwyczajać się do materii, jako komfortu albo jako pomocy lub jako wyznacznika w życiu. Im bardziej zaczynacie polegać na materii, tym mniejsza jest wasza spontaniczność, dlatego, że macie do czynienia z czymś martwym. Z materią mamy do czynienia tylko wtedy, kiedy jest martwa. Kiedy jest żywa nie interesuje nas tak bardzo.

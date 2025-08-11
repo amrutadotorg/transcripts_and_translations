@@ -1,3 +1,6 @@
+5 mei 1984
+Sahasrara Puja
+Château de Mesnières, Mesnières-en-Bray (France)
 Shri Mataji Nirmala Devi
 
 Sahasrara Puja

@@ -1,3 +1,6 @@
+15 srpna 1993
+Krishna Púdža
+Campus, Cabella Ligure (Itálie)
 Šrí Krišna púdža: Dharma, 15/08/1993 Cabella, Itálie
 
 Dnes jsme se shromáždili, abychom udělali púdžu ke Šrí Krišnovi. Musíme pochopit, že Šrí Krišna je velmi, velmi důležité božstvo v našem nitru, protože je Višnu, který sídlí ve Voidu, v Nábhí. Je to On, kdo dává vzniknout naší dharmě. Když jste dostali realizaci, neřekla jsem vám, že to a to nemáte dělat. Nikdy jsem vám neřekla, že to a ono není dobré. Prostě jste to nedělali, protože se ve vás probudil Šrí Višnu. On je ve Voidu, a pokud je probuzen, přivede vás ke světlu, odstraní vaši nevědomost a temnotu a začnete vidět, že vše, co jste v minulosti dělali, bylo sebezničující, a takto se upevní vaše dharma. Samozřejmě, že dharma byla upevněna také všemi deseti guruy, kteří přišli na zem, a díky prorokům, kteří nás učili dharmě. Takže kombinace Šrí Višnua a deseti guruů je tu, aby se v nás upevnila dharma. Dharmu učili proroci, jak jste všude viděli. Říkali: "To nedělejte.

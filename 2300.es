@@ -1,3 +1,6 @@
+15 agosto 1993
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Krishna Puja. Cabella Ligure, Italia. 15 de agosto de 1993.
 
 Hoy nos hemos reunido aquí para celebrar el Shri Krishna Puja. Tenemos que entender claramente que Shri Krishna es una deidad muy importante dentro de nosotros, porque Él es Vishnu que reside en el Vacío, en el Nabhi. Es quién crea el dharma dentro de nosotros. Cuando recibisteis vuestra Realización, yo no os dije: "¡No hagáis esto, no hagáis lo otro!" Nunca os dije: "¡Esto no es bueno, eso no es bueno!" Simplemente lo hicisteis porque Shri Vishnu estaba despierto dentro de vosotros. Él está en el Vacío y cuando es despertado os lleva a la Luz, elimina vuestra ignorancia, elimina vuestra oscuridad y comenzáis a ver si lo que estabais haciendo era destructivo para vosotros. Así es cómo se establece el dharma. Por supuesto, el dharma fue establecido también por los diez gurus que vinieron a esta tierra, los profetas que nos hablaron del dharma. Esta combinación de Shri Vishnu y de los diez gurus establece el dharma en nuestro interior.

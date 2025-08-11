@@ -1,3 +1,6 @@
+6 stycznia 1986
+Mahalakshmi Pudźa
+Sangli (Indie)
 Shri Mahalakshmi Puja. Sangli (Indie), 6 stycznia 1986.
 
 Mieliśmy problem ze zorganizowaniem kuchni trochę bliżej miejsca, w którym się zatrzymaliście, skąd musieliście dużo chodzić. Ale myślę, że to spacerowanie było dla was całkiem przyjemne i na pewno musiało wam pomóc. Ono jest dobre w przypadku biegunki i przy innych problemach, które macie.

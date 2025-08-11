@@ -1,3 +1,6 @@
+23 september 1984
+Navaratri Puja
+Hampstead Town Hall Centre, Hampstead (England)
 Navaratri Puja - Hampstead UK - 23 september 1984
 
 Vandaag is het een grote dag voor ons allemaal want vandaag vieren we Navaratri en we ontmoeten elkaar allemaal weer nadat ik zolang op rondreis was. Toen ik in Italië zei dat Engeland het hart van het universum was, wilden ze dat niet aanvaarden. Ze waren door deze uitspraak erg geshockeerd. Ze konden niet geloven dat Engeland het hart van het universum kon zijn. Eén van de redenen was dat zij het gevoel hadden dat ... toen de Engelsen vroeger door de Romeinen werden overwonnen, de Romeinen toen ook voelden dat de Engelsen erg verwaande mensen waren. Ze accepteerden de nederlaag zelfs niet met het fatsoen van iemand die verloren heeft. Al hadden ze verloren, ze waren verwaand. Ze konden dus niet geloven hoe het mogelijk was dat Engeland het hart van het universum kon zijn. Als dit het hart is, wat is dan de toestand van het universum? En ze beschreven mij de verwaandheid van de Engelsen uitvoerig en dan besefte ik dat ik zelf zoiets had meegemaakt.

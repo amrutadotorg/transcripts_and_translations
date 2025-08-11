@@ -1,3 +1,6 @@
+23 июля 1983
+Talk to Sahaja Yogis
+Lodge Hill Centre, Pulborough (England)
 Примите свое положение, часть 2.
 
 23 июля 1983

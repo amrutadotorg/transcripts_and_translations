@@ -1,3 +1,6 @@
+31 sierpnia 1990
+Hanumana Pudźa
+Schwetzingen Palace, Schwetzingen (Niemcy)
 Shri Hanumana Puja. Frankfurt (Niemcy), 31 Sierpnia 1990.
 
 Możecie również usiąść tutaj, część z was, tak jest dobrze... Wydaje mi się, że możecie tu przyjść, tu jest miejsce. Niektórzy z was mogą się tu przesunąć, aby oni też mogli tu przyjść, to nie będzie problemem. Wy usiądźcie tu z przodu. Widzicie, teraz jest wam lepiej. Dobrze. Byłoby dobrze, gdybyście otworzyli te drzwi. W porządku, możecie otworzyć drzwi, jeśli chcecie. W porządku. Lepiej otwórzcie – nie można ich otworzyć? Nie otwierają się? O mój Boże! Potrzebujecie wysokiej osoby. Potrzebujecie Hanumany!

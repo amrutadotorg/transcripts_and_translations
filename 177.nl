@@ -1,4 +1,7 @@
-Shri Mataji Nirmala Devi
+10 januari 1988
+Makar Sankranti Puja
+Mumbai (India)
+ Shri Mataji Nirmala Devi
 
 Shri Surya Puja
 

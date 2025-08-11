@@ -1,3 +1,6 @@
+24 octubre 1993
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja. Cabella Ligure, Italia. 24 de octubre de 1993.
 
 Hoy nos hemos reunido aquí para hacer el puja a la Devi. La Devi tiene muchas formas, aunque es realmente la personificación de la Shakti. La Adi Shakti da la Shakti a todas estas encarnaciones y por ello hemos tenido muchas diosas que han venido a esta tierra en diferentes ocasiones. Hicieron todo lo que era necesario para el ascenso de los buscadores. Especialmente la que conocemos como Jagadamba, Durga; intentó proteger a todos los buscadores de la Verdad destruyendo todas las fuerzas negativas. Porque sin el ascenso de los seres humanos no es posible que ellos mismos lleguen a conocer la Verdad, por eso, cualquier cosa que los humanos intentan hacer, es una proyección mental, y cualquier proyección mental, si no está sustentada por la Verdad, por el Dharma, decae, muere. En Sánscrito lo llaman "Glani"(?), y cuando este "Glani" tiene lugar, es cuando las encarnaciones nacen en la tierra para resolver el problema.

@@ -1,3 +1,6 @@
+1 stycznia 1980
+Mowa do Sahadźa Joginów
+Londyn (Anglia)
 Medytacja bez wysiłku, Londyn 1980
 
 Wibracje przychodzą w taki sposób, że są one rozprzestrzeniane. Jedyne, co musicie zrobić to poddać się ich działaniu. Najlepiej jest nie wkładać w to żadnego wysiłku. Nie martwić się, w którym miejscu macie problem.

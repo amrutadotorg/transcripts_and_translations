@@ -1,3 +1,6 @@
+29 oktober 1981
+Talk to Sahaja Yogis
+Bramham Gardens, London (England)
 Praktische sessie met Sahaja Yogis, Ashram Bramham Court, Londen, Verenigd Koninkrijk, 29 oktober 1981
 
 Tekstfragment lezing

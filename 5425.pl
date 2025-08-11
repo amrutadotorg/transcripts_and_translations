@@ -1,3 +1,6 @@
+1 lutego 1977
+Mowa do Sahadźa Joginów
+Regent Park Street Ashram, Londyn (Anglia)
 Czakra Nabhi
 
 Wykład wygłoszony podczas pierwszej tury zachodnich yoginów po Indiach (styczeń-luty 1977). Dokładna lokalizacja nieznana.

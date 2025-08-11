@@ -1,3 +1,6 @@
+29 octubre 1989
+Diwali Puja
+Montecatini Terme (Italy)
 Diwali Puja. Montecatini Terme, Italia. 29 de octubre de 1989.
 
 Ayer lo pasamos muy buen juntos y realmente disfrutamos el Diwali. Creo que nunca había visto un océano de gozo que se alzaba en tal tempestad. Ayer alcanzamos el objetivo del Diwali Puja: sentir el gozo del Amor de Dios. La palabra Diwali viene de "Dipawali", que significa "filas de luces". Esta fecha se celebraba, en primer lugar, porque hace miles de años Shri Rama fue coronado en este día. Eso quiere decir que la benevolencia de los seres humanos fue coronada y aceptada. Y en la vida de Shri Rama veis el ideal de la personalidad de un rey, como el rey benévolo descrito por Sócrates.

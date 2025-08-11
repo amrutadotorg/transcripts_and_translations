@@ -1,3 +1,6 @@
+17 mayo 1980
+Talk to Sahaja Yogis
+Old Alresford Place, Alresford (England)
 ¿Qué es un Sahaja Yogi? Seminario, 17-05-1980, Inglaterra
 
 Debemos saber que Sahaja Yoga es un proceso vivo. Es el mismo tipo de proceso por el que una semilla germina en un árbol. Es un proceso vivo. Por tanto, es un trabajo de Dios. Él tiene que hacerlo. No es vuestro trabajo. Hacer germinar la semilla es su trabajo. Pero el problema surge porque, en este nivel donde el ser humano es la semilla, goza de libertad, ellos tienen libertad. Con esa libertad pueden estropear su manifestación, su obra. Así pues, lo primero que uno tiene que recordar es que debemos tener sabiduría sobre ello. El primer punto de la sabiduría es que es Dios Todopoderoso quien va a hacer ese trabajo.

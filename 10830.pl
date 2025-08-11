@@ -1,5 +1,5 @@
 6 maja 1995
-Program Wieczorny
+Evening Program Sahasrara Puja
 Kampus, Cabella Ligure (Włochy)
 
 Pani, która tańczyła przed nami, widziałam ją chyba ze dwa lata temu. Wtedy była bardzo nieśmiała i po prostu była tancerką.

@@ -1,3 +1,6 @@
+10 december 1979
+Publieke programma's
+Caxton Hall, London (England)
 Christmas And Its Relationship To Lord Jesus, Caxton Hall, LONDON (UK), 10 December 1979.
 
 ETVD2016-1221 Nl versie 2016-1221

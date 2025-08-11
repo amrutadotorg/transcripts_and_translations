@@ -1,3 +1,6 @@
+6 noviembre 1983
+Diwali Puja
+Temple of All Faiths, Hampstead (England)
 Diwali Puja, 6-11-1983, Inglaterra
 
 Con las vibraciones de hoy podéis ver cuánto conseguís cuando estáis preparados para un puja. Hoy podéis sentirlo. El Divino está ansioso por actuar, lo único que tenéis que hacer es prepararos. Y todos esos preparativos os van a ayudar enormemente. Puesto que ahora somos sahaja yoguis, tenemos que saber que nos hemos convertido en algo diferente de lo que éramos. Somos yoguis, somos personas más elevadas que los demás. Y como tales tenemos que comprender una cosa: que no somos como otros seres humanos que dicen una cosa y hacen otra, que pueden vivir con hipocresía. Esa es la razón por la que han aparecido los problemas en todas las religiones. Una persona que dice que es cristiano es completamente anti-Cristo; el que dice que es islámico es totalmente anti-Mahoma; el que dice que es hindú es completamente anti Shri Krishna. Esta es la razón principal por la que hasta ahora todas las religiones han fracasado, porque los seres humanos alardean de los ideales. Todos dicen que tenemos este ideal, ese ideal, pero no son estos ideales, no pueden vivir con estos ideales.

@@ -1,3 +1,6 @@
+30 августа 1992
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Шри Ганеша Пуджа.
 
 Кабелла (Италия), 30 августа 1992 года.

@@ -1,3 +1,6 @@
+15 maja 1982
+Program Publiczny
+Brighton Pavilion, Brighton (Anglia)
 Centralny Kanał, Program Publiczny, 15.05.1982 Brighton, UK
 
 Jestem pewna, że Phil wytłumaczył wam mechanizm naszej ewolucji.

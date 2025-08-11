@@ -1,3 +1,6 @@
+19 lipca 1992
+Guru Pudźa
+Kampus, Cabella Ligure (Włochy)
 Guru Puja, Siła Przyciągania, 19.07.1992, Cabella Ligure, Włochy
 
 Wczoraj zapytaliście Mnie o status guru. Jest to stan, nie jest to status, ponieważ status jest to coś zewnętrznego, co może być podarowane każdemu i każdy może powiedzieć: "To jest twój status". Za jakieś zewnętrzne zasługi, czy za coś podobnego możecie nadać człowiekowi status. To zaś jest stanem. Stanem, będącym wrodzoną istotą, ewoluującą do takiego poziomu, na którym stajecie się mistrzem. Oczywiście, najpierw powinniście być mistrzem dla samego siebie, co do tego nie ma wątpliwości. Jeśli nie jesteście mistrzem nawet dla samego siebie, to jak będziecie mogli osiągnąć ten stan?

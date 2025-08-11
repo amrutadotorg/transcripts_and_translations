@@ -1,3 +1,6 @@
+18 juni 1988
+Talk to Sahaja Yogis
+Shudy Camps Park, Shudy Camps (England)
 Shri Mataji Nirmala Devi
 
 Introspectie en meditatie

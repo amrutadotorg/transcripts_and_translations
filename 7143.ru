@@ -1,3 +1,6 @@
+24 апреля 1994
+Talk to Sahaja Yogis
+The Peninsula Hong Kong, Hong Kong (China)
 Внимание должно быть на коллективных вещах
 
 Отель Пенинсула, Гонконг

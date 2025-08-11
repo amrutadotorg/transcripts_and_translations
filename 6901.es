@@ -1,3 +1,6 @@
+27 octubre 1985
+Talk to Sahaja Yogis
+New Jersey (United States)
 Ego y sus consecuencias, charla a los Yoguis, New Jersey, EEUU, 27-10-1985
 
 Sobre la cultura Sahaja, bien. La cultura Sahaja, ya os he explicado qué es, y es en la cual debéis crecer. Entonces, anoche ¿Dónde está Judy? Está ahí, ven aquí, dejad que se sienten. Anoche os hablé sobre el ego. Sobre cómo se manifiesta el ego y lo difícil que es salir del ego. Es fácil deshacerse de los condicionamientos, del superego; pero es muy difícil salir del ego, porque el ego agrede a los demás pero no os hace daño a vosotros, por eso disfrutáis de esa agresión. Hoy quiero contaros cómo el ego, históricamente, tradicionalmente, ha mortificado a la gente. Así veréis cómo se manifiesta el ego, y sabréis que si actuáis con ego, si hacéis cualquier cosa con ego, podéis ser parte de esa fuerza destructiva. Para empezar, vamos a ver cuándo empezó el ego a crecer en el hombre. En primer lugar, comenzó a crecer con la protección de.... la pituitaria, que está dentro de nosotros.

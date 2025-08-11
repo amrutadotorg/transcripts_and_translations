@@ -1,3 +1,6 @@
+25 december 1995
+Christmas Puja
+Ganapatipule (India)
 Kerst Puja - Ganapatipule, Indië - 25 december 1995
 
 NlTVD 2019-0312

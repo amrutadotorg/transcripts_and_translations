@@ -1,3 +1,6 @@
+22 Αυγούστου 1982
+Ganesha Puja
+House of Charles and Magda Mathys, Troinex (Switzerland)
 Shri Ganesha Puja
 
 Είναι εδώ κανείς που να μπορεί να μεταφράσει; Κάποιος ώριμος.
