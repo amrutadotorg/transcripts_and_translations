@@ -1,3 +1,6 @@
+31 december 1985
+Evening Program Mahaganesha Puja
+Ganapatipule (India)
 Onschuld van een kind, Ganapatipule (India), 31 December 1985.
 
 Nederlandse vertaling versie datum 2023-0113

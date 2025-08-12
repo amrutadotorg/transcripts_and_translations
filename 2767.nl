@@ -1,3 +1,6 @@
+16 maart 1997
+Mahashivaratri Puja
+New Delhi (India)
 Shri Mataji Nirmala Devi
 
 Shivaratri Puja

@@ -1,3 +1,6 @@
+10 juli 1978
+Publieke programma's
+Caxton Hall, London (England)
 "Kundalini". Caxton Hall, London (UK), 10 July 1978.
 
 NLTVD 2022-0321

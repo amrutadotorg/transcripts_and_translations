@@ -1,3 +1,6 @@
+28 sierpnia 1973
+Kryszna Pudźa
+Bharatiya Vidya Bhavan, Mumbai (Indie)
 Shri Krishna Puja: Najbardziej Dynamiczna Moc Miłości, 28.08.1973, Bombaj, Indie
 
 ... przez Boga. Na przykład, jeśli znam tylko swoją głowę, to nie wystarcza. Jeśli znam tylko moją szyję, to nie wystarcza. Jeśli znam tylko moje nogi, to nie wystarcza. Ale im więcej wiem o sobie, tym bardziej dynamiczny się staję, tym bardziej ekspansywny się staję. I wszyscy wielcy, którzy istnieli - lub wszyscy ludzie, którzy nazwani byli wielkimi - są wielcy, ponieważ oni żyli w wielu istotach ludzkich.

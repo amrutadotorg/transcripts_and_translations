@@ -1,3 +1,6 @@
+15 agosto 1982
+Krishna Puja
+Chelsham Road Ashram, London (England)
 Shri Krishna Puja: "Yogeshwara". Chelsham Road Ashram, Londres, Reino Unido. 15 de agosto de 1982.
 
 Hoy es un gran día en el que debemos sentirnos llenos de júbilo porque el mismo Ser Primordial encarnó en esta tierra como Shri Krishna. En muchas de las charlas que os he dado se han descrito numerosos aspectos de su Ser; pero el más grande de todos los aspectos de este Ser Primordial es que fue Yogeshwara. Él fue el "Dios del Yoga", Yogeshwara, el Señor de nuestra unión con el Divino. Sin su permiso y sin su aprobación no podemos ser sahaja yoguis.

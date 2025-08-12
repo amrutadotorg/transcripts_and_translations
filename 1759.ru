@@ -1,3 +1,6 @@
+21 июня 1992
+Kundalini Puja
+Campus, Cabella Ligure (Italy)
 Кабелла, Италия 
 21 июня 1992
 

@@ -1,3 +1,7 @@
+11 сентября 1978
+The Principle Of Brahma
+Public Program
+Caxton Hall, London (England)
 Кэкстон Холл, Лондон, Англия
 
 11 сентября 1978.

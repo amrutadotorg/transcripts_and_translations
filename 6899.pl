@@ -1,3 +1,6 @@
+31 grudnia 1985
+Evening Program Mahaganesha Puja
+Ganapatipule (Indie)
 Mowa Do Yoginów, "Niewinność Dziecka", 31.12.1985 Ganapatipule. Indie
 
 Miałam specjalny cel w przybyciu do Ganapatipule, poza tym to miejsce było bardzo piękne i bardzo relaksujące dla was wszystkich.

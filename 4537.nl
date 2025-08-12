@@ -1,3 +1,6 @@
+27 januari 1977
+Talk to Sahaja Yogis
+Bordi (India)
 Bordi (India), 27 Januari 1977.
 
 Nederlandse vertaling versie datum 2024-0426

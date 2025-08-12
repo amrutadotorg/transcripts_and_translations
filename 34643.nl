@@ -1,3 +1,6 @@
+8 april 1978
+Publieke programma's
+Caxton Hall, London (England)
 HART CHAKRA – 1978
 
 Translation not verified. Dear yogi, register as volunteer to do so.

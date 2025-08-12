@@ -1,3 +1,6 @@
+25 diciembre 1993
+Christmas Puja
+Ganapatipule (India)
 Puja de Navidad. Ganapatipule, India. 25 de diciembre de 1993.
 
 Hoy vamos a celebrar el nacimiento de Cristo. Esto lo hacemos justamente en un tiempo muy importante, porque hay algunas personas "anticristo" que precisamente se hacen cargo de la religión cristiana, y hablan en contra del nacimiento de Cristo. No tienen autoridad. No son almas realizadas, no saben nada del Divino, nada, y dicen que todo es falso; que María no era una Virgen, y que Cristo no nació así (Inmaculada Concepción). ¿Quién se lo ha dicho a ellos? ¿Acaso vino Gabriel a decirles algo? ¿Qué derecho tienen a decir estas cosas?

@@ -1,3 +1,6 @@
+1 prosince 1980
+Veřejné Programy
+Caxton Hall, Londýn (Anglie)
 Veřejný program: Jste součástí Božské Bytosti, 1/12/1980, Caxton Hall, London (UK)
 
 Do mého domu byste se všichni nevešli, tak jsem si myslela, že je lepší přijít sem, tady jsme všichni!

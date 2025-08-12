@@ -1,3 +1,6 @@
+6 diciembre 1991
+Public Program
+Madras (India)
 1er. programa público en Madrás. India. 6 de diciembre de 1991.
 
 Me inclino ante todos los buscadores de la Verdad. Si somos verdaderos buscadores de la Verdad, tenemos que buscar con honestidad y sinceridad a fin de ser sinceros con nosotros mismos y así justificar nuestra existencia en este mundo. Hay multitud de sadhakas [devotos] que están todo el día haciendo algún rito, meditación, bhakti [oración] o lectura. Pero, debemos entender qué es lo que hemos logrado, en qué punto nos hallamos. Como madre, yo diría: "Hijo mío, has hecho mucho en tu búsqueda pero, ¿qué has encontrado? ¿Has obtenido la Realidad Suprema? ¿Has obtenido lo que se describe en las Escrituras?"

@@ -1,3 +1,6 @@
+16 juli 1995
+Guru Puja
+Campus, Cabella Ligure (Italy)
 Guru Puja "Sla je aandacht gade" Cabella, Italië 16/07/1995
 
 ETVD: Unknown Nl Vertaling: Unknown Versië: 2017-0512

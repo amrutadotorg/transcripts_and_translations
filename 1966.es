@@ -1,3 +1,6 @@
+10 noviembre 2007
+Diwali Puja
+Noida (India)
 Diwali Puja. Noida, India. 10 de noviembre de 2007.
 
 Feliz Diwali. Os deseo a todos un Diwali muy feliz. Habéis visto estos diferentes tipos de bailes; entended una cosa de ellos que, quienquiera que los haya escrito o explicado, todos dicen lo mismo. Lo más grande que dijeron fue que el Paramatma es Uno. Ellos han encarnado en diferentes formas, los avatares, pero el Paramatma es Uno.

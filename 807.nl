@@ -1,3 +1,6 @@
+20 februari 1977
+Talk to Sahaja Yogis
+New Delhi (India)
 New Delhi, 20 feb 1977
 
 Nederlandse vertaling versie datum 2022-0404

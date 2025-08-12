@@ -1,3 +1,6 @@
+21 junio 1992
+Kundalini Puja
+Campus, Cabella Ligure (Italy)
 Shri Kundalini Puja. Cabella Ligure, Italia. 21 de junio de 1992.
 
 Hoy nos hemos reunido aquí para adorar a la Adi Kundalini y a vuestra propia Kundalini, porque vuestra Kundalini es el reflejo de la Adi Kundalini. Sabemos mucho sobre la Kundalini, como al despertarse y ascender nos ha llevado al más alto estado de consciencia. No solo nos ha elevado en consciencia sino que además nos ha dado muchos poderes, y también nos ha permitido algo que nunca antes había acontecido en la historia de la espiritualidad: el poder despertar la Kundalini.

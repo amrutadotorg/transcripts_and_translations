@@ -1,3 +1,6 @@
+13 noviembre 1988
+Diwali Puja
+Shudy Camps Park, Shudy Camps (England)
 Diwali Puja, Shudy Camps, 1988-11-13
 
 Hoy estamos todos nosotros aquí, para celebrar el Diwali, que es Dipavali, que significa hileras de luces.

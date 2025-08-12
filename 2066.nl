@@ -1,3 +1,6 @@
+4 juli 1982
+Guru Puja
+Nirmala Palace – Nightingale Lane Ashram, London (England)
 Shri Mataji Nirmala Devi
 
 Shri Adi Guru Puja

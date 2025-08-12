@@ -1,3 +1,6 @@
+16 marzo 1997
+Mahashivaratri Puja
+New Delhi (India)
 Mahashivaratri Puja
 
 New Delhi 16/3/1997

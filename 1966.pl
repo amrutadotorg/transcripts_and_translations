@@ -1,3 +1,6 @@
+10 listopada 2007
+Diwali Pudźa
+Noida (Indie)
 Diwali. Noida (Indie), 10 Listopad 2007.
 
 Szczęśliwego Diwali, życzę wam wszystkim bardzo szczęśliwego Diwali.

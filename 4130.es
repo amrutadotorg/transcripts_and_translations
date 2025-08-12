@@ -1,3 +1,6 @@
+13 octubre 1991
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja. Cabella Ligure, Italia. 13 de octubre de 1991.
 
 Hoy nos hemos reunido aquí para celebrar el Navaratri Puja. En nueve ocasiones se han manifestado las principales encarnaciones de la Madre del Universo. Se manifestaron con un propósito. Este propósito era proteger a sus bhaktas, a sus discípulos, a sus niños. Este amor es imperativo, Ella no podía evitarlo. El amor de Madre es ineludible. No puede evitarlo y tiene que encarnar y trabajar para la protección de sus niños.

@@ -1,3 +1,6 @@
+13 oktober 1991
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Navaratri Puja

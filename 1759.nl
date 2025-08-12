@@ -1,3 +1,6 @@
+21 juni 1992
+Kundalini Puja
+Campus, Cabella Ligure (Italy)
 Shri Mataji Nirmala Devi
 
 Shri Adi Kundalini Puja

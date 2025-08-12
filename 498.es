@@ -1,3 +1,6 @@
+9 noviembre 2003
+Diwali Puja
+Holiday Inn, Ventura County (United States)
 Diwali Puja. Los Ángeles, Estados Unidos. 9 de noviembre de 2003.
 
 Hoy es el gran día del Diwali. Eso significa que hoy es el gran día, las luces de vuestros corazones, todas juntas, hacen una luz mayor para que el mundo se mueva en la dirección adecuada. Hoy es un día de mucha alegría, y aquellos que se unen a este evento también desprenden mucho gozo. Pero como la gente dice, los problemas están ahí. Sin embargo, para vosotros no hay problemas porque no existe la oscuridad. No vemos ninguna oscuridad por ninguna parte, sino solo luces y más luces.

@@ -1,3 +1,6 @@
+24 diciembre 1993
+Evening Program Christmas Puja
+Ganapatipule (India)
 India Tour: Charla sobre los matrimonios. Ganapatipule, India. 24 de diciembre de 1993.
 
 Estoy muy contenta de ver saber que esta mañana la meditación se ha hecho muy bien colectivamente. Mi atención estaba allí en vosotros. Ahora vamos a anunciar los matrimonios que quedan para hoy. Antes de esto, tengo que decir lo mismo que he dicho muchas veces, que no hay obligación para nadie, en absoluto, de casarse con la persona particular que hemos sugerido. Si queréis, podéis decir que no, completamente, o podéis decir: "Madre, cámbialo". Lo que sea que digáis, intentaremos hacerlo. Tenemos grandes problemas con la altura, educación, cultura, y algunos dicen: "No queremos casarnos con indios", o "no queremos casarnos con un extranjero", cosas así.

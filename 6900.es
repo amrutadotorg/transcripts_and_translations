@@ -1,3 +1,6 @@
+17 diciembre 1985
+Devi Puja
+Dr Sanghvi’s House, Nashik (India)
 Puja: La pureza dentro de uno, Nasik, India 17-12-1985
 
 Este lugar, Nasik, tiene un significado especial, porque hace mucho tiempo, alrededor de unos ocho mil años, cuando Shri Rama se iba a su exilio, vino a Maharashtra, pasó por varios lugares y se asentó en Nasik, en este lugar, con su esposa.

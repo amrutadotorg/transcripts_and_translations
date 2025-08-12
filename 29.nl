@@ -1,3 +1,6 @@
+18 november 2001
+Diwali Puja
+Lake Piru, Ventura County (United States)
 Diwali Puja - Strijder van de goddelijke kracht - Los Angeles, USA 18/11/2001
 
 Vandaag is het een heel, heel belangrijke dag waarop, zou ik zeggen, het kwaad werd bedwongen... (applaus)

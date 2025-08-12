@@ -1,3 +1,6 @@
+4 lipca 1982
+Guru Pudźa
+Nirmala Palace - Nightingale Lane Ashram, Londyn (Anglia)
 Shri Adi Guru Puja, "Ustanowienie Zasady guru". Nightingale Lane, Londyn (UK), 4 Luglio 1982.
 
 Kto będzie tłumaczył? Może weźmiesz jeden z tych, Gregoire?

@@ -1,3 +1,6 @@
+25 december 2002
+Christmas Puja
+Ganapatipule (India)
 Kerstpuja, 2002-1225 Ganapatepule
 
 NlTVD 2022-0321

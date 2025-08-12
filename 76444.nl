@@ -1,3 +1,7 @@
+11 september 1978
+The Principle Of Brahma
+Publieke programma's
+Caxton Hall, London (England)
 Nederlandse vertaling versie datum 2023-0305
 
 Het principe van Brahma

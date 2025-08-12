@@ -1,3 +1,7 @@
+21 maart 1970
+Birthday Puja
+Mumbai (India)
+
 HH Shri Mataji, Birthday Puja Public Program, Mumbai, India
 
 [Yoginis singing a welcome song ends 6’55”]

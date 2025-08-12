@@ -1,3 +1,6 @@
+10 november 2007
+Diwali Puja
+Noida (India)
 Shri Mataji Nirmala Devi
 
 Diwali Puja

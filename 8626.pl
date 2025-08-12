@@ -1,3 +1,6 @@
+24 grudnia 1993
+Evening Program Christmas Puja
+Ganapatipule (Indie)
 Małżeństwo w Sahaja Yodze to nie żart (Wykład o małżeństwach – po programie muzycznym) 1993.12.24 Ganapatipule, India Tour
 
 Bardzo się ucieszyłam, gdy dowiedziałam się, że dziś rano medytacja była przeprowadzona bardzo dobrze, kolektywnie.
