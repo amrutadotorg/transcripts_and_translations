@@ -1760,6 +1760,10 @@
         "transcript-english-not-needed"
     ],
     [
+        71419,
+        "transcript-english-not-needed"
+    ],
+    [
         71421,
         "transcript-english-not-needed"
     ],
@@ -3381,10 +3385,6 @@
     ],
     [
         80076,
-        "transcript-english-reviewed"
-    ],
-    [
-        81238,
         "transcript-english-reviewed"
     ],
     [
@@ -12172,7 +12172,7 @@
         "transcript-english-draft"
     ],
     [
-        81237,
+        81240,
         "transcript-english-draft"
     ],
     [
@@ -20434,5 +20434,9 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        81239,
+        "translation-hindi-to-english-draft-tr"
     ]
 ]
