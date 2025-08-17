@@ -12172,10 +12172,6 @@
         "transcript-english-draft"
     ],
     [
-        81240,
-        "transcript-english-draft"
-    ],
-    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -15176,10 +15172,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        4559,
-        "translation-hindi-to-english-draft"
-    ],
-    [
         4562,
         "translation-hindi-to-english-draft"
     ],
@@ -15990,6 +15982,10 @@
     [
         80336,
         "translation-hindi-to-english-draft"
+    ],
+    [
+        4559,
+        "translation-hindi-to-english-in-progress"
     ],
     [
         5557,
@@ -20434,9 +20430,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        81239,
-        "translation-hindi-to-english-draft-tr"
     ]
 ]
