@@ -1,6 +1,6 @@
 22 maart 1977
 Talk to Sahaja Yogis
-Mumbai (India) | Translation (Marathi to English) – NEEDED
+Mumbai (India)
 
 Advies aan de yogi’s in Mumbai in de vorm van vragen en antwoorden, Mumbai, India
 
