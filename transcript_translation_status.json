@@ -6496,6 +6496,14 @@
         "transcript-english-verified"
     ],
     [
+        81259,
+        "transcript-english-verified"
+    ],
+    [
+        81260,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -12204,10 +12212,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        12164,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         12290,
         "transcript-hindi-draft-hi"
     ],
@@ -13025,6 +13029,10 @@
     ],
     [
         12131,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
+        12164,
         "transcript-hindi-reviewed-hi"
     ],
     [
@@ -15989,6 +15997,10 @@
     ],
     [
         5557,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
+        7461,
         "translation-hindi-to-english-in-progress"
     ],
     [
@@ -20172,6 +20184,14 @@
         "translation-english-to-chinese-simplified-verified"
     ],
     [
+        14886,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        34607,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
         36011,
         "translation-english-to-chinese-simplified-verified"
     ],
@@ -20237,6 +20257,14 @@
     ],
     [
         81165,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        81259,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        81260,
         "translation-english-to-chinese-simplified-verified"
     ],
     [

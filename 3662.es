@@ -1,3 +1,6 @@
+15 septiembre 1991
+Ganesha Puja
+Campus, Cabella Ligure (Italy)
 Shri Ganesha Puja. Cabella Ligure, Italia. 15 de septiembre de 1991.
 
 Hoy es el día más feliz para todos vosotros y para todo el Universo porque Shri Ganesha fue creado. Él fue creado para emitir auspiciosidad a través de su Chaitanya. Primero todo el Cosmos se llenó con este flujo de Chaitanya. Después Brahmadeva entró en juego y creo toda la materia. Pero la mayor bendición del Poder divino fue simbolizar este Chaitanya, el cual tiene muchos aspectos aunque en Shri Ganesha es, especialmente auspiciosidad.
