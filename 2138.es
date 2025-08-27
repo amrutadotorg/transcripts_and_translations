@@ -1,3 +1,6 @@
+20 agosto 1995
+Krishna Puja
+Campus, Cabella Ligure (Italy)
 Shri Krishna Puja
 
 Cabella, 20. 8. 1995
