@@ -6488,7 +6488,7 @@
         "transcript-english-verified"
     ],
     [
-        81290,
+        81295,
         "transcript-english-verified"
     ],
     [
@@ -12180,10 +12180,6 @@
         "transcript-english-draft"
     ],
     [
-        81289,
-        "transcript-english-draft"
-    ],
-    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13164,10 +13160,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        12994,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         12996,
         "transcript-hindi-needed-hi"
     ],
@@ -13693,6 +13685,10 @@
     ],
     [
         12689,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        12994,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -16001,6 +15997,10 @@
     ],
     [
         7461,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
+        8449,
         "translation-hindi-to-english-in-progress"
     ],
     [
