@@ -2432,6 +2432,10 @@
         "transcript-english-reviewed"
     ],
     [
+        2271,
+        "transcript-english-reviewed"
+    ],
+    [
         2335,
         "transcript-english-reviewed"
     ],
@@ -2473,6 +2477,10 @@
     ],
     [
         3648,
+        "transcript-english-reviewed"
+    ],
+    [
+        3662,
         "transcript-english-reviewed"
     ],
     [
@@ -6488,10 +6496,6 @@
         "transcript-english-verified"
     ],
     [
-        81295,
-        "transcript-english-verified"
-    ],
-    [
         5,
         "transcript-english-draft"
     ],
@@ -6828,10 +6832,6 @@
         "transcript-english-draft"
     ],
     [
-        2271,
-        "transcript-english-draft"
-    ],
-    [
         2295,
         "transcript-english-draft"
     ],
@@ -6877,10 +6877,6 @@
     ],
     [
         2865,
-        "transcript-english-draft"
-    ],
-    [
-        3662,
         "transcript-english-draft"
     ],
     [
@@ -12640,10 +12636,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        19391,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         19392,
         "transcript-hindi-draft-hi"
     ],
@@ -13014,6 +13006,10 @@
     [
         38474,
         "transcript-hindi-verified-hi"
+    ],
+    [
+        10895,
+        "transcript-hindi-reviewed-hi"
     ],
     [
         11819,
@@ -13808,10 +13804,6 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
-        10895,
-        "transcript-hindi-reviewing"
-    ],
-    [
         12586,
         "transcript-hindi-reviewing"
     ],
@@ -13841,6 +13833,10 @@
     ],
     [
         19383,
+        "transcript-hindi-reviewing"
+    ],
+    [
+        19391,
         "transcript-hindi-reviewing"
     ],
     [
@@ -14504,10 +14500,6 @@
         "transcript-marathi-in-progress-mr"
     ],
     [
-        80342,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
         12160,
         "transcript-marathi-draft-mr"
     ],
@@ -15049,6 +15041,10 @@
     ],
     [
         79888,
+        "transcript-marathi-draft-mr"
+    ],
+    [
+        80342,
         "transcript-marathi-draft-mr"
     ],
     [
@@ -20296,11 +20292,19 @@
         "translation-english-to-italian-reviewed"
     ],
     [
+        1369,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         2173,
         "translation-english-to-italian-reviewed"
     ],
     [
         2179,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
+        2274,
         "translation-english-to-italian-reviewed"
     ],
     [
