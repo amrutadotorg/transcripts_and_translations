@@ -1,3 +1,6 @@
+16 november 1980
+Talk to Sahaja Yogis
+Plaw Hatch Hall, East Grinstead (England)
 Toespraak tot Sahaja yogi’s - Het nieuwe tijdperk - Plaw Hatch, UK - 16/11/1980
 
 Translation not verified. Dear yogi, register as volunteer to do so.
