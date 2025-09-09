@@ -28,6 +28,10 @@
         "transcript-english-in-progress"
     ],
     [
+        71619,
+        "transcript-english-in-progress"
+    ],
+    [
         72437,
         "transcript-english-in-progress"
     ],
@@ -37,10 +41,6 @@
     ],
     [
         73177,
-        "transcript-english-in-progress"
-    ],
-    [
-        77204,
         "transcript-english-in-progress"
     ],
     [
@@ -3996,10 +3996,6 @@
         "transcript-english-needed"
     ],
     [
-        77204,
-        "transcript-english-needed"
-    ],
-    [
         77213,
         "transcript-english-needed"
     ],
@@ -4097,6 +4093,10 @@
     ],
     [
         80376,
+        "transcript-english-needed"
+    ],
+    [
+        81323,
         "transcript-english-needed"
     ],
     [
@@ -6504,7 +6504,11 @@
         "transcript-english-verified"
     ],
     [
-        81317,
+        81324,
+        "transcript-english-verified"
+    ],
+    [
+        81331,
         "transcript-english-verified"
     ],
     [
@@ -12100,6 +12104,10 @@
         "transcript-english-draft"
     ],
     [
+        77204,
+        "transcript-english-draft"
+    ],
+    [
         77318,
         "transcript-english-draft"
     ],
@@ -13060,6 +13068,10 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
+        13657,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
         18481,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13821,10 +13833,6 @@
     ],
     [
         12983,
-        "transcript-hindi-reviewing"
-    ],
-    [
-        13657,
         "transcript-hindi-reviewing"
     ],
     [
@@ -17992,6 +18000,10 @@
         "translation-marathi-to-english-needed"
     ],
     [
+        81323,
+        "translation-marathi-to-english-needed"
+    ],
+    [
         3797,
         "translation-marathi-to-english-reviewed"
     ],
@@ -20157,10 +20169,6 @@
     ],
     [
         21389,
-        "translation-english-to-bulgarian-verified"
-    ],
-    [
-        72683,
         "translation-english-to-bulgarian-verified"
     ],
     [
