@@ -6348,6 +6348,10 @@
         "transcript-english-verified"
     ],
     [
+        25693,
+        "transcript-english-verified"
+    ],
+    [
         25696,
         "transcript-english-verified"
     ],
@@ -6504,11 +6508,7 @@
         "transcript-english-verified"
     ],
     [
-        81324,
-        "transcript-english-verified"
-    ],
-    [
-        81331,
+        81344,
         "transcript-english-verified"
     ],
     [
@@ -11124,10 +11124,6 @@
         "transcript-english-draft"
     ],
     [
-        25693,
-        "transcript-english-draft"
-    ],
-    [
         25704,
         "transcript-english-draft"
     ],
@@ -12192,6 +12188,10 @@
         "transcript-english-draft"
     ],
     [
+        81343,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -12561,6 +12561,10 @@
     ],
     [
         19274,
+        "transcript-hindi-draft-hi"
+    ],
+    [
+        19276,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -13296,10 +13300,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        19276,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         19281,
         "transcript-hindi-needed-hi"
     ],
@@ -13568,10 +13568,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        20361,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         20414,
         "transcript-hindi-needed-hi"
     ],
@@ -13757,6 +13753,10 @@
     ],
     [
         20193,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
+        20361,
         "transcript-hindi-in-progress-hi"
     ],
     [
@@ -15596,6 +15596,10 @@
         "translation-hindi-to-english-draft"
     ],
     [
+        10936,
+        "translation-hindi-to-english-draft"
+    ],
+    [
         10938,
         "translation-hindi-to-english-draft"
     ],
@@ -16036,6 +16040,10 @@
         "translation-hindi-to-english-in-progress"
     ],
     [
+        20360,
+        "translation-hindi-to-english-in-progress"
+    ],
+    [
         62127,
         "translation-hindi-to-english-in-progress"
     ],
@@ -16161,10 +16169,6 @@
     ],
     [
         10862,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        10936,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -16297,10 +16301,6 @@
     ],
     [
         20350,
-        "translation-hindi-to-english-needed"
-    ],
-    [
-        20360,
         "translation-hindi-to-english-needed"
     ],
     [
@@ -20301,10 +20301,6 @@
     ],
     [
         125,
-        "translation-english-to-italian-reviewed"
-    ],
-    [
-        416,
         "translation-english-to-italian-reviewed"
     ],
     [
