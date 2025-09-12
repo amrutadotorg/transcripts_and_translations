@@ -1,3 +1,6 @@
+24 oktober 1993
+Navaratri Puja
+Campus, Cabella Ligure (Italy)
 Navaratri Puja - Doe aan introspectie, Materialisme - Cabella, Italië - 24/10/1993
 
 Translation not verified. Dear yogi, register as volunteer to do so.
