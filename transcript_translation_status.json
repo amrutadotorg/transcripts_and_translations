@@ -6504,7 +6504,7 @@
         "transcript-english-verified"
     ],
     [
-        81355,
+        81365,
         "transcript-english-verified"
     ],
     [
@@ -12508,10 +12508,6 @@
         "transcript-hindi-draft-hi"
     ],
     [
-        19232,
-        "transcript-hindi-draft-hi"
-    ],
-    [
         19233,
         "transcript-hindi-draft-hi"
     ],
@@ -13837,6 +13833,10 @@
     ],
     [
         14063,
+        "transcript-hindi-reviewing"
+    ],
+    [
+        19232,
         "transcript-hindi-reviewing"
     ],
     [
@@ -20486,9 +20486,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        81350,
-        "translation-hindi-to-english-in-progress-hi"
     ]
 ]
