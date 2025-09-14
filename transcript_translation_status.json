@@ -6504,10 +6504,6 @@
         "transcript-english-verified"
     ],
     [
-        81365,
-        "transcript-english-verified"
-    ],
-    [
         5,
         "transcript-english-draft"
     ],
@@ -14496,10 +14492,6 @@
         "transcript-marathi-in-progress-mr"
     ],
     [
-        72876,
-        "transcript-marathi-in-progress-mr"
-    ],
-    [
         77069,
         "transcript-marathi-in-progress-mr"
     ],
@@ -15053,6 +15045,10 @@
     ],
     [
         66975,
+        "transcript-marathi-draft-mr"
+    ],
+    [
+        72876,
         "transcript-marathi-draft-mr"
     ],
     [
@@ -17164,6 +17160,10 @@
         "translation-marathi-to-english-draft"
     ],
     [
+        72875,
+        "translation-marathi-to-english-draft"
+    ],
+    [
         78043,
         "translation-marathi-to-english-draft"
     ],
@@ -17189,10 +17189,6 @@
     ],
     [
         12489,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        72875,
         "translation-marathi-to-english-in-progress"
     ],
     [
