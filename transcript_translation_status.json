@@ -44,6 +44,10 @@
         "transcript-english-in-progress"
     ],
     [
+        79724,
+        "transcript-english-in-progress"
+    ],
+    [
         80301,
         "transcript-english-in-progress"
     ],
@@ -4065,10 +4069,6 @@
     ],
     [
         79658,
-        "transcript-english-needed"
-    ],
-    [
-        79724,
         "transcript-english-needed"
     ],
     [
@@ -12184,6 +12184,10 @@
         "transcript-english-draft"
     ],
     [
+        81400,
+        "transcript-english-draft"
+    ],
+    [
         10455,
         "transcript-hindi-draft-hi"
     ],
@@ -13048,6 +13052,10 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
+        12586,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
         12958,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13814,10 +13822,6 @@
     [
         81350,
         "transcript-hindi-in-progress-hi"
-    ],
-    [
-        12586,
-        "transcript-hindi-reviewing"
     ],
     [
         12966,
@@ -15768,10 +15772,6 @@
         "translation-hindi-to-english-draft"
     ],
     [
-        12493,
-        "translation-hindi-to-english-draft"
-    ],
-    [
         12522,
         "translation-hindi-to-english-draft"
     ],
@@ -16648,6 +16648,10 @@
         "translation-hindi-to-english-reviewed"
     ],
     [
+        12493,
+        "translation-hindi-to-english-reviewed"
+    ],
+    [
         12525,
         "translation-hindi-to-english-reviewed"
     ],
@@ -17112,6 +17116,10 @@
         "translation-marathi-to-english-draft"
     ],
     [
+        12489,
+        "translation-marathi-to-english-draft"
+    ],
+    [
         12557,
         "translation-marathi-to-english-draft"
     ],
@@ -17185,10 +17193,6 @@
     ],
     [
         8466,
-        "translation-marathi-to-english-in-progress"
-    ],
-    [
-        12489,
         "translation-marathi-to-english-in-progress"
     ],
     [
@@ -20332,6 +20336,10 @@
         "translation-english-to-italian-reviewed"
     ],
     [
+        81400,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         31,
         "translation-english-to-italian-verified"
     ],
@@ -20482,5 +20490,9 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        81400,
+        "translation-hindi-to-english-draft-it"
     ]
 ]
