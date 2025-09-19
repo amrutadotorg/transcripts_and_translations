@@ -24,10 +24,6 @@
         "transcript-english-in-progress"
     ],
     [
-        71619,
-        "transcript-english-in-progress"
-    ],
-    [
         72437,
         "transcript-english-in-progress"
     ],
@@ -3956,10 +3952,6 @@
         "transcript-english-needed"
     ],
     [
-        71619,
-        "transcript-english-needed"
-    ],
-    [
         71623,
         "transcript-english-needed"
     ],
@@ -6501,10 +6493,6 @@
     ],
     [
         76444,
-        "transcript-english-verified"
-    ],
-    [
-        81406,
         "transcript-english-verified"
     ],
     [
@@ -12052,6 +12040,10 @@
         "transcript-english-draft"
     ],
     [
+        71619,
+        "transcript-english-draft"
+    ],
+    [
         71850,
         "transcript-english-draft"
     ],
@@ -13144,6 +13136,10 @@
         "transcript-hindi-reviewed-hi"
     ],
     [
+        19391,
+        "transcript-hindi-reviewed-hi"
+    ],
+    [
         19400,
         "transcript-hindi-reviewed-hi"
     ],
@@ -13608,10 +13604,6 @@
         "transcript-hindi-needed-hi"
     ],
     [
-        37656,
-        "transcript-hindi-needed-hi"
-    ],
-    [
         41753,
         "transcript-hindi-needed-hi"
     ],
@@ -13772,6 +13764,10 @@
         "transcript-hindi-in-progress-hi"
     ],
     [
+        37656,
+        "transcript-hindi-in-progress-hi"
+    ],
+    [
         38045,
         "transcript-hindi-in-progress-hi"
     ],
@@ -13849,10 +13845,6 @@
     ],
     [
         19383,
-        "transcript-hindi-reviewing"
-    ],
-    [
-        19391,
         "transcript-hindi-reviewing"
     ],
     [
@@ -16184,6 +16176,10 @@
         "translation-hindi-to-english-needed"
     ],
     [
+        10997,
+        "translation-hindi-to-english-needed"
+    ],
+    [
         11007,
         "translation-hindi-to-english-needed"
     ],
@@ -17433,10 +17429,6 @@
     ],
     [
         10933,
-        "translation-marathi-to-english-needed"
-    ],
-    [
-        10997,
         "translation-marathi-to-english-needed"
     ],
     [
