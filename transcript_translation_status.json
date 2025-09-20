@@ -2624,6 +2624,10 @@
         "transcript-english-reviewed"
     ],
     [
+        5762,
+        "transcript-english-reviewed"
+    ],
+    [
         5769,
         "transcript-english-reviewed"
     ],
@@ -3409,6 +3413,14 @@
     ],
     [
         80076,
+        "transcript-english-reviewed"
+    ],
+    [
+        81414,
+        "transcript-english-reviewed"
+    ],
+    [
+        81415,
         "transcript-english-reviewed"
     ],
     [
@@ -6496,6 +6508,14 @@
         "transcript-english-verified"
     ],
     [
+        81420,
+        "transcript-english-verified"
+    ],
+    [
+        81423,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -7169,10 +7189,6 @@
     ],
     [
         5759,
-        "transcript-english-draft"
-    ],
-    [
-        5762,
         "transcript-english-draft"
     ],
     [
@@ -20269,6 +20285,10 @@
     ],
     [
         81260,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
+        81415,
         "translation-english-to-chinese-simplified-verified"
     ],
     [
