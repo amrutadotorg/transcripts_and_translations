@@ -24,6 +24,10 @@
         "transcript-english-in-progress"
     ],
     [
+        77494,
+        "transcript-english-in-progress"
+    ],
+    [
         79724,
         "transcript-english-in-progress"
     ],
@@ -4036,10 +4040,6 @@
         "transcript-english-needed"
     ],
     [
-        77494,
-        "transcript-english-needed"
-    ],
-    [
         77498,
         "transcript-english-needed"
     ],
@@ -6436,6 +6436,10 @@
         "transcript-english-verified"
     ],
     [
+        56444,
+        "transcript-english-verified"
+    ],
+    [
         61222,
         "transcript-english-verified"
     ],
@@ -6493,6 +6497,10 @@
     ],
     [
         76444,
+        "transcript-english-verified"
+    ],
+    [
+        81699,
         "transcript-english-verified"
     ],
     [
@@ -11552,10 +11560,6 @@
         "transcript-english-draft"
     ],
     [
-        56444,
-        "transcript-english-draft"
-    ],
-    [
         56447,
         "transcript-english-draft"
     ],
@@ -12441,10 +12445,6 @@
     ],
     [
         18505,
-        "transcript-hindi-draft-hi"
-    ],
-    [
-        18512,
         "transcript-hindi-draft-hi"
     ],
     [
@@ -13840,6 +13840,10 @@
         "transcript-hindi-reviewing"
     ],
     [
+        18512,
+        "transcript-hindi-reviewing"
+    ],
+    [
         19260,
         "transcript-hindi-reviewing"
     ],
@@ -14421,6 +14425,10 @@
     ],
     [
         81691,
+        "transcript-marathi-needed-mr"
+    ],
+    [
+        81699,
         "transcript-marathi-needed-mr"
     ],
     [
@@ -17676,6 +17684,10 @@
         "translation-marathi-to-english-needed"
     ],
     [
+        56444,
+        "translation-marathi-to-english-needed"
+    ],
+    [
         56447,
         "translation-marathi-to-english-needed"
     ],
@@ -18181,10 +18193,6 @@
     ],
     [
         41852,
-        "translation-marathi-to-english-verified"
-    ],
-    [
-        56444,
         "translation-marathi-to-english-verified"
     ],
     [
@@ -20514,5 +20522,9 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
+    ],
+    [
+        81699,
+        "translation-marathi-to-english-needed"
     ]
 ]
