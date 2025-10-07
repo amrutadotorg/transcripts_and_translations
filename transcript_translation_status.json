@@ -40,6 +40,10 @@
         "transcript-english-in-progress"
     ],
     [
+        80324,
+        "transcript-english-in-progress"
+    ],
+    [
         4514,
         "transcript-english-not-needed"
     ],
@@ -2572,6 +2576,10 @@
         "transcript-english-reviewed"
     ],
     [
+        4686,
+        "transcript-english-reviewed"
+    ],
+    [
         4700,
         "transcript-english-reviewed"
     ],
@@ -4076,10 +4084,6 @@
         "transcript-english-needed"
     ],
     [
-        80324,
-        "transcript-english-needed"
-    ],
-    [
         80330,
         "transcript-english-needed"
     ],
@@ -4089,6 +4093,10 @@
     ],
     [
         81435,
+        "transcript-english-needed"
+    ],
+    [
+        81700,
         "transcript-english-needed"
     ],
     [
@@ -6500,10 +6508,6 @@
         "transcript-english-verified"
     ],
     [
-        81699,
-        "transcript-english-verified"
-    ],
-    [
         5,
         "transcript-english-draft"
     ],
@@ -7057,10 +7061,6 @@
     ],
     [
         4681,
-        "transcript-english-draft"
-    ],
-    [
-        4686,
         "transcript-english-draft"
     ],
     [
@@ -20522,9 +20522,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        81699,
-        "translation-marathi-to-english-needed"
     ]
 ]
