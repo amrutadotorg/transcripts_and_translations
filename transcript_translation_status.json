@@ -12,11 +12,11 @@
         "transcript-english-in-progress"
     ],
     [
-        72904,
+        68204,
         "transcript-english-in-progress"
     ],
     [
-        73177,
+        72904,
         "transcript-english-in-progress"
     ],
     [
@@ -2296,6 +2296,10 @@
         "transcript-english-not-needed"
     ],
     [
+        81704,
+        "transcript-english-not-needed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -3940,10 +3944,6 @@
         "transcript-english-needed"
     ],
     [
-        68204,
-        "transcript-english-needed"
-    ],
-    [
         71502,
         "transcript-english-needed"
     ],
@@ -4093,10 +4093,6 @@
     ],
     [
         81435,
-        "transcript-english-needed"
-    ],
-    [
-        81700,
         "transcript-english-needed"
     ],
     [
@@ -12081,6 +12077,10 @@
     ],
     [
         73175,
+        "transcript-english-draft"
+    ],
+    [
+        73177,
         "transcript-english-draft"
     ],
     [
