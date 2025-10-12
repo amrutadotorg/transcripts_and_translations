@@ -3220,10 +3220,6 @@
         "transcript-english-reviewed"
     ],
     [
-        20171,
-        "transcript-english-reviewed"
-    ],
-    [
         20333,
         "transcript-english-reviewed"
     ],
@@ -10884,6 +10880,10 @@
         "transcript-english-draft"
     ],
     [
+        20171,
+        "transcript-english-draft"
+    ],
+    [
         20182,
         "transcript-english-draft"
     ],
@@ -12189,10 +12189,6 @@
     ],
     [
         80607,
-        "transcript-english-draft"
-    ],
-    [
-        81720,
         "transcript-english-draft"
     ],
     [
@@ -20530,9 +20526,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        81720,
-        "translation-hindi-to-english-draft"
     ]
 ]
