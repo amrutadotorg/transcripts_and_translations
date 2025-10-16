@@ -4,6 +4,10 @@
         "transcript-english-in-progress"
     ],
     [
+        61988,
+        "transcript-english-in-progress"
+    ],
+    [
         62074,
         "transcript-english-in-progress"
     ],
@@ -2292,11 +2296,35 @@
         "transcript-english-not-needed"
     ],
     [
+        81682,
+        "transcript-english-not-needed"
+    ],
+    [
         81684,
         "transcript-english-not-needed"
     ],
     [
-        81704,
+        81709,
+        "transcript-english-not-needed"
+    ],
+    [
+        81732,
+        "transcript-english-not-needed"
+    ],
+    [
+        81733,
+        "transcript-english-not-needed"
+    ],
+    [
+        81735,
+        "transcript-english-not-needed"
+    ],
+    [
+        81736,
+        "transcript-english-not-needed"
+    ],
+    [
+        81737,
         "transcript-english-not-needed"
     ],
     [
@@ -3420,10 +3448,6 @@
         "transcript-english-reviewed"
     ],
     [
-        81728,
-        "transcript-english-reviewed"
-    ],
-    [
         4486,
         "transcript-english-needed"
     ],
@@ -3741,10 +3765,6 @@
     ],
     [
         61977,
-        "transcript-english-needed"
-    ],
-    [
-        61988,
         "transcript-english-needed"
     ],
     [
@@ -11724,6 +11744,10 @@
         "transcript-english-draft"
     ],
     [
+        61988,
+        "transcript-english-draft"
+    ],
+    [
         62040,
         "transcript-english-draft"
     ],
@@ -14368,10 +14392,6 @@
         "transcript-marathi-needed-mr"
     ],
     [
-        61989,
-        "transcript-marathi-needed-mr"
-    ],
-    [
         61992,
         "transcript-marathi-needed-mr"
     ],
@@ -14521,6 +14541,10 @@
     ],
     [
         61926,
+        "transcript-marathi-in-progress-mr"
+    ],
+    [
+        61989,
         "transcript-marathi-in-progress-mr"
     ],
     [
@@ -15061,6 +15085,10 @@
     ],
     [
         61921,
+        "transcript-marathi-draft-mr"
+    ],
+    [
+        61989,
         "transcript-marathi-draft-mr"
     ],
     [
@@ -17260,6 +17288,10 @@
         "translation-marathi-to-english-in-progress"
     ],
     [
+        61988,
+        "translation-marathi-to-english-in-progress"
+    ],
+    [
         79887,
         "translation-marathi-to-english-in-progress"
     ],
@@ -17537,6 +17569,10 @@
     ],
     [
         12533,
+        "translation-marathi-to-english-needed"
+    ],
+    [
+        12914,
         "translation-marathi-to-english-needed"
     ],
     [
@@ -18237,6 +18273,10 @@
     ],
     [
         50451,
+        "translation-english-to-marathi-in-progress"
+    ],
+    [
+        61989,
         "translation-english-to-marathi-in-progress"
     ],
     [
@@ -20558,13 +20598,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        68202,
-        "translation-marathi-to-english-needed"
-    ],
-    [
-        81730,
-        "translation-marathi-to-english-needed"
     ]
 ]
