@@ -2368,6 +2368,10 @@
         "transcript-english-not-needed"
     ],
     [
+        54,
+        "transcript-english-reviewed"
+    ],
+    [
         121,
         "transcript-english-reviewed"
     ],
@@ -6580,6 +6584,10 @@
         "transcript-english-verified"
     ],
     [
+        81786,
+        "transcript-english-verified"
+    ],
+    [
         5,
         "transcript-english-draft"
     ],
@@ -6593,10 +6601,6 @@
     ],
     [
         47,
-        "transcript-english-draft"
-    ],
-    [
-        54,
         "transcript-english-draft"
     ],
     [
@@ -20476,6 +20480,10 @@
         "translation-english-to-chinese-simplified-verified"
     ],
     [
+        81786,
+        "translation-english-to-chinese-simplified-verified"
+    ],
+    [
         80430,
         "translation-english-to-chinese-traditional-draft"
     ],
@@ -20494,6 +20502,10 @@
     [
         4996,
         "translation-english-to-italian-not-verified"
+    ],
+    [
+        56,
+        "translation-english-to-italian-reviewed"
     ],
     [
         125,
@@ -20690,9 +20702,5 @@
     [
         7534,
         "translation-hindi-to-english-verifying"
-    ],
-    [
-        81777,
-        "translation-hindi-to-english-needed"
     ]
 ]
