@@ -3492,10 +3492,6 @@
         "transcript-english-reviewed"
     ],
     [
-        81789,
-        "transcript-english-reviewed"
-    ],
-    [
         4486,
         "transcript-english-needed"
     ],
@@ -6401,6 +6397,10 @@
     ],
     [
         20152,
+        "transcript-english-verified"
+    ],
+    [
+        20171,
         "transcript-english-verified"
     ],
     [
@@ -10961,10 +10961,6 @@
     ],
     [
         20153,
-        "transcript-english-draft"
-    ],
-    [
-        20171,
         "transcript-english-draft"
     ],
     [
