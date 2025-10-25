@@ -1,7 +1,6 @@
 14 maja 1982
 Program Publiczny
 Brighton Pavilion, Brighton (Anglia)
-Publiczny Program. Brighton (UK), 13 Maja 1982.
 
 Proponuję, żeby dzisiaj najpierw, pozwolić im zadać pytania. Zostanę tu.... Jeśli macie jakieś pytania, zadajcie mi je najpierw. Żeby wasz umysł odpoczął. Chętnie postoję..., wtedy lepiej wszystkich widzę. Czy mam stać tutaj czy na podłodze?
 
@@ -67,3 +66,268 @@ Ale nie mogę żyć, nie dzieląc się z innymi, więc jestem komunistą.
 Jeśli, powiedzmy, drzewa umierają, jeśli im to dacie, to będą się dalej rozwijać. Jeśli dacie to zwierzętom, one zmienią się, ponieważ po raz pierwszy, odkąd tylko dostaliście tą siłę, oddajecie coś z powrotem naturze. Bo jak dotąd zawsze tylko braliście. A teraz po raz pierwszy zaczynacie jej coś dawać. Ponieważ współczucie po prosu płynie, ono niczego nie bierze, po prostu płynie do innych i właśnie to powinno się wam przydarzyć. Nie zadowalajcie się tym, co tanie, co pozbawione sensu, czymś, co jest swojego rodzaju naśladownictwem lub masowymi pomysłami. Ja mówię o kolektywności, w której każdy pojedynczy człowiek jest świadomy. To nie jest aktywność na skalę masową, to jest kolektywność. Niech was Bóg błogosławi. Mam nadzieje, że dziś wielu z was otrzyma Realizację i stanie się jednym ze swoim Duchem i poczuje swoją kolektywność. To tylko Moja nadzieja. Brighton to miejsce, które cenię szczególnie. Zawsze mówiłam, że Anglia to Serce Wszechświata. To bardzo ważne, że to jest serce, bez wątpienia, dlatego właśnie Blake powiedział, że stanie się ona Jerozolimą. Jest wiele prawdy w tym, co powiedział. Wiele rzeczy, które powiedział o Sahaja Yodze są całkowitą prawdą. Ale to serce jest ospałe. Ono śpi, to smutne. Tak jak mówię, że Europa jest wątrobą i ona pije, czy możecie sobie wyobrazić, jaki będzie stan rzeczy, nawet gorzej, jeżeli wszystko obróci się przeciwko swojej własnej istocie? A istotą Anglii jest to, że jest ona sercem. To oznacza, że ono wyraża, że ono rozprzestrzenia.
 
 Cokolwiek dzieje się w Anglii, jest traktowane poważnie. Przypuśćmy, że wszyscy stajecie się głupimi ludźmi - wtedy cały świat taki się stanie. Odpowiedzialność, jaka na was spoczywa, jest tak wielka, a wy nie zdajecie sobie z niej sprawy. To, co robimy, jest bardzo ważną rzeczą. W tym kraju wygląda to bardzo mizernie, bo jest bardzo mało ludzi, którzy naprawdę przyszli do Sahaja Yogi i zostali. Myślę, że jest zaledwie garstka ludzi tego pokroju. Są małe dzieci, wielu jeszcze przyjdzie, za powiedzmy 10 lat. Jestem pewna, że to będą bardzo wartościowi ludzie. Poszukiwacze, którzy już tu są, to trochę nerwowi ludzie, ponieważ chcą się uczyć od Amerykanów i Europejczyków. Nie ma czego się od nich uczyć. To wy macie rozpowszechniać, wy macie nieść przesłanie. Wiem, że to jest bardzo ważny kraj i tak jakoś się stało, że mój mąż dostał posadę w Anglii. Jesteśmy tu od 8 lat, czy możecie w to uwierzyć? Będę tu może jeszcze co najwyżej przez cztery kolejne lata. Więc mam nadzieje, że coś się stanie i że w tym Brighton, które jest bardzo dobrym miejscem, wielu ludzi dostanie Realizację i pomoże w wyzwoleniu istot ludzkich. Dziękuje Wam bardzo. Niech Bóg was błogosławi. Jeśli macie pytania, musicie je zadać. Z całą szczerością muszę wam powiedzieć, że jestem waszą Matką i nigdy nie czułam się obrażona tym, że ktoś zadaje Mi pytanie. To bardzo ważne, ponieważ właściwie Ja nie mam żadnych pytań, wy musicie mnie pytać, Ja nie mam zupełnie żadnych pytań.
+
+Pytania i odpowiedzi:
+[Prashan] płacze, prawda, Michelle? Myślę, że lepiej go stąd zabrać. Lepiej go wyprowadź, bo podczas medytacji będzie przeszkadzał. Czy coś mu jest?
+
+Jakieś pytania?
+
+Jak ważny jest kolor w naszym życiu? Słucham?
+
+Y: Jak ważny jest kolor w naszym życiu?
+
+Kolor? Jest ważny, jeśli rozumiecie jego wartość wibracyjną. Każdy kolor, którego używacie, w połączeniu z innymi kolorami tworzy pewien współczynnik. Weźmy na przykład obraz. Każdy obraz jest oceniany według pewnych sztucznych miar w zwykłym ludzkim życiu. Nie wiem, jak go oceniają, ale w życiu duchowym oceniamy go z punktu widzenia wibracji. Na przykład, kiedy widzicie obraz, może być abstrakcyjny lub jakikolwiek inny, wyciągacie w jego stronę ręce.
+
+Jeśli osoba, która go namalowała, jest zrealizowaną duszą... Na przykład, powiedziałabym, Michał Anioł. Był zrealizowaną duszą i stworzył Kaplicę Sykstyńską. Jeśli zobaczycie Chrystusa, którego namalował, jest on niezwykle bliski temu, jaki był Chrystus w rzeczywistości.
+
+Ale inni, przedstawiają Chrystusa w tak okropny sposób, że płyną od tego złe wibracje. I, szczerze mówiąc, nie wiem, jak to się może ludziom podobać, ale niektórzy mówią: „Och, to wspaniałe i bardzo cenne”. Po prostu nie rozumiem, jak ktoś, kto nie jest w ogóle bliski Chrystusowi, używa złych kolorów, co jest wyrazem wewnętrznego brudu, który ludzie próbują wyrazić, rozumiecie.
+
+Na przykład, by pokazać Chrystusa jako zwykły szkielet. To jest cynizm, tak sądzę. Jak osoba, która niosła cały krzyż, mogła tak wyglądać? Możecie to sobie wyobrazić. Był zdrowym mężczyzną. Nie tylko zdrowym, mógłby wziąć pięciu współczesnych ludzi i po prostu zakręcić nimi w powietrzu. Był tak potężną osobowością! I tylko taki człowiek może wyrzec się przemocy. A Jego brak przemocy ma w sobie chwałę, nieprawdaż? Jaki sens ma brak przemocy u kogoś, kto i tak jest słabeuszem?
+
+A więc pokazują Chrystusa jako takiego słabeusza, nie mogę w to uwierzyć, i po prostu nie rozumiem, skąd wzięli te pomysły. Ale widziałam, jak takie posągi sprzedawano za bardzo wysoką cenę. Tak więc istoty ludzkie mają swoje własne systemy wartości. Ale Boskość ma inny.
+
+A więc i kolor odgrywa rolę. Powiedzmy, możecie mieć kolory, na przykład czerwony, który obecnie, według psychologów, którzy są dość niemądrzy, muszę przyznać, ten czerwony kolor, ich zdaniem, jest bardzo zły. Ale tak nie jest. Czerwony to kolor Matki. Ponieważ pierwsze światło w łonie matki jest czerwone. Dziecko widzi czerwień. I dlatego ma ona najkrótszą, jak to nazywacie, długość fali. Wszystko, czym chcecie przyciągnąć uwagę, piłka do krykieta jest czerwona. Jeśli chcecie ostrzec: „Niebezpieczeństwo”, używacie czerwieni. Kolor czerwony ma swoją wartość. Biały ma swoją wartość.
+
+Ale w ludzkim umyśle jest zupełnie inaczej. Mają swoje własne normy i formy, i tym podobne rzeczy, które, jak widać, przyjęli za swoje.
+
+Na przykład musicie jeść widelcem i nożem. Widelec i nóż muszą być odłożone w określony sposób. Jeśli tak ich nie odłożycie, to nie należycie do elity.
+
+I tak samo w sztuce, stworzyli taką konwencję, że ten kolor jest ładny, tamten kolor jest ładny, a wszystko musi być pastelowe. Teraz to zmieniają, bo najpierw mówili: „W porządku, możemy mieć niebieski”. To musi być stare. Więc mówią: „Dobrze, miejmy więcej niebieskiego, jakiegoś rodzaju...”
+
+Szczególnie szary kolor. Całe niebo jest szare, wszystko jest szare, po co wam jeszcze szarość na ciele, i chodzenie w szarych garniturach, jak to kiedyś bywało, prawda? Ale teraz zdali sobie sprawę, że w szarości i błękicie nie ma ciepła.
+
+Trzeba więc mieć coś ciepłego. I chcą dodać czerwień. Stopniowo do tego dochodzą, widzicie. Szary jest w porządku dla Indusów, którzy są tak pełni energii, że dla równowagi mogą nosić trochę szarości, to jest w porządku. Ale dla ludzi, którzy są w Anglii, myślę, że szarość to za wiele.
+
+To po prostu ból głowy, patrzeć na jeszcze więcej szarości, a kiedy widzę metry szarości chodzące w tych garniturach, jestem naprawdę zszokowana. A zwłaszcza gdy macie na sobie te stroje, te pożyczone stroje, które nosicie. Niektórzy wyglądają w nich tak dziwacznie i niezgrabnie, a chodzą sobie, myśląc, że są pępkiem świata. Wyglądają naprawdę jak klauny.
+
+Ale te formy i konwencje stworzyliśmy my, istoty ludzkie. Że „to jest forma, która jest najlepsza. Musicie nosić frak”. W porządku, frak wygląda ładnie, ale nie szary, w żadnym wypadku, mogę wam powiedzieć. Jeśli nosicie szarość wcześnie rano, to nie jest to, myślę, rather miłe dla Boga, bo jak można pokazywać szarość w piękny, słoneczny poranek? Powinniście nosić coś ładnego, czerwonego.
+
+Y: Dziękuję.
+
+Więc to wszystko jest bardzo różnorodne i piękne. Ale trzeba wejść do królestwa Ducha. Wtedy wszystko się układa, jak magnes – kiedy przyłożycie magnes, wszystkie opiłki układają się we właściwym kierunku. W ten sam sposób wszystko staje się tak systematyczne i zrozumiałe. Natychmiast wiecie, które miejsce daje wibracje, a które ich nie daje. Możecie wyczuć nawet krzesło, możecie wyczuć wszystko.
+
+To bardzo interesujące. Nawet formy. Niedawno mówiłam wam o Mona Lisie. Jeśli wy, to znaczy, według współczesnych idei piękna, według których kobiety wyglądają jak chodzące komary, Mona Lisa wydaje się być brzydką kobietą. Ale ludzie wciąż są nią urzeczeni. Dlaczego? Ponieważ jest w niej ten współczynnik, który daje wibracje. Ona daje wibracje. Więc tylko w stanie świadomości wibracyjnej można osądzić, czy coś jest absolutne, czy nie. Ponieważ nie osiągnęliście jeszcze swojego absolutu.
+
+Dla kogoś może to być dobry obraz, dla kogoś innego musi być przerażający. Tak?
+
+Y: Matko, [wczoraj], kiedy mówiłaś o tej osiemdziesięcioletniej kobiecie, która jeździła konno [niezrozumiałe], wydaje mi się, że wszyscy czasem tak robimy, dlaczego śmiejemy się z cierpienia innych ludzi i [niezrozumiałe].
+
+SM: Z cierpienia?
+
+Y: Czasami śmieję się nieświadomie [niezrozumiałe].
+
+O co chodzi? Pytasz, dlaczego cierpimy?
+
+Nie, mówię, że jestem zmartwiony tym, że Matka śmiała się, kiedy mówiła o tej osiemdziesięcioletniej kobiecie jeżdżącej konno. I dlaczego Matka wtedy się śmiała i dlaczego my [niezrozumiałe].
+
+Podejdź tutaj, nie słyszę cię, po prostu podejdź. Na pewno mówisz coś miłego, ale nie wiem, co to jest.
+
+Matko, mówiłem, że śmiałaś się, kiedy opowiadałaś o tej osiemdziesięcioletniej kobiecie jeżdżącej konno. I wydawało mi się, że ja [niezrozumiałe] próbując to zracjonalizować, że to było [w jej pośpiechu] upadkiem na śmierć. Prawda? I będąc duszą wcale nie [niezrozumiałe], zastanawiałem się, dlaczego my, ja się śmiałem, i to z cierpienia, a także dlaczego Ty również?
+
+Nadal nie zrozumiałam. Podejdź, podejdź. O co chodzi? Wiesz, że nie słyszę.
+
+Mówiłaś o kobiecie jeżdżącej konno, tak?
+
+SM: O czym?
+
+Y: O tej osiemdziesięcioletniej kobiecie jeżdżącej konno.
+
+Aha! Och, rozumiem, och, rozumiem. Tak.
+
+Ale śmiałaś się i zastanawiałem się dlaczego, i dlaczego my też się śmialiśmy? [niezrozumiałe]
+
+Ponieważ to nonsens, żeby osiemdziesięcioletnia kobieta wsiadała na konia. Widzisz, nie powinno się tego robić. Zapytaj jakiegokolwiek mędrca, powiedzmy, z Indii, weź wieśniaka, on po prostu się roześmieje. On by nie zrozumiał, dlaczego osiemdziesięcioletnia kobieta, widzisz, biedny koń, na ile jest w stanie zadbać o bezpieczeństwo tej starszej pani? Po co tak męczyć konia?
+
+Starsza kobieta powinna wiedzieć, że jest obciążeniem dla konia. I nie powinna wskakiwać na konia, prawda? To takie proste. Starsza kobieta powinna zachowywać się jak osoba starsza, powinna zaakceptować swoją starość.
+
+Bycie starym to wspaniała rzecz, wiecie. I to jest wspaniały czas, jaki ma się jako starsza kobieta. Ja na przykład najbardziej cieszę się moją starością. I myślę, że to wspaniała rzecz być starym. Ale zachowywać się jak piętnastoletnie dziecko i wsiadać na konia w wieku osiemdziesięciu lat, to jest złe.
+
+To znaczy, że brakuje poczucia proporcji. Trzeba dojrzewać z czasem, rozumiecie, dojrzałość musi nadejść. Tak jak moje wnuki, chciałyby bawić się małymi samochodzikami, w porządku? Z kolei mój mąż chciałby bawić się swoim własnym samochodem, który jest prawdziwym samochodem. Ja natomiast, może, jestem trochę za stara i nadmiernie dojrzała. Mnie mogą nie bawić takie rzeczy, może wolałabym bawić się waszą Kundalini.
+
+A więc to głupie, żeby osiemdziesięcioletnia kobieta wsiadała na konia. To absolutnie głupie. I głupie jest, żeby małe dziecko wsiadało na konia. Widzicie, wszystko powinno być robione stosownie do wieku.
+
+Tylko dlaczego ona wsiadła na tego konia? Co? Dlaczego? Jaka potrzeba? Tylko dlatego, że w grę wchodzi jej ego, tak prosta rzecz jak ego. Ona nie chce zaakceptować swojego wieku. Nie chce się odnaleźć w roli dojrzałej, starszej pani. Miło jest być bardzo starym. Ona nie rozumie, jak miło jest być starym.
+
+Tylko w tym kraju, nie wiem dlaczego, ludzie wyśmiewają starość, ale wszyscy wasi przywódcy są bardzo starzy, co jest zaskakujące. Na przykład Margaret Thatcher jest trochę starsza ode Mnie. Wszyscy wasi przywódcy są starzy, więc dlaczego wyśmiewacie starość, nie rozumiem. Dopóki nie jesteście starzy, nie zostaniecie zaakceptowani jako przywódcy, nawet w tym kraju. Brytyjczycy pod tym względem są dość mądrzy. Myślę, że tylko William Blake był postacią, która była bardzo młoda.
+
+I to jest coś niezwykłego. W pewnym sensie starość jest bardzo szanowana. I musicie szanować swoją starość, a nie zachowywać się jak piętnastoletni chłopiec, wsiadając na konia, rozumiecie. I ten koń musiał być zdenerwowany, jestem pewna, ponieważ koń rozumie, kto na nim jedzie. W porządku?
+
+Próbowałam powiedzieć o tym, jak ludzie głupieją i nie rozumieją, jak głupio postąpili, ponieważ kieruje nimi tylko ego.
+
+I: Ale dlaczego śmiejesz się z ego?
+
+SM: Słucham?
+
+Przepraszam, Matko. Dlaczego śmiejesz się z ego?
+
+Śmiać się z ego? A co robicie z głupotą? Można się z niej tylko śmiać. Z ludzi, którzy są głupi, możemy się tylko śmiać, prawda? Co innego możemy zrobić?
+
+Są głupi, zaskakująco głupi. Bo, widzicie, ta kobieta mogła zająć się Sahadźa Jogą, mogła zostać uzdrowiona, mogło być z nią wszystko w porządku, mogła pomagać ludziom. Zamiast tego spędzała czas, jeżdżąc konno. Robiła to już dawno temu. Dlaczego robi to nadal? Dlaczego ona nie myśli? Że zostało jej bardzo niewiele lat, a to są ważne, bardzo ważne lata. Niech zrobi coś sensownego. W tym nie ma sensu. Jedyne, co można zrobić, to śmiać się. To bez sensu.
+
+Jaki jest sens w jeżdżeniu w ten sposób na koniu? To jest opętanie przez ego, tak myślę. Koń, samochód i wszystkie te rzeczy, to są rzeczy związane z ego. Znam pewną panią w Indiach, której mąż był gubernatorem, i myślałam, że jest rozsądną kobietą. Ale jak tylko odszedł z urzędu gubernatora, ona zmarła. Zsiadła z konia.
+
+Ale dobrze jest się śmiać, prawda? Gdyby ktoś opiekował się pacjentami chorymi psychicznie i widział te wszystkie szalone, drobne rzeczy, które robią, nie mógłby się nimi opiekować, gdyby płakał, zamiast się śmiać.
+
+Tak, rozumiem.
+
+Widzicie, musimy się śmiać z wielu rzeczy. To jest żart, wiecie, przez cały czas, cała ta rzecz jest dramatem, w którym widzicie coś głupiego, wtedy się śmiejecie, widzicie coś śmiesznego, śmiejecie się. Lepiej się śmiać, niż złościć.
+
+Lepiej się śmiać, niż złościć, prawda? Jaki jest pożytek ze złości na kobietę, która już nie żyje? Nie ma w tym mądrości. Taki sposób życia, widzicie, jest pozbawiony mądrości. To właśnie próbowałam powiedzieć: osoba zdominowana przez ego traci swoją mądrość.
+
+Nie ma w tym żadnej mądrości. Ludzkie życie jest bardzo cenne, nie można go marnować. Gdyby ta kobieta żyła – znałam ją bardzo dobrze, dlatego mówię – zrobiłaby coś dobrego. Jej życie miałoby jakiś sens, ale ją to nie obchodziło.
+
+Więc śmiejesz się [kiedy widzisz żałosne rzeczy].
+
+SM: Słucham?
+
+I: Śmiejesz się [kiedy widzisz żałosne rzeczy].
+
+Widzicie, śmieję się, bo co mam teraz zrobić? To znaczy, co począć? Było mi bardzo przykro, jej mąż został teraz sam, nie wie, co robić, a ja nie wiem, co robić. Ponieważ jej mąż jest bardzo miłym człowiekiem, jest bardzo ważną osobą w kraju. Jest uważany za lorda czy kogoś takiego, jest też ministrem – nie wiem, czy jest teraz ministrem, czy nie – znam ich bardzo dobrze. I ten biedak jest teraz... nie wie, jak zarządzać domem, niczym, został z niczym. A jeśli zapytacie tego pana, powiedział: „Nie wiem, dlaczego moja żona miała takiego bzika na punkcie koni”. Nie można się spodziewać takich rzeczy, więc po prostu się śmiejesz.
+
+Lepiej się śmiać, niż być poważnym, prawda? Tylko jeśli ktoś umiera w waszej rodzinie, wtedy w porządku, ale poza tym cały czas widzimy ludzi, którzy bardzo poważnie podchodzą do spraw i co robią? Co my zrobiliśmy? Co zrobiliśmy z całą naszą powagą? Stworzyliśmy te wszystkie bomby atomowe dla naszej zagłady?
+
+Co osiągnęliśmy z całą tą powagą? Musimy się śmiać i trzeba się śmiać, i naprawdę cieszyć się grą Boskości. To jest piękne. Kiedy bardziej się otworzycie, będziecie się śmiać o wiele więcej.
+
+Jakieś inne pytania?
+
+Mędrcy z Indii zawsze nam mówili, że kiedy medytujemy i robimy pranajamę, kręgosłup musi być prosty. Dlaczego tak jest? Czy Kundalini się nie podniesie, jeśli kręgosłup nie jest idealnie prosty?
+
+Widzicie, te metody stosowano w czasach, które dawno minęły. Jogasutry Patańdźalego były praktykowane dawno, dawno temu, kiedy mieliśmy zupełnie inny styl życia. Mieliśmy cztery warnaśramy.
+
+Pierwszy był taki, że człowiek musiał żyć w całkowitym celibacie i iść do guru, mieszkać w lesie, pobierać nauki u guru do 25. roku życia, rozumiecie. To był wiek, kiedy wybierano niektórych ludzi do Samorealizacji, ale bardzo niewielu.
+
+I wtedy mówiono im o ośmiu rzeczach zwanych asztanga jogą, w której jedną z części były jama i nijama, co oznaczało korektę ciała, korektę moralności, korektę zachowania, wszystkiego. Jama, nijama. Nijama oznacza prawa.
+
+Otóż, ponieważ małe dzieci, jeśli zbytnio zginają kręgosłup, to i tak nabawią się problemów. Więc mówiono, że musicie utrzymywać kręgosłup prosto.
+
+Ale ta pranajama, o której mówili, była wykonywana, będziecie zdumieni, po ustanowieniu Ducha. Nazywało się to Iśwara pranidhana. Nazywało się to ustanowieniem Ducha. Kiedy Duch jest już ustanowiony, wtedy Kundalini zaczyna się poruszać i wtedy wiecie, która czakra się blokuje.
+
+W zależności od czakry, musicie wykonać określone ćwiczenie. Ale współczesna praktyka jest zupełnie inna. To nie ma z tamtym nic wspólnego. Po prostu wzięli tylko tę część, w której trzeba wykonywać ćwiczenia. I to doprowadza mnie do szału, kiedy widzę, że to ćwiczenie jest jak branie wszystkich lekarstw naraz, bez zrozumienia, kiedy należy wykonać które ćwiczenie, na którą część i jaka jest potrzeba.
+
+Bo dopóki Kundalini się nie porusza, skąd macie to wiedzieć? Więc wszystko jest postawione na głowie. To tak, jakbyście, nie uruchamiając samochodu, zaczęli poruszać kołami i wszystkim innym.
+
+A więc to, co ludzie dzisiaj robią, jest całkowitym przeciwieństwem tego, co powinni robić. Innymi słowy, mogę powiedzieć, że to wszystko jest sztuczne, ponieważ Kundalini się nie poruszyła.
+
+Najpierw musi poruszyć się Kundalini, najpierw musiała być wykonana Iśwara pranidhana. I to jest dzisiejszy problem z ludźmi, którzy praktykowali hatha jogę. Ponieważ stwierdzam, że ich serce ma problem.
+
+Chociaż są poszukującymi, robią to z potrzeby poszukiwania, bez wątpienia. Ale problem polega na tym, że to, co robią, jest bardzo fragmentaryczne.
+
+A więc mędrcy mówili, że wasz kręgosłup powinien być prosty. Nasz kręgosłup powinien być prosty, bez wątpienia. Przynajmniej kiedy rośniemy, a nasz kręgosłup rośnie, wtedy powinien być prosty, bo jeśli nie jest, nabawicie się skrzywienia, a to nie jest dobre.
+
+Ale Kundalini się podniesie, czy jesteście zgarbieni, czy nie, wierzcie Mi, podniesie się. W jakiejkolwiek byście byli pozycji, doświadczycie wzniesienia Kundalini.
+
+To wszystko. To jest coś wyjątkowego, powinnam powiedzieć, to już tu jest! Tak zostało to już przepowiedziane. Zastanawiam się, czy ci ludzie mają artykuł przygotowany przez Gawina. Przejrzał on pewne stare księgi Bhrigu Muniego, który pisał jakieś dwa, trzy tysiące lat temu o tego typu wydarzeniu, które będzie miało miejsce w określonym czasie, i powiedziano, że w 1970 roku to powinno się wydarzyć. A ja zaczęłam tę pracę w 1970 roku.
+
+Coś wyjątkowego. Co jeszcze?
+
+Wasza Świątobliwość, pośrednio podkreśliłaś Boską moc i jako chrześcijanin chciałbym wiedzieć, o to stworzenie Boże, i zgodnie z filozofią chrześcijańską, gdzie jest powiedziane, że jesteśmy, trzymałbym się filozofii naszego Chrystusa, a On mówi, że sposobem na wzbogacenie waszego Ducha jest całkowite zaparcie się ciała, włączając w to seks. Czy tego samego uczysz?
+
+Oczywiście, w stu procentach.
+
+Uczę tego i robię to, co Chrystus już o Mnie przepowiedział.
+
+To znaczy, że zapierasz się wszystkich swoich pięciu zmysłów, włączając w to ciało?
+
+Czego? Zapieram się czego?
+
+Swoich pięciu zmysłów, swoich pragnień.
+
+Nie, nie, nie powiedziałam tego. Nie powiedziałam tego.
+
+W takim razie jak wyjaśnisz „zaparcie się ciała”?
+
+Nie, nie. Niczego się nie zaparłam. Nie, żadnego zapierania się. To, co powiedział Chrystus, to: „Musicie się narodzić na nowo”.
+
+A obecna filozofia to jest: „Boże, ratuj nas”, ponieważ to, co zrobiono z Chrystusa, jest czymś, czego nie potrafię zrozumieć. Bo nie widzą, że nie stają się Duchem. Stają się? Nie! Robią to?
+
+Filozofia to zupełnie inna sprawa. Możecie stworzyć wszystko ze swojej filozofii. Ale to, co Chrystus precyzyjnie powiedział, to to, że macie stać się Duchem. Powiedział, że wasze ręce będą mówić. A co z tym? Wasze ręce będą mówić po tym, rozumiecie. To, co powiedział Chrystus, wydarzy się, a nie to, co ci ludzie wam mówią.
+
+Co oni osiągnęli? Powiedzmy, wasz przodek mógł być chrześcijaninem, jego przodek, albo wszyscy mogli być chrześcijanami. Co osiągnęli? Nic! Dziś w tym kraju sprzedaje się kościoły. Dlaczego? Ponieważ nie byli w stanie dać odpowiedzi.
+
+Ja jestem tu, by dać odpowiedź. Jestem tu, by udowodnić Chrystusa. Jestem tu, by udowodnić wszystko, co jest napisane w Biblii. Jest też powiedziane: „Pocieszyciel przyjdzie i wy to osiągniecie, przez co poznacie Mojego Ojca na zawsze”. Co to jest?
+
+Oni, ci filozofowie, nie rozpoznają Mnie, nie rozpoznają, zaprzeczą. On powiedział: „Będziecie Mnie wzywać: Chryste, Chryste, a Ja was nie rozpoznam”. To są ci ludzie.
+
+To nic innego jak sposoby na zarabianie pieniędzy. To takie proste.
+
+Napisano, że Chrystus to mówił: „Jeśli chcesz iść za Mną, zaprzyj się samego siebie, wtedy przyjdź i naśladuj Mnie”.
+
+SM: Co takiego?
+
+Y: Zaprzesz się samego siebie.
+
+Nie, nigdy tego nie powiedziałam, czego ty słuchasz? Widzisz, niemożliwe, mówi Chrystus.
+
+Co to jest, zaparcie się samego siebie?
+
+Tak. Jeśli chcesz iść za Mną, zaprzyj się samego siebie, weź swój krzyż i naśladuj Mnie. Czy to jest to samo, co Ty próbujesz [niezrozumiałe]?
+
+Co, co on mówi? Jeszcze raz, co powiedział Chrystus? Podejdź tu, po prostu podejdź.
+
+Powiedział, że Chrystus powiedział, że powinniście zaprzeć się swojego ciała. - Jesteś kim? Chrystus powiedział, że powinniście zaprzeć się swojego ciała, wziąć krzyż i...
+
+Tak, tak, tak, tak, ciała. Tak, tak, o to właśnie chodzi, tak.
+
+Chciałbym wiedzieć, czy tego samego uczysz?
+
+Oczywiście, Moje dziecko, to jest dokładnie to, czego On uczył i co obiecał. On mi pomógł.
+
+Proszę, powiedz mi, jak po prostu zaprzeć się samego siebie?
+
+Nie zapierasz się. W rzeczywistości to, co się dzieje, to fakt, że stajesz się Duchem. Widzisz, kiedy stajesz się Duchem, zaczynasz widzieć swoje ciało jakby z zewnątrz.
+
+Y: Tak, rozumiem.
+
+SM: W porządku? Kiedy jesteś w wodzie, wtedy boisz się wody, jesteś w wodzie, ale jeśli zostaniesz zabrany do łodzi, czy nie widzisz wody? Ale jesteś z dala od niej. To wszystko.
+
+To się dzieje. To jest wydarzenie. To znowu jest wydarzenie. W porządku? To, czego uczył Chrystus, jest dokładnie tym, co robię.
+
+Ale nie te kościoły, wierzcie Mi. Przykro mi to wam mówić.
+
+W pewnym sensie to jest samozaparcie.
+
+To nie jest samozaparcie, to jest wydarzenie.
+
+I: To jest wydarzenie.
+
+SM: Stajesz się Duchem i zaczynasz postrzegać siebie w trzeciej osobie. W porządku? To jest nowa rzecz, która dzieje się w waszej świadomości, dzięki której zaczynacie postrzegać siebie w trzeciej osobie.
+
+Nie robicie tego racjonalnie: „Zapieram się samego siebie”. Tego wszystkiego nie robicie. To dzieje się w waszej świadomości, dzięki czemu możecie zacząć widzieć siebie z dystansu.
+
+Wtedy to ciało i te wszystkie rzeczy nie są tak ważne. Ważna jest duchowa radość. To powinno się wydarzyć, to jest prawdziwy chrzest. Właściwie czujecie, jak Kundalini wznosi się tutaj i przebija się. Ma miejsce prawdziwy chrzest.
+
+Czujecie całą siłę wznoszącą się i pulsującą tutaj, i przebijającą tę część. To jest prawdziwy chrzest.
+
+To nie jest tak, że ktoś po prostu kładzie wam rękę, sztucznie, i mówi: „Teraz jesteś ochrzczony”. To nie tak. To jest rzeczywista rzecz, która powinna się wydarzyć, prawdziwe, namacalne zdarzenie. W porządku?
+
+Niech Bóg was błogosławi.
+
+Jak jest powiedziane, chłodny powiew, chłodny wiatr Ducha Świętego, naprawdę czujecie chłodny wiatr Ducha Świętego wydobywający się z waszej głowy. Naprawdę to czujecie. W porządku?
+
+To wszystko musiało być udowodnione. Tak.
+
+Czy wierzysz w Odkupienie, jak powiedziano?
+
+Oczywiście. To dzieje się tylko dzięki Odkupieniu.
+
+Dzięki Odkupieniu. Zgadza się.
+
+Ale w tym celu nie musicie się z niczego przede Mną spowiadać, nie spowiadacie się z niczego, absolutnie z niczego. To się po prostu dzieje, w porządku?
+
+On jest taki [niezrozumiałe].
+
+Niech Bóg cię błogosławi.
+
+Mówię wam, jeśli naprawdę przeczytacie Biblię w uczciwy sposób, zrozumiecie Sahadźa Jogę bardzo dobrze. Musicie przeczytać ją ponownie po Realizacji. Będziecie zdumieni, jak wiele prawd zostało ukrytych przez tę tak zwaną filozofię.
+
+To naprawdę bardzo smutne, co zrobili z Chrystusem. Czasami czuję, że to jest drugie ukrzyżowanie Chrystusa.
+
+Zabawne rzeczy, jak Papież przyjeżdżający tutaj, a protestanci mówią: „Jesteśmy fundamentalnie różni”. Jak oni mogą być chrześcijanami? Czy Chrystus jest ich fundamentem, czy nie? Jak Chrystus może być dwiema różnymi rzeczami?
+
+Po prostu nie rozumiem tych ludzi, postępujących w ten sposób. Dlaczego tak się dzieje? Bo nie wierzą we własną Jaźń ani, tak naprawdę, w Chrystusa. Wierzą w tworzenie dogmatów, podziałów, nienawiści, tego wszystkiego.
+
+Jak można to robić w imię Boga? Jak można?
+
+Robi się to w każdej religii, bez wątpienia. Nie tylko chrześcijanie są ekspertami, każdy to robił. Żydzi to kolejna grupa. Mamy tu żydów, mamy tu chrześcijan, mamy Hindusów i Muzułmanów.
+
+Po Realizacji widzą oni, jaką krzywdę wyrządzono w imię Boga. Ci fundamentaliści, ci fanatycy, wszyscy oni myślą, że są tymi wybranymi. To bardzo wygodne zaświadczenie, które wystawia się samemu sobie – że jest się wybranym.
