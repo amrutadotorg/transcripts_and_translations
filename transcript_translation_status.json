@@ -4,10 +4,6 @@
         "transcript-english-in-progress"
     ],
     [
-        61781,
-        "transcript-english-in-progress"
-    ],
-    [
         61988,
         "transcript-english-in-progress"
     ],
@@ -3420,6 +3416,10 @@
         "transcript-english-reviewed"
     ],
     [
+        62755,
+        "transcript-english-reviewed"
+    ],
+    [
         62794,
         "transcript-english-reviewed"
     ],
@@ -6569,6 +6569,14 @@
     ],
     [
         81769,
+        "transcript-english-verified"
+    ],
+    [
+        81823,
+        "transcript-english-verified"
+    ],
+    [
+        81824,
         "transcript-english-verified"
     ],
     [
@@ -11756,6 +11764,10 @@
         "transcript-english-draft"
     ],
     [
+        61781,
+        "transcript-english-draft"
+    ],
+    [
         61783,
         "transcript-english-draft"
     ],
@@ -11873,10 +11885,6 @@
     ],
     [
         62731,
-        "transcript-english-draft"
-    ],
-    [
-        62755,
         "transcript-english-draft"
     ],
     [
@@ -12277,6 +12285,10 @@
     ],
     [
         80607,
+        "transcript-english-draft"
+    ],
+    [
+        81825,
         "transcript-english-draft"
     ],
     [
@@ -20552,6 +20564,10 @@
         "translation-english-to-italian-reviewed"
     ],
     [
+        81825,
+        "translation-english-to-italian-reviewed"
+    ],
+    [
         31,
         "translation-english-to-italian-verified"
     ],
@@ -20677,6 +20693,10 @@
     ],
     [
         81139,
+        "translation-english-to-spanish-reviewed"
+    ],
+    [
+        81823,
         "translation-english-to-spanish-reviewed"
     ],
     [
