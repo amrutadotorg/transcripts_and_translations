@@ -1,7 +1,6 @@
-Program Publiczny – Czakra Agnia, 18.12.1978, Caxton Hall, Londyn, UK
-
-Video z napisami https://www.youtube.com/watch?v=b4GNte3rVbA
-
+18 grudnia 1978
+Program Publiczny
+Caxton Hall, Londyn (Anglia)
 Dziś mówimy o szóstej czakrze zwaną Agnią. Agnia, gnya [gyan] – to słowo znaczy „wiedzieć”. Gnya znaczy „wiedzieć”. Litera A oznacza „całość”. Czakra Agnia ma też inne znaczenie. Agnia – to znaczy „posłuszeństwo” lub „nakazywać”. Może oznaczać obie te rzeczy. Jeśli coś komuś nakazujecie, to jest Agnia, a ten, kto słucha nakazu, jest Agnia kari – tym, który wykonuje Agnię. To szóste centrum zostało stworzone w istotach ludzkich wtedy, gdy zaczęły myśleć.
 
 Myślenie jest przejawem języka mówionego. Gdybyśmy go nie mieli, nie potrafilibyśmy myśleć. Nie oznacza to jednak, że jeśli nie potrafimy wyrazić myśli, to one do nas nie przychodzą. Nie znaczy też, że nie zachodzi w nas proces myślowy. Jednakże na tym subtelnym etapie, gdy przychodzą do nas myśli, nie są one ujęte w język, więc nie są nam komunikowane. Dlatego właśnie, bez języka mówionego nie potrafimy zrozumieć, co myślimy. Nie raz widzieliście dzieci, które nie mogą zakomunikować nam czego chcą, ponieważ nie potrafią tego powiedzieć. Czują ssanie w żołądku i chcą poprosić o wodę czy coś takiego, ale nie potrafią nam tego powiedzieć. Dlatego też nie potrafią pomyśleć, co miałyby powiedzieć.
