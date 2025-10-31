@@ -1,44 +1,114 @@
 1 июля 1977
 Guru Puja
 London (England)
-Первая пуджа Гуру в Лондоне.
+Today is the day of worshipping your guru: that is your Mother. And as I told you, it’s a very unique happening that Mother, Herself, has to become your Guru.
 
-1 Июля 1977, Лондон, Англия
+And also you know that it is a very difficult task for a Mother to be a guru, because her love is so overflowing that it is difficult for Her to give any discipline to Her children. She cannot discipline her own love, how can she discipline her own children?
 
-Сегодня День поклонения вашему Гуру.
+Being [like] that, the responsibility on the disciples is much more. If the guru is a person who can discipline you without feeling anything hurting to him, he is much more capable, and he can do it.
 
-Это ваша Мать. И, как Я говорила вам, это уникальное явление, что Сама Мать становится вашим Гуру! Вы также знаете, что быть Гуру для Матери - это очень трудная задача. Потому что Ее любовь так Ее переполняет, Ей трудно привить своим детям дисциплину, Она не может дисциплинировать собственную любовь. Как же Ей дисциплинировать Ее детей? Поэтому ответственность ложится на учеников в еще большей степени. Если гуру - это человек, который может дисциплинировать вас, не чувствуя при этом боли. Он намного более способен и пригоден для этой роли. Но для Матери это очень-очень трудная, очень трудная работа - быть Гуру. Она не знает, как уравновесить [любовь].
+But for a Mother it is a very, very, very difficult, I must say, a very difficult job to be the guru.
 
-И Она вас чрезмерно прощает, потому что Она - Мать. Тогда как гуру с самого начала не настроен прощать, но Мать до последнего будет прощать! Она пойдет до самого конца. Даже если ребенок отказался от нее, даже если он бьет ее, даже если он хочет убить Ее, Она всё равно будет говорить: "Дитя, ты не ушибся?" Тогда на ученика ложится еще "большая ответственность следить, чтобы не ранить Ее и не принимать Мою любовь как дожное. Поскольку они должны осознавать, что им еще придется доказать свои способности и им следует усовершенствоваться. Поэтому в этот день мы отмечаем уникальное сочетание огромной любви, которая переполняет Меня, а также мысли, которая является Божественным вдохновением, и которая говорит Мне, что вы должны быть дисциплинированы. Вы должны быть дисциплинированными сахаджа, а не другим человеком. Но это необходимо. Потому что если корабль не перетянут как следует, он всё еще не пригоден для плавания.
+She does not know how to balance, and She is extremely forgiving because She is the Mother.
 
-Он не может уплыть далеко. Если вы хотите наслаждаться плаванием в Океане Его Милости и Сострадания, Его Блаженства и Доброты, вы должны полностью себя построить. Вы видели, что у вас есть чакры, и мы можем пробудить их, пробудив Божества. Но это не механический процесс. Каждое Божество несет в себе тонкий аспект, который является тонким существом внутри нас. Вы знаете их всех, одного за другим. И вы знаете, почему эти чакры блокируются, потому что у вас там недостаток. Здесь нечего стыдиться. Как Я говорила вам, это как машина снаружи. Это ваш инструмент, но этот инструмент нужно как следует гармонизировать и почистить.
+While the guru, from the very beginning, does not forgive. But mother, till the end, she’ll go to the last end. Even if the child has forsaken her, even if he has beaten her up, even if he’s willing to kill her, still she will be saying that, “My child, are you hurt?”
 
-Сегодня Я хочу от вас определенных обещаний. А самое главное, как сказал Христос: "Полюби ближнего своего как самого себя". Я бы еще усложнила: "Полюби ближнего своего, сахаджа-йога, больше, чем самого себя". Давайте начнем с нас, Я не прошу вас обо всей Вселенной, только между собой. Сначала решите, что вы сделали для других? Второе, что вы должны Мне пообещать, что вы никогда не скажете грубого слова другому сахаджа-йогу. Даже если он вас разобьет в споре с пух и прах. Вы можете сказать на это: "Ты творишь величайший из грехов". Не пытайтесь исправлять других. Если вас попросят проверить [вибрации], то скажите мягко в чем дело.
+Then the responsibility of the disciples is much more, to see that they do not hurt Her, and they do not take my love for granted.
 
-Не говорите жестко, используйте язык для того, чтобы говорить приятное. Я говорю вам снова, и снова, и снова. Иначе Мне придется ввести для вас ограничения. Старайтесь контролировать свой язык. Очень важно использовать мягкость - вы можете, вы сахаджа-йоги. Очень легко добавить сладкие слова. Это так привлекательно. Зачем вы хотите говорить колкости? Для чего? Чтобы нажить врагов?
+For they must know that they have to prove themselves and they have to improve themselves.
 
-Вы хотите иметь врагов? У вас их будет много, что для этого вам не обязательно говорить колкости. Очень легко набрать врагов. Трудно обрести друзей. И трудно обрести своих родных (свою семью). У сахаджа-йогов есть одна Мать. И что ранит сильнее всего?! Всё, все, что пытается разделить вас, разбивает Мое сердце на много частей, и это тело как будто раздробляется на много частей. Поэтому не делайте этого со Мной. Это величайшее страдание, которое Я могу принять от вас.
+That is why this day is a very unique combination of tremendous love overflowing me, and also the thought, I would say, the divine inspiration, that tells me that you have to be disciplined.
 
-Я прошу вас всех не делать этого, потому что Я приняла вас в Мою Сущность. И вы неотделимая часть Меня. Вы один из тысячи лепестков на Моей Сахасраре. Но Я не хочу, чтобы вы разрывали эти лепестки, а другие топтали их. У вас есть свое достоинство, и уважайте достоинство других. И вы сахаджа-йоги - реализованные души. Должны знать, вы - необыкновенные люди. Насколько вы уважаете себя, - настолько вы будете уважать и других. Важно сказать вам, что друг с другом вам нужно вести себя скромно и смиренно. Вы должны быть дружелюбными и быть очень добрыми.
+You have to be disciplined sahaja, not by another person. That has to be, because if a ship is not properly tied up and it is not seaworthy it cannot go very far.
 
-И как только вы начнете так делать, постепенно вы научитесь методу, который позволит вам быть очень милыми. Лучше быть мягкими, чем жесткими. Лучше быть битыми, чем бить других. Лучше быть простыми и обманутыми, чем обманывать других. Мы как щит, и щит должен отражать меч. Меч не отразит меч - щит отразит. Вам нужно понять одно, что ни для чего нет нужды говорить колющие слова. Храните молчание! Просто старайтесь контролировать свой язык. Это одно.
+If you want to enjoy the ride in the ocean of His grace and compassion, His bliss and kindness, then you must build up yourself fully.
 
-Не должно быть разделения, потому что вы коллективно осознаете друг друга. Если между вами нет союза, если вы не можете быть одним целым, как можно думать о Едином Мире? Просто подумайте об этом. И ваша ответственность гораздо больше, потому что вы первые люди, получившие Реализацию во всей Европе и во всей Англии. Уважайте друг друга! Думайте о сильных качествах каждого! Старайтесь любить! Если бы Я вела Себя как вы: "Вы знаете, Я совершенна, и у Меня нет проблем". Зачем Я беспокоюсь? Потому что Я люблю вас.
+Now we have seen we have chakras, and we can excite them, we can awaken them by awakening the Deities. But is it not a mechanical process. Every Deity has got a subtle point behind it, which is a very subtle being within you.
 
-Если вы любите друг друга, вы увидете хорошие качества другого человека, и вы впитаете их. Старайтесь любить друг друга! Но не путайте эту любовь с плотской! Это Божественная любовь. Абсолютно чистая, возвышающая, которая помогает вам восходить. Сегодня вечером пообещайте Мне, что вы будете смотреть на каждого сахаджа-йога как на человека, с которым вас связывает любовь, а не ненависть. И если вы думаете, что кто-то не в порядке или сбился с пути, вы можете вылечить этого человека, не выходя из дому. Вы знаете, как лечить. Но не будьте колючими! Говоря дурное, вы не поможете человеку.
+You know them, one by one. And you know why these chakras are catching — because you lack that thing. There’s nothing to feel bad about it. As I told you this is like your motor car outside. This is your instrument. But the instrument has to be properly harmonised and cleaned.
 
-Используйте методы, которые вы хорошо знаете! Это первое. Это даст Мне величайшее удовольствие, величайшее из всех: Когда Я увижу Моих детей в любви и согласии друг с другом, бегущих на помощь друг другу и абсолютно смиренными. Некоторые из вас богаче, некоторые более умны, некоторые имеют больше сердечных качеств. Не старайтесь принижать того, кто немного отстает в уме! Или того, у кого мало любви. Возможно, тот человек просто хочет больше любви. Но старайтесь давать, нежели ожидать, что другие будут давать! И второе: Я хочу, чтобы все вы сегодня узнали, что вы те люди, которые должны построить Сахаджа Йогу в своих странах, а также в тех странах, которые вы посетите. Поэтому вы должны относиться к этому как к семенам - семени, которое даст рост целому дереву.
+Today I want certain promises by you to be made. And the foremost of all, as Christ has said, “Love thy neighbour as thyself.”
 
-Вы должны вырастить все другие деревья - насколько же вы важны! И сегодня вам нужно решиться, что в личной жизни вы будете честными. Вы будете смотреть за собой, вы будете интроспектировать. Вы не будете лгать. Вы будете следить за своим целомудрием, заботиться о своей жизни как об очень ценной! Вы не будете обманывать себя. Вы не будете принижать себя. И вы не будете перекладывать свои обязанности в собственных глазах. Но развивать глаза, которые критически видят всё это и видят себя. Сегодня вы должны пообещать Мне, что вы будете медитировать, вы будете интроспектировать.
+I would say, one step ahead of that: “Love thy neighbour, a Sahaj Yogi, more than yourself.” Let us start here. I don’t ask you to do for the whole universe: among yourselves.
 
-Вместо того чтобы входить в свое эго. В-третьих, вы не будете критиковать Сахаджа Йогу. У Бога Свои методы, любой ценой! Если вы не понимаете какую-то часть Сахаджа Йоги, тогда подойдите и спросите Меня, но не критикуйте! Вы должны пообещать это Мне. Всё, что случилось, уже случилось. Всё закончилось, и всё прощено, но не критикуйте Его методы больше! Потому что сегодня вас поместили на более высокою позицию. Больше никакой критики в адрес Сахаджа Йоги! Потому что, в этом случае вы критикуете самого Бога.
+First of all decide: what have you done for others?
 
-Если вы не понимаете - спросите Меня. И теперь вы знаете, что вы те самые люди, Бог посылает только тех, кто действительно знают, что Сахаджа Йога - это единственный путь. Истина открыта только вам нескольким людям. И это спасет всё человечество и всех людей. И Бога можно понять ТОЛЬКО через Сахаджа Йогу. Никто не будет публично хулить и обесценивать Сахаджа Йогу. Как и то, что никто не скажет: "Сахаджа Йога - это я". Любой, кто говорил такое, на нашей многолетней практике всегда оказывался - любой, кто брал на себя, что: "Я - Сахаджа Йога", падал ниже всех других Сахаджа Йогов. Не делайте этого! Мы - неотъемлемая часть этой общности, гармонизирующей людей, мы одно целое.
+Second promise you have to make that you will never say a harsh word to any other sahaj yogi, even if he beats you hollow! You can tell me about it.
 
-Никто не должен критиковать Сахаджа Йогу. Никто не должен играть с Сахаджа Йогой. И четвертое: вы должны слушаться Меня. Я говорила вам другими путями, всеми способами, чтобы вы поняли. Сейчас хороший момент. Сегодня после того, как вы провели эту пуджу, хочу сказать вам, что вы сами в свободном волеизъявлении и с собственным пониманием должны подчиниться Мне. Это ваше собственное решение. Я не могу насильно привить вам послушание. Но вы должны понимать - это для вашего блага. Потому что каждую минуту Я могу видеть ваше будущее, ваше прошлое, ваше восхождение, Я вижу всё.
+That is the greatest sin you would be committing from today.
 
-Если я что-то скажу вам в этот момент, возможно это покажется немного несправедливым, но просто послушайтесь, говорю вам. Я не прошу многого, совсем не так, как другие гуру. Вы не знаете, что делают другие гуру. Они повесят ученика наполовину в колодец. Он просто висит там по пояс, они повесят веревку. Они возьмут 7 парикшей (испытаний), вот таких ужасных; Они бросят его куда-нибудь. 7 вот таких, все вместе 108 парикшей. И только тогда они скажут: "Мы берем тебя". Затем они приступят к обучению, и начнется. Я не тестирую вас.
+Don’t try to correct others! If he asks you to check him, then tell that, “This is the thing.” But do not be harsh! Use your tongue for saying something sweet. I am telling you again and again and again. Otherwise I will put some sort of a restriction on you. Try to control your tongue.
 
-Но послушание необходимо. Потому что Я знаю всё! Я не могу ничего с этим поделать, у вас не может быть второго мнения о Моем [ ], потому что оно Истинное. И если Я скажу то, чего обычно не говорю, это не для того, чтобы ранить вас, вы знаете это. Я ненавижу причинять вам боль, после каждой раны Я рыдаю и плачу. Но Я должна это сделать, потому что вы - мои самые дорогие дети. И вы - Моя [воля], и вы должны делать самую важную работу на Земле, поэтому будьте осторожны. Всё, что Я вам сказала, просто сделайте... сегодня, в этом месте на сегодняшнем приеме [ ], - это три четких ограничения. Я не просила о многом, но это было очень трудно. Они трудные.
+It’s very essential to put sweetly something, you can, you are sahaj yogis, it’s very easy to put it sweetly something. It’s such an attractive thing.
 
-Позаботьтесь о себе, старайтесь быть хорошими сахаджа-йогами! Будьте мягкими и добрыми по отношению друг к другу! Не обманывайте себя! Берегите свои вибрации, и все получиться!
+Why do you say harsh things? For what? To create enemies? If you want to have enemies, you can have so many: for that you need not say harsh things. Very easy to gather enemies. Difficult to get friends. And difficult to get your own kith and kin. But Sahaj Yogis, you have one Mother. And that hurts me the most.
+
+Any, any, thing that tries to break you will take out my heart into many parts. And this body will become divided into many parts. So don’t do that to me. This is the greatest suffering I can have from you. I request you not to do that because I have taken you into my Being, and you are part and parcel of me. You are one of the thousand petals of my Sahasrara, and I don’t want these petals to be broken by you and to be trampled by others. You have your own dignity, and respect the dignity of others. And you are Sahaj yogis, realised-souls, you must know that now.
+
+You are not ordinary people. As you respect yourself, you’ll respect others. This is one thing I must tell you: that among yourselves you should be very humble and very friendly and extremely sweet. Also when you will start doing that, gradually you will learn a method by which you’ll be very sweet. It is better to be sweet than to be harsh. It is better to be beaten up than to be beating others. It is better to be simple and deceived than to be deceiving others.
+
+We are like the shield and the shield has to fight the sword. Sword doesn’t fight a sword, it’s a shield that has to fight it.
+
+This you must understand, that for anything, no harsh words is to be said. Keep quiet! Just keep quiet. Try to keep control of your tongue.
+
+That is one thing: that there should be no disunity because you are collectively conscious among yourselves. If there is disunity among you, you cannot be one: then how can we think of the whole world being one? Just think of it! And your responsibility is much greater because you are the first people who have got it in the whole of Europe and the whole of England.
+
+Respect each other. Think of the good points that everyone has. Try to love.
+
+If I were like you... you know I am complete, I have no problem — why am I bothering? Because I love you. If you love each other, you will see the good points of another person, and you will imbibe them. Try to love each other. But do not confuse this love with the carnal love. This is Divine love: absolutely pure, elevating, helping you to ascend.
+
+Tonight you promise me that you will look at every Sahaj Yogi as a person in bondage in love and not in hatred.
+
+And if somebody you think is not doing right or going bad, then you cure that person.
+
+Sitting in the house, you know how to do that. But don’t be harsh. By talking ill you are not going to do anything to help that person. You use your methods which you know very well. This is one point.
+
+And that will give me the greatest pleasure, the greatest of all: when I will see all my children loving each other, and being kind to each other, running to do for everyone, trying to help each other and extremely humbled down.
+
+Some of you are better off, some of you are more intelligent, some of you have got more heart qualities. Don’t try to show down somebody who lacks a little bit in intelligence, or somebody who has little less of love. Maybe that person just wants more love. But try to give, than to expect others to give.
+
+Then the second one: I want you, all of you, today, to know that you are the people who have to build up Sahaj Yoga in this country and also in other countries wherever you go.
+
+So you are like seeds, and the seed which has to grow the whole tree! You have to bear all other trees, so how important you are!
+
+So today you have to resolve that, in your personal life, you are going to be honest. You are going to watch yourself. You are going to introspect yourself. You are not going to tell lies. And you are going to look after your chastity, look after your life as a very precious thing.
+
+And you are not going to cheat yourself. And you are not going to debase yourself. And you are not going to denigrate yourself, in your own eyes, but develop those eyes which criticise all these things and can see yourself.
+
+Today you must promise me that you will meditate, you’ll introspect, then getting into your Self.
+
+Thirdly, you will not criticise Sahaj Yog — that is God’s own method — at any cost! If you do not understand a part of Sahaj Yog, you can come and ask me, but don’t criticise! This you must promise me.
+
+So far whatever has happened, has happened. It’s finished. It’s forgiven. But don’t criticise His ways now anymore, because now you are put into a higher position. You are put into a higher position, today. No more criticism of Sahaj Yog, at any cost! At any cost.
+
+Because then you criticise the God Himself!
+
+If you don’t understand, ask me.
+
+And now you know you are the people, God has sent only those who really know that Sahaj Yoga is the Truth. It is the only way, it is revealed to you only, very few people, that this is the Truth. And this is going to save the whole humanity and all the people. And God can be only understood through Sahaj Yog.
+
+So nobody is going to decry Sahaj Yoga. Nor anyone is going to say that, “I am the Sahaj Yoga!” Anybody who thinks like that has been always, so far, we have seen in our practices in Sahaj yoga for the last now so many years, that anyone who takes upon to themselves that, “I am the Sahaj Yoga!” has had the worst possible falls of all Sahaj Yogis.
+
+So don’t do that. We are a part and parcel of that Sahaj Yoga: harmonising people, being one with people. So nobody should criticise Sahaj Yog, nobody should take chances with Sahaj Yog.
+
+And fourth, you have to be obedient to me. I have been telling you, in a different way and in every way that you should understand. Now, this stops. Today you have done this puja, I want to tell you that on your own, on your free will, with your own understanding you have to be obedient to me. This is your own decision. I cannot force obedience onto you, but you must understand it is for your good.
+
+Because every minute I can see your future, I can see your past, I can see your ascent, I can see everything.
+
+If I say anything at that moment, it may appear a little [bit] unreasonable, but just obey me, what I tell you!
+
+I am not asking too much, you have seen: not much, as other gurus do.
+
+You don’t know other gurus what do they do: they will hang the disciple in the well halfway down. He is just there and from his waist they will be hanging a rope up. They take seven parikshas (परीक्षा — trial, test) like this, horrible ones. They will throw him into some place. Seven like this. There are, altogether, 108 parikshas. And then they say, “Come along!” Then they will try [to teach] you. It starts after that.
+
+I am not taking your test. But obedience is very necessary because I know everything.
+
+I can’t help it. You cannot have another opinion about myself because that’s a fact.
+
+And if I say something, I would not say normally, I will not hurt you, you know that. I hate to hurt you. After any hurt I cause you I weep and cry. But I have to do it, because you are my dearest children and you are my will. And you have to do the most important thing on Earth, so be careful. Whatever I have told you, you have to obey.
+
+For today, for this place, and today’s function, I bless you – these are the things you must do. I haven’t asked for much. But they are very difficult things. They are difficult.
+
+So, look after yourself. Try to be good Sahaj Yogis. Be sweet to each other, kind to each other. Don’t deceive yourself. Look after your vibrations and everything will be alright.
+
+May God bless you.

@@ -1,40 +1,114 @@
 1 julio 1977
 Guru Puja
 London (England)
-Guru Puja: Las promesas que tenéis que hacer, Londres, Inglaterra 01-07-1977
+Today is the day of worshipping your guru: that is your Mother. And as I told you, it’s a very unique happening that Mother, Herself, has to become your Guru.
 
-Hoy es el día de adoración a vuestro guru, que es vuestra Madre. Cómo os he dicho, es un acontecimiento único que Madre en persona se haya convertido en vuestro Guru. Y también sabéis que ser un guru es una tarea muy difícil para una madre, porque su amor es tan desbordante que es muy difícil para ella imponer alguna disciplina a sus hijos. Ella no puede disciplinar su propio amor, ¿cómo va entonces a disciplinar a sus propios hijos? Al ser así, la responsabilidad de los discípulos es mucho mayor. Si el guru es una persona que puede imponer disciplina de forma que no os sintáis dolidos, será muy capaz y podrá hacerlo. Pero para una madre, es muy, muy, muy difícil. Debo decirlo, el trabajo de ser el guru es muy difícil. Ella no sabe como equilibrar, y es extremadamente indulgente porque es la Madre. El guru, desde el principio, no perdona, mientras que la madre lo hará hasta el fin, hasta el final. Incluso si el hijo la ha abandonado, incluso si le ha pegado, incluso si quiere matarla, aún así le dirá: "Hijo mío, ¿te has hecho daño?".
+And also you know that it is a very difficult task for a Mother to be a guru, because her love is so overflowing that it is difficult for Her to give any discipline to Her children. She cannot discipline her own love, how can she discipline her own children?
 
-Por lo tanto, la responsabilidad de los discípulos es mucho mayor: tratar de no hacerle daño y no dar mi amor por sentado. Por eso deben saber que tienen que ponerse a prueba y tienen que mejorar. Por esa razón, este día es una combinación única de un tremendo amor que me desborda y también del pensamiento, de la inspiración divina, que me dice que tenéis que ser disciplinados. Tenéis que ser disciplinados de modo sahaja, no por una persona. Tiene que ser así, porque si un barco no está ensamblado de forma apropiada y si no está en condiciones de navegar, no puede ir muy lejos. Si queréis disfrutar de la travesía en el océano de su gracia y compasión, de su dicha y gentileza, entonces debéis desarrollaros por completo. Hemos visto que tenemos chakras y que podemos activarlos, podemos despertarlos despertando las deidades. Pero no es un proceso mecánico. Cada deidad tiene un aspecto sutil detrás, que es una esencia muy sutil en vuestro interior. Los conocéis, uno a uno.
+Being [like] that, the responsibility on the disciples is much more. If the guru is a person who can discipline you without feeling anything hurting to him, he is much more capable, and he can do it.
 
-Y sabéis que, si un chakra está bloqueado, es porque hay una cualidad de la que carecéis. No hay nada por lo que sentirse mal. Como os he dicho, esto es como vuestro automóvil de ahí fuera. Es vuestro instrumento. Pero el instrumento debe estar a punto y limpio. Hoy quiero que hagáis ciertas promesas. Y la más importante de todas, cómo dijo Cristo: "Ama a tu prójimo como a ti mismo". Iría un paso más allá: "Ama a tu prójimo, sahaja yogui, más que a ti mismo". Comencemos aquí. No os pido que lo hagáis por el universo entero sino entre vosotros.
+But for a Mother it is a very, very, very difficult, I must say, a very difficult job to be the guru.
 
-Lo primero de todo preguntaos: ¿qué habéis hecho por los demás? La segunda promesa que tenéis que hacer es que nunca diréis una palabra dura a ningún otro sahaja yogui, incluso si os aplasta. Podéis decírmelo a mí. A partir de hoy, este es el mayor pecado que podríais cometer. ¡No intentéis corregir a los demás! Si alguien os pide que le toméis las vibraciones decidle cuál es el bloqueo. ¡Pero no seáis duros! Usad la lengua para decirlo de forma dulce. Os lo estoy diciendo una y otra vez. Si no, os pondré algún tipo de restricción.
+She does not know how to balance, and She is extremely forgiving because She is the Mother.
 
-Intentad controlar la lengua. Es esencial hablar dulcemente, podéis hacerlo, sois sahaja yoguis, es muy fácil decir las cosas con dulzura. Es algo tan atractivo. ¿Por qué decís cosas duras? ¿Para qué? ¿Para crear enemigos? Si queréis tener enemigos, podéis tener muchos: para eso no necesitáis decir cosas duras. Es muy fácil conseguir enemigos, lo difícil es tener amigos. Y difícil conseguirlos entre los seres queridos. Pero vosotros, sahaja yoguis, tenéis una Madre.
+While the guru, from the very beginning, does not forgive. But mother, till the end, she’ll go to the last end. Even if the child has forsaken her, even if he has beaten her up, even if he’s willing to kill her, still she will be saying that, “My child, are you hurt?”
 
-Y eso es lo que más me duele. Cualquier cosa, cualquiera que os divida romperá mi corazón en muchas partes. Y este cuerpo se dividirá en muchas partes. Por lo tanto, no me hagáis eso. Este es el mayor sufrimiento que podéis infligirme. Os pido que no hagáis eso porque os he acogido en mi Ser, y sois una parte integrante de mí. Sois uno de los mil pétalos de mi Sahasrara, y no quiero que estos pétalos sean echados a perder por vosotros y pisoteados por otros. Tened vuestra propia dignidad y respetad la dignidad de los demás. Sois sahaja yoguis, almas realizadas, ahora debéis saber esto. No sois gente común.
+Then the responsibility of the disciples is much more, to see that they do not hurt Her, and they do not take my love for granted.
 
-Tal como os respetéis a vosotros mismos, respetad a los demás. Esto es lo que tengo que deciros: que entre vosotros debéis ser muy humildes y amigables; y extremadamente dulces. Cuando empecéis a hacer esto, poco a poco aprenderéis un método por el que seréis muy dulces. Es mejor ser dulces que ser duros. Es mejor ser maltratado que maltratar a los demás. Es mejor ser sencillo y ser engañado que engañar a los demás. Somos como el escudo y el escudo tiene que luchar contra la espada. La espada no lucha contra la espada, es el escudo el que tiene que luchar contra ella. Debéis comprender esto, que no se deben decir palabras duras por ningún motivo. ¡Estad tranquilos!
+For they must know that they have to prove themselves and they have to improve themselves.
 
-Simplemente estad tranquilos. Tratad de mantener el control de vuestra lengua. Esta es la cuestión: que no debería haber desunión porque sois colectivamente conscientes entre vosotros. Si hay desunión entre vosotros, no podéis ser uno: ¿cómo podemos pensar que el mundo entero sea uno? ¡Pensad en ello! Y vuestra responsabilidad es mucho mayor porque sois los primeros en toda Europa y en toda Inglaterra en haber obtenido la realización. Respetaos unos a otros. Pensad en los puntos positivos que tiene cada uno. Intentad amar. Si fuera como vosotros... sabéis que soy completa, no tengo ningún problema, ¿por qué me preocupo?
+That is why this day is a very unique combination of tremendous love overflowing me, and also the thought, I would say, the divine inspiration, that tells me that you have to be disciplined.
 
-Porque os amo. Si os amáis entre vosotros, veréis los aspectos positivos de la otra persona, y os impregnaréis de ellos. Intentad amaros unos a otros. Pero no confundáis este amor con el amor carnal. Este es amor divino: absolutamente puro, que os eleva, que os ayuda a ascender. Prometedme esta noche que miraréis a cada sahaja yogui como una persona a la que estáis unidos por el vínculo del amor y no del odio. Y si pensáis que alguno no actúa bien o está yendo por mal camino, curaréis a esa persona. Sabéis como hacerlo, simplemente sentados en casa. Pero no seáis duros. Hablando con dureza no vais a hacer nada que ayude a esa persona.
+You have to be disciplined sahaja, not by another person. That has to be, because if a ship is not properly tied up and it is not seaworthy it cannot go very far.
 
-Usad los métodos que conocéis muy bien. Esto sería una cosa. Eso me dará la mayor alegría, la mayor de todas: ver que mis hijos se aman unos a otros, son amables entre sí, se apresuran para echar una mano, intentan ayudarse mutuamente y son extremadamente humildes. Algunos estáis mejor económicamente, otros sois más inteligentes, y otros tenéis más cualidades del corazón. No intentéis menospreciar al que le falta inteligencia, o al que le falta algo de amor. Puede que esa persona necesite más amor. Es mejor dar que esperar a que otros den. La segunda cosa: quiero que vosotros, todos vosotros, hoy, sepáis que sois las personas que tenéis que construir Sahaja Yoga en este país y también en los países a donde vayáis. Por lo tanto, sois como semillas, y de la semilla tiene que crecer todo el árbol. Tenéis que sostener a todos los otros árboles.
+If you want to enjoy the ride in the ocean of His grace and compassion, His bliss and kindness, then you must build up yourself fully.
 
-¡Sois así de importantes! Por lo tanto, hoy tenéis que decidir que, en vuestra vida personal, vais a ser honestos. Vais a observaros a vosotros mismos. Vais a hacer introspección. No vais a decir mentiras. Y vais a cuidar de vuestra castidad, a cuidar vuestra vida como algo muy valioso. Y no os vais a engañar a vosotros mismos. Y no vais a rebajaros. Y no os vais a denigrar ante vosotros mismos, sino que desarrollaréis los ojos para que os permitan criticar todas estas cosas y veros a vosotros mismos. Hoy debéis prometerme que meditaréis, que haréis introspección, y entraréis en la profundidad de vuestro Ser.
+Now we have seen we have chakras, and we can excite them, we can awaken them by awakening the Deities. But is it not a mechanical process. Every Deity has got a subtle point behind it, which is a very subtle being within you.
 
-En tercer lugar, no criticaréis Sahaja Yoga, que es el método propio de Dios, ¡bajo ningún concepto! Si no comprendéis algo de Sahaja Yoga podéis venir y preguntármelo, pero no critiquéis. Debéis prometérmelo. Lo que haya ocurrido hasta ahora, ha ocurrido. Está terminado. Está perdonado. Pero no critiquéis sus métodos nunca más, porque ahora se os ha puesto en una posición más elevada. Hoy estáis colocados en una posición más elevada. Nada de criticar Sahaja Yoga, ¡bajo ningún concepto! Bajo ningún concepto.
+You know them, one by one. And you know why these chakras are catching — because you lack that thing. There’s nothing to feel bad about it. As I told you this is like your motor car outside. This is your instrument. But the instrument has to be properly harmonised and cleaned.
 
-Porque entonces criticaríais a Dios. Si no lo comprendéis, preguntadme. Ahora sabéis que sois la gente que Dios ha enviado. Solo a aquellos que saben realmente que Sahaja Yoga es la Verdad. Es el único camino, revelado solo a vosotros. Muy pocas personas saben que esta es la Verdad. Y esto va a salvar a toda la humanidad y a toda la gente. Solo se puede comprender a Dios a través de Sahaja Yoga. Así pues, nadie va a desprestigiar Sahaja Yoga ni nadie va a decir que "yo soy Sahaja Yoga". Cualquiera que piense así, siempre ha estado, hasta ahora, lo hemos visto en nuestra práctica de Sahaja Yoga durante los últimos años, que cualquiera que se responsabiliza como "yo soy Sahaja Yoga", ha tenido las peores caídas posibles de todos los sahaja yoguis.
+Today I want certain promises by you to be made. And the foremost of all, as Christ has said, “Love thy neighbour as thyself.”
 
-Por lo tanto, no hagáis eso. Somos parte integral de Sahaja Yoga: armonizando a la gente, siendo uno con ellos. Así pues, nadie debería criticar Sahaja Yoga, nadie debería arriesgarse en Sahaja Yoga. Y en cuarto lugar, tenéis que obedecerme. Os lo he estado diciendo de distintas maneras, y de todas las maneras posibles, de forma que deberíais entenderlo. Ahora, esto se acaba. Hoy, que habéis hecho este puja, quiero deciros que, por vosotros mismos, en vuestro libre albedrío, con vuestra propia comprensión, tenéis que obedecerme. Es vuestra decisión. Yo no puedo forzaros a que me obedezcáis, pero debéis comprender que es por vuestro bien. Porque, cada minuto, puedo ver vuestro futuro, puedo ver vuestro pasado, vuestro ascenso, puedo verlo todo.
+I would say, one step ahead of that: “Love thy neighbour, a Sahaj Yogi, more than yourself.” Let us start here. I don’t ask you to do for the whole universe: among yourselves.
 
-Si digo algo que, en ese momento, puede parecer un poco irrazonable, ¡simplemente obedeced lo que os digo! No os estoy pidiendo demasiado, lo habéis visto, no mucho como otros gurus. No sabéis lo que hacen otros gurus: colgarán al discípulo cabeza abajo en un pozo. Simplemente estará ahí colgando de una cuerda atada a su cintura. Les ponen siete "parikshas" [pruebas], como esta, horribles. Lo abandonarán en algún lugar. Siete como esto. Hay 108 parikshas en total. Y luego dicen: "¡Ven!". Entonces intentarán enseñaros.
+First of all decide: what have you done for others?
 
-Empieza después de eso. Yo no os estoy poniendo estas pruebas. Pero la obediencia es muy necesaria porque lo sé todo. No lo puedo evitar. No podéis pensar otra cosa de mí porque es un hecho. Y, si digo algo, que normalmente no diría, no os haré daño, lo sabéis. Odio haceros daño. Si os causo algún daño, lloro y sollozo. Pero tengo que hacerlo, porque sois mis más queridos hijos y sois mi deseo. Y tenéis que hacer la cosa más importante en la Tierra, por lo tanto, tened cuidado.
+Second promise you have to make that you will never say a harsh word to any other sahaj yogi, even if he beats you hollow! You can tell me about it.
 
-Tenéis que obedecer todo lo que os haya dicho. Os bendigo hoy, por este lugar y por la celebración de hoy, estas son las cosas que debéis hacer. No os he pedido mucho. Pero son cosas muy difíciles. Son difíciles. Por lo tanto, cuidaros. Intentad ser buenos sahaja yoguis. Sed dulces y amables los unos con los otros. No os engañéis. Cuidad vuestras vibraciones y todo estará bien.
+That is the greatest sin you would be committing from today.
 
-Que Dios os bendiga.
+Don’t try to correct others! If he asks you to check him, then tell that, “This is the thing.” But do not be harsh! Use your tongue for saying something sweet. I am telling you again and again and again. Otherwise I will put some sort of a restriction on you. Try to control your tongue.
+
+It’s very essential to put sweetly something, you can, you are sahaj yogis, it’s very easy to put it sweetly something. It’s such an attractive thing.
+
+Why do you say harsh things? For what? To create enemies? If you want to have enemies, you can have so many: for that you need not say harsh things. Very easy to gather enemies. Difficult to get friends. And difficult to get your own kith and kin. But Sahaj Yogis, you have one Mother. And that hurts me the most.
+
+Any, any, thing that tries to break you will take out my heart into many parts. And this body will become divided into many parts. So don’t do that to me. This is the greatest suffering I can have from you. I request you not to do that because I have taken you into my Being, and you are part and parcel of me. You are one of the thousand petals of my Sahasrara, and I don’t want these petals to be broken by you and to be trampled by others. You have your own dignity, and respect the dignity of others. And you are Sahaj yogis, realised-souls, you must know that now.
+
+You are not ordinary people. As you respect yourself, you’ll respect others. This is one thing I must tell you: that among yourselves you should be very humble and very friendly and extremely sweet. Also when you will start doing that, gradually you will learn a method by which you’ll be very sweet. It is better to be sweet than to be harsh. It is better to be beaten up than to be beating others. It is better to be simple and deceived than to be deceiving others.
+
+We are like the shield and the shield has to fight the sword. Sword doesn’t fight a sword, it’s a shield that has to fight it.
+
+This you must understand, that for anything, no harsh words is to be said. Keep quiet! Just keep quiet. Try to keep control of your tongue.
+
+That is one thing: that there should be no disunity because you are collectively conscious among yourselves. If there is disunity among you, you cannot be one: then how can we think of the whole world being one? Just think of it! And your responsibility is much greater because you are the first people who have got it in the whole of Europe and the whole of England.
+
+Respect each other. Think of the good points that everyone has. Try to love.
+
+If I were like you... you know I am complete, I have no problem — why am I bothering? Because I love you. If you love each other, you will see the good points of another person, and you will imbibe them. Try to love each other. But do not confuse this love with the carnal love. This is Divine love: absolutely pure, elevating, helping you to ascend.
+
+Tonight you promise me that you will look at every Sahaj Yogi as a person in bondage in love and not in hatred.
+
+And if somebody you think is not doing right or going bad, then you cure that person.
+
+Sitting in the house, you know how to do that. But don’t be harsh. By talking ill you are not going to do anything to help that person. You use your methods which you know very well. This is one point.
+
+And that will give me the greatest pleasure, the greatest of all: when I will see all my children loving each other, and being kind to each other, running to do for everyone, trying to help each other and extremely humbled down.
+
+Some of you are better off, some of you are more intelligent, some of you have got more heart qualities. Don’t try to show down somebody who lacks a little bit in intelligence, or somebody who has little less of love. Maybe that person just wants more love. But try to give, than to expect others to give.
+
+Then the second one: I want you, all of you, today, to know that you are the people who have to build up Sahaj Yoga in this country and also in other countries wherever you go.
+
+So you are like seeds, and the seed which has to grow the whole tree! You have to bear all other trees, so how important you are!
+
+So today you have to resolve that, in your personal life, you are going to be honest. You are going to watch yourself. You are going to introspect yourself. You are not going to tell lies. And you are going to look after your chastity, look after your life as a very precious thing.
+
+And you are not going to cheat yourself. And you are not going to debase yourself. And you are not going to denigrate yourself, in your own eyes, but develop those eyes which criticise all these things and can see yourself.
+
+Today you must promise me that you will meditate, you’ll introspect, then getting into your Self.
+
+Thirdly, you will not criticise Sahaj Yog — that is God’s own method — at any cost! If you do not understand a part of Sahaj Yog, you can come and ask me, but don’t criticise! This you must promise me.
+
+So far whatever has happened, has happened. It’s finished. It’s forgiven. But don’t criticise His ways now anymore, because now you are put into a higher position. You are put into a higher position, today. No more criticism of Sahaj Yog, at any cost! At any cost.
+
+Because then you criticise the God Himself!
+
+If you don’t understand, ask me.
+
+And now you know you are the people, God has sent only those who really know that Sahaj Yoga is the Truth. It is the only way, it is revealed to you only, very few people, that this is the Truth. And this is going to save the whole humanity and all the people. And God can be only understood through Sahaj Yog.
+
+So nobody is going to decry Sahaj Yoga. Nor anyone is going to say that, “I am the Sahaj Yoga!” Anybody who thinks like that has been always, so far, we have seen in our practices in Sahaj yoga for the last now so many years, that anyone who takes upon to themselves that, “I am the Sahaj Yoga!” has had the worst possible falls of all Sahaj Yogis.
+
+So don’t do that. We are a part and parcel of that Sahaj Yoga: harmonising people, being one with people. So nobody should criticise Sahaj Yog, nobody should take chances with Sahaj Yog.
+
+And fourth, you have to be obedient to me. I have been telling you, in a different way and in every way that you should understand. Now, this stops. Today you have done this puja, I want to tell you that on your own, on your free will, with your own understanding you have to be obedient to me. This is your own decision. I cannot force obedience onto you, but you must understand it is for your good.
+
+Because every minute I can see your future, I can see your past, I can see your ascent, I can see everything.
+
+If I say anything at that moment, it may appear a little [bit] unreasonable, but just obey me, what I tell you!
+
+I am not asking too much, you have seen: not much, as other gurus do.
+
+You don’t know other gurus what do they do: they will hang the disciple in the well halfway down. He is just there and from his waist they will be hanging a rope up. They take seven parikshas (परीक्षा — trial, test) like this, horrible ones. They will throw him into some place. Seven like this. There are, altogether, 108 parikshas. And then they say, “Come along!” Then they will try [to teach] you. It starts after that.
+
+I am not taking your test. But obedience is very necessary because I know everything.
+
+I can’t help it. You cannot have another opinion about myself because that’s a fact.
+
+And if I say something, I would not say normally, I will not hurt you, you know that. I hate to hurt you. After any hurt I cause you I weep and cry. But I have to do it, because you are my dearest children and you are my will. And you have to do the most important thing on Earth, so be careful. Whatever I have told you, you have to obey.
+
+For today, for this place, and today’s function, I bless you – these are the things you must do. I haven’t asked for much. But they are very difficult things. They are difficult.
+
+So, look after yourself. Try to be good Sahaj Yogis. Be sweet to each other, kind to each other. Don’t deceive yourself. Look after your vibrations and everything will be alright.
+
+May God bless you.
